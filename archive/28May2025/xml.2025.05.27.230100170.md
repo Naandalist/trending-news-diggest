@@ -51,6 +51,22 @@ Perjalanan menuju kehamilan pun tidak mudah. Ia mengalami keguguran dan beberapa
 Beberapa bulan setelah melahirkan, Case membuktikan keberaniannya kembali. Ia tidak hanya kembali ke lintasan, tapi juga memenangkan salah satu lomba *trail run* paling bergengsi di Inggris, sambil tetap menjalankan perannya sebagai seorang ibu.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pelari asal Kanada, Stephanie Case, telah mencapai prestasi luar biasa di ajang Ultra-Trail Snowdonia, lomba lari lintas alam sejauh 100 kilometer di Inggris. Ia tidak hanya berhasil menyelesaikan perlombaan ini, tetapi juga keluar sebagai juara pertama kategori wanita dengan catatan waktu 16 jam 53 menit 22 detik. Menariknya, Cases juga merupakan ibu dari seorang bayi perempuan bernama Pepper dan harus berhenti di beberapa pos sepanjang rute untuk menyusui sang anak, menunjukkan dedikasinya sebagai atlet dan ibu.
+Berikut adalah ringkasan berita dalam satu paragraf: Stephanie Case, seorang pelari asal Kanada, telah mencapai pencapaian luar biasa di ajang Ultra-Trail Snowdonia, lomba lari lintas alam sejauh 100 kilometer di Inggris.
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan. Di satu sisi, prestasi Stephanie Case sangat menginspirasi, menunjukkan bahwa perempuan dapat berhasil dalam olahraga ekstrem sambil menjalankan peran sebagai ibu. Ini adalah contoh nyata bahwa perempuan tidak harus memilih antara karir dan keluarga, tetapi dapat menjalankan keduanya dengan sukses. Namun, di sisi lain, kita juga melihat betapa beratnya tantangan yang dihadapi Case, termasuk menyusui di tengah perlombaan dan berpisah dengan anaknya. Ini menunjukkan bahwa perjuangan perempuan masih sangat nyata, bahkan dalam olahraga yang dianggap "berani" dan "bebas". Jadi, mari kita menghargai dan mendukung perempuan seperti Stephanie Case yang menunjukkan bahwa kita bisa melakukan apa saja dengan dedikasi, kerja keras, dan sedikit humor.
+ Ia tidak hanya berhasil menyelesaikan perlombaan ekstrem ini, tetapi juga keluar sebagai juara pertama kategori wanita dengan catatan waktu 16 jam 53 menit 22 detik.
+
+ Case, yang juga merupakan ibu dari seorang bayi perempuan bernama Pepper, harus menghadapi tantangan ganda dalam perlombaan ini, karena ia harus berhenti di beberapa pos untuk menyusui sang anak.
+
+
+
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+
+ Di sisi positif, kita memiliki Stephanie Case, seorang ibu yang luar biasa yang dapat menyelesaikan lomba lari lintas alam sejauh 100 kilometer sambil menyusui bayinya.
+
+ Ini adalah contoh yang luar biasa tentang bagaimana seorang ibu dapat menyeimbangkan peran sebagai atlet dan ibu.
+
+ Namun, di sisi negatif, kita dapat melihat bahwa Case harus menghadapi tantangan emosional yang besar dalam perpisahan dengan sang anak, serta harus meminta izin khusus untuk menyusui di pos kilometer 50.
+
+ Ini menunjukkan bahwa masih ada banyak hal yang perlu diperbaiki dalam mendukung ibu-ibu atlet yang ingin terus berkompetisi sambil merawat anak mereka.
+
+ Dan, tentu saja, kita tidak dapat melupakan sentuhan satire yang menyakitkan: apa yang akan terjadi jika semua ibu atlet memutuskan untuk menyusui di tengah-tengah perlombaan? Apakah kita akan memiliki "pos menyusui" khusus di setiap lomba? Ah, mungkin itu ide yang tidak terlalu buruk, karena setidaknya kita dapat memiliki alasan yang valid untuk berhenti sejenak dan menikmati pemandangan sekitar.
