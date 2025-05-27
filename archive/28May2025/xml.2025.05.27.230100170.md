@@ -55,28 +55,26 @@ Perjalanan menuju kehamilan pun tidak mudah. Ia mengalami keguguran dan beberapa
 Beberapa bulan setelah melahirkan, Case membuktikan keberaniannya kembali. Ia tidak hanya kembali ke lintasan, tapi juga memenangkan salah satu lomba *trail run* paling bergengsi di Inggris, sambil tetap menjalankan perannya sebagai seorang ibu.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pelari asal Kanada, Stephanie Case, telah mencapai kesuksesan luar biasa di ajang Ultra-Trail Snowdonia, sebuah lomba lari lintas alam sejauh 100 kilometer di Inggris.
+Berikut adalah ringkasan berita dalam satu paragraf: Pelari asal Kanada, Stephanie Case, telah mencatatkan prestasi luar biasa di ajang Ultra-Trail Snowdonia, sebuah lomba lari lintas alam sejauh 100 kilometer di Inggris.
 
- Case, yang juga merupakan ibu dari seorang bayi perempuan bernama Pepper, berhasil menjadi juara pertama kategori wanita dengan catatan waktu 16 jam 53 menit 22 detik.
+ Case tidak hanya berhasil menyelesaikan perlombaan ini, tetapi juga menjadi juara pertama kategori wanita dengan catatan waktu 16 jam 53 menit 22 detik.
 
- Meskipun menghadapi tantangan sebagai ibu, Case tetap dapat menyelesaikan lomba dengan dukungan suaminya, John Roberts, dan para relawan.
+ Yang lebih mengesankan, Case harus berhenti di beberapa pos untuk menyusui anaknya, Pepper, yang berusia beberapa bulan, dan mendapat dukungan dari suaminya, John Roberts, serta para relawan.
 
- Case juga telah menunjukkan keseimbangan antara peran sebagai atlet dan ibu, dan telah kembali ke lintasan setelah vakum selama tiga tahun karena program kehamilan.
+ Dengan prestasi ini, Case membuktikan bahwa peran sebagai atlet dan ibu dapat dijalaninya dengan baik.
 
 
 
-Saya harus mengatakan, ini adalah cerita yang sangat inspiratif, tetapi juga sedikit menyedihkan.
+Tentu saja, ada sisi positif dan negatif dari berita ini.
 
- Di satu sisi, kita memiliki seorang ibu yang luar biasa, Stephanie Case, yang berhasil menyelesaikan lomba lari lintas alam sejauh 100 kilometer sambil tetap menjalankan perannya sebagai ibu.
+ Di sisi positif, kita dapat melihat betapa hebatnya Stephanie Case sebagai atlet dan ibu yang dapat menyeimbangkan perannya dengan sangat baik.
 
- Ini adalah contoh nyata dari keseimbangan antara karir dan keluarga.
+ Ia membuktikan bahwa menjadi ibu tidak berarti harus meninggalkan passion dan kegiatan yang disenangi.
 
- Namun, di sisi lain, kita juga melihat betapa sulitnya menjadi ibu dan atlet pada saat yang sama.
+ Namun, di sisi negatif, kita juga dapat melihat betapa sulitnya menjadi ibu dan atlet pada saat yang sama.
 
- Case harus berhenti di sejumlah pos untuk menyusui anaknya, dan suaminya harus berperan besar dalam mendukungnya.
+ Case harus berhenti di beberapa pos untuk menyusui anaknya, yang tentu saja memerlukan perjuangan dan pengorbanan.
 
- Ini adalah cerita yang menyentuh hati, tetapi juga sedikit menyedihkan karena kita dapat melihat betapa besar pengorbanan yang harus dilakukan oleh seorang ibu untuk mengejar impian mereka.
+ Tapi, hei, setidaknya ia tidak perlu khawatir tentang kehilangan bentuk tubuhnya setelah melahirkan, karena ia sudah terbiasa berlari 100 kilometer! Dan, tentu saja, kita harus menghargai peran suaminya, John Roberts, yang mendukung Case dengan sangat baik.
 
- Tapi, hei, setidaknya kita dapat melihat bahwa dengan dukungan yang tepat, seorang ibu dapat melakukan apa saja, bahkan jika itu berarti harus menyusui anak mereka di tengah-tengah lomba lari lintas alam.
-
- Sekarang, itu yang saya sebut sebagai "multitasking"!
+ Jadi, bagi semua ibu dan calon ibu di luar sana, jangan ragu untuk mengejar passion Anda, tetapi jangan lupa untuk menyusui anak Anda juga, karena itu sangat penting!
