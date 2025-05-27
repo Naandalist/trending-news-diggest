@@ -4,8 +4,6 @@ Polisi tersebut dikenai sanksi selama 14 hari yang mencakup apel rutin, olahraga
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | 6 Polisi di Kalsel Positif Narkoba, Dihukum Shalat Lima Waktu? |
-| description | Polisi tersebut dikenai sanksi selama 14 hari yang mencakup apel rutin, olahraga intensif, serta pembinaan rohani berupa shalat wajib lima waktu. |
 | urlshort    | http://kmp.im/AGHpFr |
 | author      |  |
 | editor      | Sari Hardiyanto |
@@ -40,22 +38,22 @@ Ia menilai langkah tes urine berkala sebagai tindakan tepat, dan menegaskan tida
 *[6 Polisi di Kalimantan Selatan Positif Narkoba, Disanksi Shalat Wajib 5 Waktu di Mushola](https://solo.tribunnews.com/2025/05/27/6-polisi-di-kalimantan-selatan-positif-narkoba-disanksi-shalat-wajib-5-waktu-di-mushola)*
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Enam anggota Polres Hulu Sungai Tengah (HST) di Kalimantan Selatan terbukti positif narkoba setelah menjalani tes urine.
+Berikut adalah ringkasan dari berita tersebut: Enam anggota Polres Hulu Sungai Tengah (HST) di Kalimantan Selatan (Kalsel) terbukti positif narkoba setelah menjalani tes urine.
 
- Mereka saat ini sedang menjalani pembinaan khusus, termasuk kewajiban melaksanakan shalat lima waktu di bawah pengawasan.
+ Mereka kini menjalani pembinaan khusus, termasuk kewajiban melaksanakan shalat lima waktu di bawah pengawasan.
 
- Pembinaan ini dilakukan sebagai bentuk sanksi selama 14 hari, yang juga mencakup apel rutin, olahraga intensif, dan pembinaan rohani.
+ Tes urine tersebut dilakukan setelah kasus penyalahgunaan narkoba oleh seorang Bhabinkamtibmas yang ditembak Badan Narkotika Nasional Provinsi (BNNP) Kalsel.
 
- Kapolres HST AKBP Jupri JHP Tampubolon menyatakan bahwa tes urine tersebut dilakukan setelah adanya kasus penyalahgunaan narkoba oleh seorang Bhabinkamtibmas, dan Polres HST kini lebih aktif melakukan tes urine untuk mencegah keterlibatan dalam penyalahgunaan narkotika.
+ Polres HST dan Kapolda Kalimantan Selatan menekankan pentingnya tes urine berkala untuk mencegah keterlibatan anggota kepolisian dalam penyalahgunaan narkotika.
 
 
 
 Sekarang, mari kita lihat sisi positif dan negatif dari berita ini.
 
- Ya, positifnya adalah bahwa Polres HST telah mengambil langkah serius untuk mengatasi masalah penyalahgunaan narkoba di kalangan anggotanya.
+ Di satu sisi, saya sangat mengapresiasi keputusan Polres HST untuk melakukan tes urine secara berkala dan memberikan sanksi yang tegas kepada anggota yang terlibat narkoba.
 
- Pembinaan rohani seperti shalat lima waktu di mushala bisa menjadi cara untuk membantu mereka memulai kembali hidup dengan lebih baik.
+ Ini menunjukkan bahwa kepolisian serius dalam memerangi penyalahgunaan narkotika, bahkan di internal mereka sendiri.
 
- Namun, sisi negatifnya adalah bahwa kita masih melihat kasus-kasus seperti ini terjadi, yang menunjukkan bahwa masih banyak pekerjaan yang harus dilakukan untuk mencegah penyalahgunaan narkoba di kalangan aparat penegak hukum.
+ Namun, di sisi lain, saya tidak bisa tidak merasa sedih melihat bahwa masih ada anggota kepolisian yang terlibat dalam penyalahgunaan narkotika.
 
- Dan, jujur saja, sanksi shalat lima waktu di mushala terdengar seperti lelucon, apakah ini berarti bahwa narkoba bisa diatasi dengan hanya shalat? Atau apakah ini hanya cara untuk menyembunyikan masalah yang lebih besar? Yang jelas, kita harus terus memantau dan mendukung upaya pencegahan dan rehabilitasi penyalahgunaan narkoba di Indonesia.
+ Apa yang salah dengan sistem kita? Mengapa masih ada yang bisa terjebak dalam penyalahgunaan narkotika? Dan, pertanyaan yang paling penting, apakah shalat wajib lima waktu di mushala benar-benar bisa menyembuhkan kecanduan narkoba? Saya rasa ini perlu dicermati lebih lanjut, agar kita tidak hanya mengobati gejala, tetapi juga menyembuhkan penyakitnya.
