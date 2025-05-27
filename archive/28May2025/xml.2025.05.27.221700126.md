@@ -4,8 +4,6 @@ Sertifikasi halal di Indonesia dapat menjadi potensi yang harus dijadikan presta
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Menko Zulhas: Indonesia Bisa Menjadi Pemain Penting di Industri Halal  |
-| description | Sertifikasi halal di Indonesia dapat menjadi potensi yang harus dijadikan prestasi.  |
 | urlshort    | http://money.kompas.com/read/2025/05/27/221700126/menko-zulhas--indonesia-bisa-menjadi-pemain-pentin |
 | author      |  |
 | editor      | Erlangga Djumena |
@@ -29,24 +27,20 @@ Haikal pun mengimbau para pengusaha untuk tidak takut melaporkan kasus yang mere
 BPJPH siap menindak tegas oknum Lembaga Pemeriksa Halal (LPH) yang melakukan pungutan liar (pungli) dalam proses sertifikasi halal kepada para pengusaha, utamanya usaha kecil, mikro dan menengah (UMKM).
 
 ---
-Berikut adalah rangkuman singkat dari laporan berita tersebut: Menteri Koordinator Bidang Pangan Zulkifli Hasan menyatakan bahwa Indonesia memiliki peluang besar untuk menjadi pemain penting di industri halal dunia, terutama dengan sertifikasi halal yang dapat menjadi kunci utama dalam membangun ekosistem halal yang baik dan kompetitif.
+Berikut adalah ringkasan berita dalam satu paragraf: Menteri Koordinator Bidang Pangan, Zulkifli Hasan, menyatakan bahwa Indonesia memiliki peluang besar untuk menjadi pemain penting di industri halal dunia.
+
+ Ia menyebutkan bahwa sertifikasi halal sangat penting bagi perusahaan dan konsumen, serta merupakan kunci utama dalam membangun ekosistem halal yang baik dan kompetitif.
 
  Namun, proses pengurusan sertifikat halal di Indonesia masih rumit dan berbelit-belit, sehingga perlu disederhanakan dengan dukungan teknologi.
 
- Badan Penyelenggara Jaminan Produk Halal (BPJPH) juga menegaskan bahwa proses sertifikasi halal mudah, cepat, dan terjangkau, tetapi masih ada oknum yang melakukan pungutan liar.
+ Sementara itu, Kepala Badan Penyelenggara Jaminan Produk Halal (BPJPH) Haikal Hassan menegaskan bahwa proses sertifikasi halal mudah dan cepat, tetapi masih ada oknum yang melakukan pungutan liar.
 
 
 
-Sekarang, izinkan saya untuk memberikan komentar yang sedikit menyakitkan, tetapi perlu.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Ya, Indonesia memang memiliki potensi besar untuk menjadi pemain penting di industri halal, tapi sayangnya, kita masih terjebak dalam proses birokrasi yang rumit dan berbelit-belit.
+ Di satu sisi, kita harus berbangga karena Indonesia memiliki potensi besar untuk menjadi pemain penting di industri halal dunia - siapa tidak ingin menjadi yang terbaik, kan? Tapi, di sisi lain, proses pengurusan sertifikat halal yang rumit dan berbelit-belit membuat kita seperti berlari di tempat, tidak pernah maju.
 
- Ini seperti mencoba memasak nasi goreng dengan menggunakan tangan kiri, sementara tangan kanan masih memegang bahan-bahan.
+ Dan, tentu saja, masih ada oknum yang melakukan pungutan liar, yang membuat kita bertanya-tanya, apa lagi yang harus kita lakukan untuk membuat sistem ini transparan dan adil? Mungkin kita perlu membuat aplikasi "Tolak Pungli" atau "Sertifikat Halal Tanpa Ribet" untuk memudahkan prosesnya.
 
- Sungguh ironis, bukan? Di satu sisi, kita ingin meningkatkan industri halal, tetapi di sisi lain, kita masih membiarkan oknum-oknum nakal yang melakukan pungutan liar.
-
- Ini seperti mencoba menangkap ikan dengan tangan kosong, sementara ikan-ikan itu masih berenang di laut bebas.
-
- BPJPH harus lebih tegas dalam menindak oknum-oknum tersebut, sehingga proses sertifikasi halal dapat menjadi lebih transparan dan adil.
-
- Jika tidak, maka kita hanya akan menjadi penonton yang pasif, menyaksikan bagaimana industri halal kita dikuasai oleh negara-negara lain.
+ Seriously, kita harus segera memperbaiki sistem ini agar tidak membuat pengusaha dan konsumen kita frustrasi.
