@@ -4,8 +4,6 @@ Publik dihebohkan dengan kasus pernikahan anak di bawah umur di Lombok. Psikolog
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Pernikahan Anak di Lombok, Psikolog Ingatkan Perkembangan Otak Belum Sempurna |
-| description | Publik dihebohkan dengan kasus pernikahan anak di bawah umur di Lombok. Psikolog ingatkan, perkembangan otak anak belum sempurna. |
 | urlshort    | http://lifestyle.kompas.com/read/2025/05/27/230300620/pernikahan-anak-di-lombok-psikolog-ingatkan-pe |
 | author      | Lintang Pramatyanti |
 | editor      | Bestari Kumala Dewi |
@@ -53,18 +51,20 @@ Setidaknya, umur ideal untuk menikah adalah di atas 20 tahun atau ketika memasuk
 "Paling tidak sudah di atas umur 20 tahun," ujarnya
 
 ---
-Berikut adalah rangkuman singkat berita tersebut dalam bahasa Indonesia: Publik dihebohkan dengan kasus pernikahan anak di bawah umur di Lombok Tengah, Nusa Tenggara Barat, di mana mempelai wanita berusia 15 tahun dan mempelai pria berusia 16 tahun menikah secara adat dan kemudian melangsungkan tradisi *merariq* atau kawin lari, namun akhirnya dipisahkan karena masih di bawah umur.
+Berikut ringkasan berita dalam satu paragraf: Kasus pernikahan anak di bawah umur di Lombok Tengah, Nusa Tenggara Barat (NTB) telah memicu kehebohan di kalangan masyarakat.
 
- Menurut psikolog anak Gloria Siagian, anak yang menikah di bawah umur dianggap belum matang dan siap secara mental, sehingga pernikahan dini cenderung rentan terhadap konflik dan perceraian.
+ Pasangan yang menikah, YL (15 tahun) dan RN (16 tahun), telah melangsungkan pernikahan secara adat tiga minggu sebelum video mereka viral, tetapi kemudian dipisahkan oleh kepala dusun karena masih di bawah umur.
+
+ Namun, pasangan tersebut tidak menyerah dan tetap menikah kembali dengan tradisi merariq atau kawin lari, yang membuat orangtua YL memilih membiarkan anaknya tetap menikah sesuai dengan tradisi yang berlaku.
 
 
 
-Sekarang, mari kita bicara tentang sisi positif dan negatif dari berita ini.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Sisi positifnya adalah bahwa kita masih memiliki masyarakat yang menjunjung tinggi tradisi dan adat istiadat, seperti tradisi *merariq* atau kawin lari dalam budaya Sasak.
+ Di satu sisi, kita bisa melihat bahwa pasangan ini memiliki komitmen yang kuat untuk saling mencintai, meskipun mereka masih sangat muda.
 
- Namun, sisi negatifnya adalah bahwa kita masih memiliki masalah pernikahan anak di bawah umur yang belum siap secara mental dan umur, sehingga rentan terhadap konflik dan perceraian.
+ Namun, di sisi lain, kita tidak bisa menutup mata terhadap kenyataan bahwa pernikahan di bawah umur seperti ini dapat membawa konsekuensi yang serius, seperti KDRT dan perceraian.
 
- Ini adalah ironi, karena di satu sisi kita ingin melestarikan tradisi, tetapi di sisi lain kita juga ingin melindungi hak-hak anak dan mencegah pernikahan dini yang tidak sehat.
+ Psikolog anak Gloria Siagian M dengan tepat menyatakan bahwa anak-anak yang menikah di bawah umur belum matang dan siap secara mental, karena perkembangan otak mereka belum mencapai angka sempurna.
 
- Mungkin kita harus mulai mempertanyakan tradisi mana yang masih relevan dan mana yang sudah saatnya ditinggalkan, karena seperti yang dikatakan psikolog anak Gloria Siagian, "umur ideal untuk menikah adalah di atas 20 tahun atau ketika memasuki usia dewasa muda", bukan 15 atau 16 tahun!
+ Jadi, mari kita jangan terlalu terburu-buru untuk menikahkan anak-anak kita sebelum mereka benar-benar siap, agar kita tidak harus menangis di kemudian hari karena telah membiarkan mereka terjebak dalam pernikahan yang tidak siap.
