@@ -4,6 +4,8 @@ Presiden Prancis Emmanuel Macron tiba di Indonesia untuk kunjungan kenegaraan. M
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
+| title       | Tiba di Indonesia, Presiden Macron: Saya Senang, Negara Kalian Indah |
+| description | Presiden Prancis Emmanuel Macron tiba di Indonesia untuk kunjungan kenegaraan. Macron mengaku senang tiba di Indonesia.  |
 | urlshort    | http://kmp.im/AGHpG8 |
 | author      | Fika Nurul Ulya |
 | editor      | Robertus Belarminus |
@@ -39,26 +41,22 @@ Prancis, sebagai salah satu dari lima anggota tetap Dewan Keamanan Perserikatan 
 Kunjungan Macron ke Indonesia mencerminkan komitmen kedua negara untuk meningkatkan kerja sama konkret dalam menghadapi tantangan global.
 
 ---
-Berikut adalah rangkuman singkat berita tersebut dalam satu paragraf: Presiden Prancis Emmanuel Macron tiba di Indonesia pada Selasa malam untuk melakukan kunjungan kenegaraan.
+Berikut adalah ringkasan berita dalam satu paragraf: Presiden Prancis Emmanuel Macron tiba di Indonesia pada Selasa malam dalam rangka kunjungan kenegaraan.
 
- Macron menyatakan senang berada di Indonesia dan menantikan pertemuan dengan Presiden Prabowo Subianto.
+ Ia menyatakan kegembiraannya berada di Indonesia dan telah menantikan pertemuan dengan Presiden Prabowo Subianto.
 
- Ia juga mengenang pertemuannya dengan Presiden Joko Widodo dua tahun lalu di Bali.
+ Macron juga mengenang pertemuannya dengan Presiden Joko Widodo dua tahun lalu dan menyebutkan bahwa hubungan antara Prancis dan Indonesia sangat strategis dan bersahabat.
 
- Selama kunjungannya, Macron akan mengunjungi Akademi Militer Magelang dan Candi Borobudur.
-
- Pemerintah Indonesia telah melakukan persiapan untuk menyambut kedatangan Macron, termasuk memasang stairlift di undakan Candi Borobudur.
+ Selama di Indonesia, Macron akan mengunjungi Akademi Militer Magelang dan Candi Borobudur, serta melakukan pertemuan dengan Presiden Prabowo Subianto untuk membahas kerja sama bilateral.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Kunjungan Macron ke Indonesia dapat membawa kerja sama yang lebih erat antara kedua negara, terutama dalam menghadapi tantangan global.
+ Sisi positifnya, kunjungan Macron ke Indonesia menunjukkan bahwa kita masih memiliki teman di luar negeri yang mau berkunjung ke negara kita, meskipun kita belum sepenuhnya berhasil menghilangkan kemacetan di Jakarta.
 
- Namun, jangan lupa bahwa Prancis juga memiliki reputasi sebagai penjaga kolonialisme yang masih ingin mempertahankan pengaruhnya di negara-negara bekas jajahannya.
+ Namun, sisi negatifnya, pemerintah kita terpaksa memasang *stairlift* di Candi Borobudur hanya untuk menyenangkan Macron, padahal kita tahu bahwa sebenarnya yang dibutuhkan adalah perbaikan infrastruktur yang lebih substansial.
 
- Jadi, kita harus tetap waspada dan tidak terlalu terpesona oleh senyum manis Macron.
+ Tapi, hey, setidaknya kita bisa mengatakan bahwa kita telah berhasil membuat Macron merasa seperti di rumah sendiri, dengan segala kemewahan dan kenyamanan yang kita tawarkan.
 
- Di sisi lain, pemasangan stairlift di Candi Borobudur dapat dianggap sebagai langkah yang baik untuk meningkatkan aksesibilitas, tetapi juga dapat diartikan sebagai usaha untuk membuat turis mancanegara merasa lebih nyaman dan tidak terlalu "terjajah" oleh tangga yang curam.
-
- Apapun itu, kita harus tetap kritis dan tidak terlalu mudah terpengaruh oleh kunjungan presiden asing, karena yang terpenting adalah kepentingan dan kedaulatan negara kita sendiri.
+ Dan, tentu saja, kita tidak bisa melupakan kesempatan untuk berfoto dengan Macron di depan Candi Borobudur, karena itu akan menjadi profil Instagram yang sangat keren dan membuat kita terlihat sangat diplomatis.
