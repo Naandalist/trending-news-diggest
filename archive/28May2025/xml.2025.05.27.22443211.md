@@ -1,3 +1,7 @@
+# Presiden Prancis Emmanuel Macron Tiba di Indonesia, Bakal Bertemu Prabowo Besok
+
+Presiden Prancis, Emmanuel Macron, tiba di Jakarta untuk kunjungan kenegaraan selama tiga hari. Simak detailnya!
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
 | title       | Presiden Prancis Emmanuel Macron Tiba di Indonesia, Bakal Bertemu Prabowo Besok |
@@ -43,6 +47,20 @@ Sebagai salah satu dari lima anggota tetap Dewan Keamanan Perserikatan Bangsa-Ba
 Kunjungan Macron ke Indonesia mencerminkan komitmen kedua negara untuk meningkatkan kerja sama konkret dalam menghadapi tantangan global.
 
 ---
-Berikut adalah ringkasan singkat dari laporan berita: Presiden Prancis, Emmanuel Macron, tiba di Indonesia pada malam Selasa (27/5/2025) dalam kunjungan kenegaraan selama tiga hari. Ia disambut oleh Menteri Luar Negeri Sugiono, Menteri Pertahanan Sjafrie Sjamsoeddin, dan Wakil Gubernur DKI Jakarta Rano Karno di Pangkalan Angkatan Udara Halim Perdanakusuma. Kunjungan Macron ke Indonesia diharapkan akan memperdalam hubungan diplomatik antara kedua negara dan menghasilkan capaian konkret dalam berbagai isu global dan kawasan.
+Berikut adalah rangkuman berita dalam satu paragraf: Presiden Prancis, Emmanuel Macron, tiba di Indonesia pada Selasa malam (27/5/2025) untuk melakukan kunjungan kenegaraan selama tiga hari.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang pedih. Sisi positifnya, kunjungan Macron ke Indonesia menunjukkan komitmen kedua negara untuk meningkatkan kerja sama dalam menghadapi tantangan global. Namun, sisi negatifnya, kita harus bertanya-tanya apakah kita telah mempersiapkan diri untuk menghadapi "penjajahan" baru dari Prancis, dengan membuka diri untuk investasi dan kerja sama yang lebih besar. Jangan khawatir, kita masih memiliki waktu untuk mempersiapkan diri sebelum Macron meminta kita untuk meminum kopi dan makan croissant setiap hari. Tapi serius, kunjungan ini memiliki potensi besar untuk meningkatkan hubungan diplomatik dan ekonomi antara kedua negara, dan kita harus memanfaatkan kesempatan ini sebaik mungkin.
+ Ia disambut oleh Menteri Luar Negeri Sugiono, Menteri Pertahanan Sjafrie Sjamsoeddin, dan Wakil Gubernur DKI Jakarta Rano Karno di Lanud Halim Perdanakusuma, Jakarta Timur.
+
+ Macron akan mengunjungi Akademi Militer Magelang dan Candi Borobudur, serta melakukan pertemuan bilateral dengan pemerintah Indonesia untuk memperdalam hubungan diplomatik kedua negara.
+
+ Pemerintah Indonesia menyambut baik kunjungan Macron dan berharap akan menghasilkan capaian konkret dalam kerja sama bilateral.
+
+
+
+Sekarang, mari kita lihat sisi positif dan negatif dari kunjungan Macron.
+
+ Di sisi positif, kunjungan ini menunjukkan komitmen Indonesia dan Prancis untuk memperdalam hubungan diplomatik dan kerja sama bilateral.
+
+ Namun, di sisi negatif, kita harus bertanya-tanya apakah kunjungan ini hanya sebuah pertunjukan diplomatik ataukah akan menghasilkan sesuatu yang konkret.
+
+ Saya tidak bisa tidak memikirkan tentang "stairlift" yang dipasang di Candi Borobudur, apakah itu sebuah simbol bahwa kita lebih peduli dengan kesan daripada substansi? Atau mungkin itu hanya sebuah tanda bahwa kita telah menjadi terlalu tua dan tidak bisa lagi menaiki tangga? Ah, saya berharap kunjungan Macron ini akan membawa sesuatu yang lebih berarti daripada hanya sebuah pertunjukan diplomatik.
