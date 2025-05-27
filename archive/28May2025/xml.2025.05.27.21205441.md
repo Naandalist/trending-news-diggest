@@ -1,7 +1,9 @@
+# Hilal Idul Adha Cuma Terlihat di Aceh, Menag: Jangan Lagi Beda Pendapat, Ini “Last Minute”
+
+Menag Nasaruddin Umar tegaskan pentingnya kesepakatan hilal Idul Adha 2025 tanpa perdebatan.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Hilal Idul Adha Cuma Terlihat di Aceh, Menag: Jangan Lagi Beda Pendapat, Ini “Last Minute” |
-| description | Menag Nasaruddin Umar tegaskan pentingnya kesepakatan hilal Idul Adha 2025 tanpa perdebatan. |
 | urlshort    | http://kmp.im/AGHpF6 |
 | author      | Firda Janati |
 | editor      | Robertus Belarminus |
@@ -31,6 +33,18 @@ Keputusan pemerintah ini sama dengan ormas Islam Muhammadiyah yang sebelumnya me
 Muhammadiyah sendiri menggunakan metode perhitungan hisab hakiki wujudul hilal yang menetapkan pergantian bulan hijriah.
 
 ---
-Berikut adalah ringkasan singkat dari laporan berita: Menteri Agama RI, Nasaruddin Umar, meminta agar tidak ada perdebatan terkait hilal Hari Raya Idul Adha 1446 Hijriah yang hanya terlihat di Aceh. Menurutnya, proses penetapan awal Dzulhijah 1446 Hijriah awalnya berlangsung alot karena hilal tidak terlihat, namun seorang perukyat hilal di Aceh melaporkan telah melihat hilal dan telah disumpah. Nasaruddin juga menjelaskan bahwa beberapa hal menguatkan pendapat rukyat hilal tersebut, seperti ijtimak di seluruh Indonesia, ketinggian hilal di Aceh yang sudah melewati standar MABIMS, dan sudut elongasi yang sudah melewati standar MABIMS.
+Berikut adalah ringkasan singkat dari berita tersebut: Menteri Agama RI, Nasaruddin Umar, meminta agar tidak ada perdebatan terkait hilal Hari Raya Idul Adha 1446 Hijriah yang hanya terlihat di Aceh.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan. Jadi, kita memiliki Menteri Agama yang meminta agar tidak ada perdebatan, padahal perdebatan itu sudah menjadi tradisi kita sebagai bangsa yang suka berdiskusi. Tapi, kita harus mengakui bahwa keputusan pemerintah ini sama dengan ormas Islam Muhammadiyah, jadi kita bisa mengatakan bahwa ada kesepakatan di antara mereka. Namun, pertanyaan yang masih mengganjal adalah, bagaimana jika hanya satu orang yang melihat hilal? Apakah itu sudah cukup untuk menentukan hari raya Idul Adha? Mungkin kita bisa membuat lelucon bahwa kita memiliki "hilal detector" yang sangat akurat, yaitu mata seorang perukyat hilal di Aceh. Tapi, seriusnya, kita harus menghargai proses penetapan hari raya Idul Adha ini dan tidak membuat perdebatan yang tidak perlu. Jadi, mari kita sepakat untuk tidak sepakat dan hanya menikmati hari raya Idul Adha dengan damai!
+ Menurutnya, proses penetapan awal Dzulhijah 1446 Hijriah awalnya berlangsung alot, namun seorang perukyat hilal di Aceh melaporkan telah melihat hilal dan telah disumpah, sehingga keputusan pemerintah jatuh pada 28 Mei 2025 untuk tanggal 1 Dzulhijah 1446 Hijriah dan Hari Raya Idul Adha jatuh pada Jumat (6/6/2025).
+
+
+
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+
+ Sisi positifnya, kita memiliki keputusan yang jelas tentang tanggal Hari Raya Idul Adha, sehingga kita dapat mempersiapkan diri dengan baik.
+
+ Namun, sisi negatifnya, kita masih menggunakan metode rukyat hilal yang bisa dibilang "kurang ilmiah" karena hanya satu orang yang melihat hilal di Aceh.
+
+ Ini seperti kita memutuskan bahwa matahari terbit dari barat hanya karena satu orang melihatnya, padahal kita tahu bahwa itu tidak benar.
+
+ Tapi, hei, setidaknya kita memiliki kesempatan untuk berdebat tentang hal ini, kan? Dan itu adalah salah satu hal yang paling menyenangkan tentang menjadi orang Indonesia - kita selalu memiliki topik untuk diperdebatkan!
