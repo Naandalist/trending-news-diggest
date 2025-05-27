@@ -1,7 +1,9 @@
+# Resep Opor Ayam Suwir, Hidangan Istimewa untuk Idul Adha
+
+Opor ayam suwir dapat disajikan sebagai menu istimewa saat Hari Raya Idul Adha di rumah. Hidangan ini sedap disantap bersama nasi ataupun lontong.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Resep Opor Ayam Suwir, Hidangan Istimewa untuk Idul Adha |
-| description | Opor ayam suwir dapat disajikan sebagai menu istimewa saat Hari Raya Idul Adha di rumah. Hidangan ini sedap disantap bersama nasi ataupun lontong. |
 | urlshort    | http://kmp.im/AGHpF8 |
 | author      | Suci Wulandari Putri Chaniago |
 | editor      | Ni Nyoman Wira Widyanti |
@@ -36,6 +38,22 @@ Opor ayam bisa disantap saat Idul Adha bersama potongan lontong ataupun ketupat.
 \[embed.1\]
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pada hari raya Idul Adha, kita bisa menyajikan opor ayam suwir sebagai hidangan istimewa setelah menunaikan ibadah shalat. Cara membuat opor ayam suwir mirip dengan membuat opor ayam biasa, tetapi dengan tambahan langkah menyuwir daging ayam sebelum disajikan. Resep opor ayam suwir ini bisa disajikan dengan potongan lontong atau ketupat, dan bisa menjadi ide olahan daging kurban yang lezat.
+Berikut adalah ringkasan berita dalam satu paragraf: KOMPAS.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan. Sisi positifnya, opor ayam suwir bisa menjadi hidangan yang lezat dan istimewa pada hari raya Idul Adha, serta bisa menjadi ide olahan daging kurban yang kreatif. Namun, sisi negatifnya, kita harus siap untuk menghadapi kenaikan berat badan setelah menyantap hidangan ini, karena opor ayam suwir tentu saja tidak bisa mengalahkan godaan rasa lapar kita. Jadi, siap-siap saja untuk melakukan diet setelah Idul Adha, atau kita bisa saja bilang bahwa "ini adalah bagian dari ibadah" untuk bisa menikmati hidangan ini dengan tenang.
+com membagikan resep opor ayam suwir yang dapat menjadi ide hidangan istimewa untuk disajikan usai menunaikan ibadah shalat Idul Adha pagi hari.
+
+ Cara membuat opor ayam suwir serupa dengan membuat opor ayam biasa, namun dengan cara menyuwir daging ayam terlebih dahulu sebelum disajikan.
+
+ Resep ini dapat disantap bersama potongan lontong ataupun ketupat, dan dapat ditemukan dalam buku "500 Resep Masakan Terfavorit" karya Sisca Soewitomo.
+
+
+
+Sekarang, saya akan memberikan komentar yang tajam dan bernuansa satire.
+
+ Opor ayam suwir, hidangan yang sangat istimewa untuk disajikan di hari raya Idul Adha.
+
+ Tapi, apakah kita harus menunggu hari raya untuk menyajikan hidangan yang lezat ini? Atau apakah kita hanya ingin mencari alasan untuk menyajikan makanan yang enak dan tidak terlalu ribet? Saya rasa, opor ayam suwir ini dapat menjadi hidangan yang lezat kapan saja, tidak harus menunggu hari raya.
+
+ Namun, jika kita ingin membuatnya lebih istimewa, kita dapat menambahkan beberapa bahan tambahan seperti lontong atau ketupat, dan juga dapat membuatnya dengan cara yang lebih kreatif.
+
+ Jadi, mari kita tidak menunggu hari raya untuk menyajikan opor ayam suwir yang lezat ini, tapi membuatnya menjadi hidangan yang istimewa kapan saja kita ingin!
