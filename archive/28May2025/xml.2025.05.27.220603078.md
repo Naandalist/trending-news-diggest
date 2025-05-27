@@ -4,8 +4,6 @@ Jaksa John Wesli Sinaga berangsur pulih setelah dibacok oleh ormas. Tiga pelaku 
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Kondisi Jaksa yang Dibacok di Deli Serdang Mulai Membaik |
-| description | Jaksa John Wesli Sinaga berangsur pulih setelah dibacok oleh ormas. Tiga pelaku sudah ditangkap. Simak selengkapnya! |
 | urlshort    | http://kmp.im/AGHpGC |
 | author      | Goklas Wisely  |
 | editor      | Farid Assifa |
@@ -41,22 +39,20 @@ Mardiansyah berperan sebagai pengendara motor yang membonceng Surya ke lokasi, s
 \"(Alpa) Ini otak pelaku, jabatannya Wakil Koti (Komando Inti Mahatidana) Pemuda Pancasila (PP) Deli Serdang,\" kata Direktur Kriminal Umum Polda Sumut, Brigjen Sumaryono.
 
 ---
-Berikut adalah rangkuman berita dalam satu paragraf: Kepala Kejaksaan Negeri Sumatera Utara, Idianto, mengumumkan bahwa kondisi Jaksa John Wesli Sinaga yang dibacok oleh anggota ormas Pemuda Pancasila telah membaik.
+Berikut adalah ringkasan berita dalam satu paragraf: Kepala Kejaksaan Negeri Sumatera Utara, Idianto, mengungkapkan bahwa kondisi Jaksa John Wesli Sinaga yang dibacok oleh anggota ormas Pemuda Pancasila telah berangsur pulih.
 
- Menurut Idianto, hasil pengobatan dari Rumah Sakit Columbia menunjukkan bahwa John telah berangsur pulih, meskipun sebelumnya urat-urat di lengan kiri John sempat putus akibat serangan tersebut.
+ Menurut Idianto, hasil pengobatan dari Rumah Sakit Columbia menunjukkan bahwa Jaksa John telah pulih dan bisa bergerak kembali setelah sebelumnya mengalami cedera parah di lengan kirinya.
 
- Peristiwa pembacokan terjadi pada Sabtu (24/5/2025) di Ladang Sawit, Desa Perbaingan, Kecamatan Kotarih, Kabupaten Serdang Bedagai, dan tiga pelaku telah ditangkap oleh Polda Sumut, termasuk Mardiansyah, Surya Darma, dan Alpa yang diduga sebagai otak pembacokan.
+ Peristiwa pembacokan terjadi pada Sabtu lalu di Ladang Sawit, Desa Perbaingan, Kecamatan Kotarih, Kabupaten Serdang Bedagai, dan Polda Sumut telah menangkap tiga pelaku yang terlibat, termasuk Mardiansyah, Surya Darma, dan Alpa yang diduga sebagai otak pembacokan.
 
 
 
-Sekarang, mari kita lihat sisi lain dari berita ini.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini.
 
- Di satu sisi, kita patut bersyukur bahwa Jaksa John telah pulih dan dapat kembali bergerak.
+ Di satu sisi, kita harus bersyukur bahwa Jaksa John telah pulih dan bisa bergerak kembali, itu adalah berita baik yang patut disambut dengan gembira.
 
- Namun, di sisi lain, peristiwa pembacokan ini menunjukkan bahwa kekerasan masih menjadi masalah serius di Indonesia.
+ Tapi, di sisi lain, kita harus bertanya-tanya apa yang salah dengan sistem keamanan kita jika seorang jaksa bisa dibacok denganEase di ladang sawit.
 
- Dan, tentu saja, kita tidak bisa melupakan peran ormas Pemuda Pancasila dalam peristiwa ini - tidak heran jika mereka dikenal sebagai "pemuda" yang suka menggunakan "pancing" berupa parang.
+ Apakah ini pertanda bahwa kita sudah kehilangan kendali atas keamanan di negara ini? Dan, apa yang terjadi dengan ormas Pemuda Pancasila yang semestinya menjaga keamanan dan ketertiban, bukan malah melakukan tindakan kekerasan? Ini adalah ironi yang sangat menyakitkan, bahwa kita harus mempertanyakan apa yang terjadi dengan negara ini jika seorang jaksa bisa dibacok dan pelakunya adalah anggota ormas yang seharusnya menjaga keamanan.
 
- Saya hanya berharap bahwa para pelaku akan mendapatkan hukuman yang setimpal dengan tindakan mereka, dan bahwa kita semua dapat belajar dari peristiwa ini untuk mencegah kekerasan serupa di masa depan.
-
- Tapi, sepertinya, kita masih harus menunggu lama untuk melihat perubahan nyata di Indonesia - sambil menikmati tayangan "pancing" berupa parang, tentu saja.
+ Mari kita harapkan bahwa kasus ini menjadi pelajaran bagi kita semua untuk meningkatkan kesadaran dan kewaspadaan terhadap kekerasan dan penindakan hukum yang tidak berfungsi dengan baik.
