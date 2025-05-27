@@ -1,3 +1,7 @@
+# Promotor Beri Bocoran Setlist yang Bakal Dibawakan Foo Fighters Saat Konser di Indonesia
+
+Harga tiket konser Foo Fighters: Live in Jakarta dibanderol mulai dari Rp 1,7 juta hingga Rp 2,8 juta.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
 | title       | Promotor Beri Bocoran Setlist yang Bakal Dibawakan Foo Fighters Saat Konser di Indonesia |
@@ -29,6 +33,20 @@ Terdapat lima kategori tiket untuk konser Foo Fighters.
 Kedatangan Foo Fighters ke Jakarta menjadi momen yang sangat dinanti, karena ini merupakan penampilan perdana mereka di Indonesia sejak tahun 1996.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Foo Fighters akan menggelar konser di Carnaval Ancol, Jakarta Utara, pada 2 Oktober 2025, dan CEO Ravel Entertainment, Ravel Junardy, memberi sedikit bocoran tentang setlist lagu yang akan dibawakan, yaitu lagu-lagu terbaik dari awal hingga sekarang, tetapi tidak mau membocorkan lebih detail untuk menjaga kejutan bagi para penggemar. Tiket konser sudah dijual sejak 26 Mei 2025 dengan harga mulai dari Rp 1,7 juta hingga Rp 2,8 juta, dan ini akan menjadi penampilan perdana Foo Fighters di Indonesia sejak tahun 1996.
+Berikut adalah rangkuman singkat dari laporan berita: Foo Fighters akan mengadakan konser di Carnaval Ancol, Jakarta Utara, pada 2 Oktober 2025, dan CEO Ravel Entertainment, Ravel Junardy, memberikan sedikit bocoran tentang setlist lagu mereka, yang akan mencakup lagu-lagu hits dari album awal hingga sekarang, namun detailnya masih dirahasiakan untuk menjaga kejutan bagi penggemar, sementara tiket konser sudah mulai dijual dengan harga mulai dari Rp 1,7 juta hingga Rp 2,8 juta.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan. Sisi positifnya, Foo Fighters akhirnya akan menggelar konser di Indonesia setelah 29 tahun, itu seperti menunggu hujan di musim kemarau, sangat lama! Dan, mereka akan membawakan lagu-lagu terbaik mereka, jadi para penggemar pasti akan puas. Tapi, sisi negatifnya, harga tiket yang dibanderol mulai dari Rp 1,7 juta hingga Rp 2,8 juta, itu seperti harga sebuah sepeda motor bekas, sangat mahal! Apalagi, untuk para penggemar yang berpenghasilan pas-pasan, mereka harus menyimpan uang selama beberapa bulan untuk bisa menonton konser ini. Tapi, hey, jika Anda ingin melihat Dave Grohl dan kawan-kawan, siap-siap untuk mengeluarkan kocek yang dalam, karena ini adalah kesempatan langka untuk melihat mereka secara live!
+
+
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
+
+ Ya, kabar baiknya adalah Foo Fighters akhirnya akan menginjakkan kaki di Indonesia setelah 29 tahun, dan fans bisa menikmati lagu-lagu hits mereka secara langsung, meskipun harus merogoh kocek yang cukup dalam untuk membeli tiket.
+
+ Sisi negatifnya adalah, tentu saja, harga tiket yang cukup mahal, yang mungkin membuat sebagian fans harus memilih antara menonton konser atau membayar uang kuliah semester depan.
+
+ Tapi, hey, setidaknya kita bisa menghibur diri dengan mengatakan bahwa Foo Fighters sudah menunggu kita selama 29 tahun, jadi sepertinya mereka benar-benar ingin membuat kita bahagia.
+
+.
+
+.
+
+ atau mungkin hanya ingin membuat kita bangkrut.
