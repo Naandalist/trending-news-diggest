@@ -1,3 +1,7 @@
+# Depok Tak Lagi Kota Paling Intoleran, Naik Peringkat Versi Setara Institute
+
+Depok tak lagi jadi kota paling intoleran. Dalam IKT 2025, peringkatnya melonjak ke 78, jauh dari posisi 94 pada 2023 setelah 3 tahun di posisi bawah
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
 | title       | Depok Tak Lagi Kota Paling Intoleran, Naik Peringkat Versi Setara Institute |
@@ -40,6 +44,24 @@ Dalam penilaiannya, Setara Institute menggunakan empat variabel utama yang terdi
 Setiap variabel diukur untuk menilai sejauh mana suatu kota mampu menciptakan ruang hidup yang aman, adil, dan inklusif bagi seluruh warganya, tanpa diskriminasi berdasarkan agama, keyakinan, atau identitas lainnya.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Kota Depok telah mengalami perubahan signifikan dalam hal toleransi, karena telah melompat dari peringkat 94 pada tahun 2023 menjadi peringkat 78 pada tahun 2025, menurut laporan Indeks Kota Toleran (IKT) yang dirilis Setara Institute. Ini merupakan salah satu peningkatan peringkat paling menonjol di antara 94 kota yang dinilai. Depok yang sebelumnya dikenal sebagai kota paling intoleran selama tiga tahun berturut-turut, telah menunjukkan perbaikan awal dan komitmen pemangku kebijakan untuk membangun ekosistem yang lebih toleran.
+Berikut adalah ringkasan berita dalam satu paragraf: Kota Depok telah mengalami lompatan signifikan dalam Indeks Kota Toleran (IKT) 2025, naik ke peringkat 78 dari sebelumnya berada di posisi 94 pada tahun 2023.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu satir. Sisi positifnya,tentu saja, adalah bahwa Depok telah mengalami perubahan yang signifikan dalam hal toleransi, yang berarti bahwa warga Depok dapat menikmati hidup yang lebih aman, adil, dan inklusif. Ini juga menunjukkan bahwa komitmen pemangku kebijakan untuk membangun ekosistem yang lebih toleran telah membuahkan hasil. Namun, sisi negatifnya adalah bahwa masih ada 77 kota lain yang lebih toleran daripada Depok, jadi masih banyak pekerjaan rumah yang harus dilakukan. Dan, dengan sedikit satire, kita bisa mengatakan bahwa Depok telah berhasil "mengalahkan" predikat sebagai kota paling intoleran, tapi masih belum menjadi kota paling toleran, jadi masih ada peluang untuk terus meningkatkan. Dengan demikian, kita dapat mengharapkan bahwa Depok akan terus berusaha untuk menjadi kota yang lebih baik dan lebih toleran bagi semua warganya.
+ Ini menandakan perbaikan yang menyolok di antara 94 kota yang dinilai.
+
+ Depok yang dulu pernah dinobatkan sebagai kota paling intoleran selama tiga tahun berturut-turut, kini menunjukkan kemajuan berkat komitmen pemangku kebijakan untuk membangun ekosistem yang lebih toleran.
+
+ Menurut laporan Setara Institute, kenaikan pesat Depok tak lepas dari perubahan positif dalam komitmen pemerintah daerah, minimnya kebijakan diskriminatif, serta meningkatnya partisipasi masyarakat sipil.
+
+
+
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit bumbu satir yang menyakitkan.
+
+ Ya, Depok akhirnya tidak lagi menjadi kota paling intoleran di Indonesia, dan ini adalah kabar baik! Tapi, jangan terlalu bersemangat, kita masih memiliki 77 kota lain yang lebih toleran daripada Depok.
+
+ Sisi positifnya, ini menunjukkan bahwa upaya untuk membangun ekosistem yang lebih toleran membuahkan hasil, dan kita harus mengapresiasi komitmen pemangku kebijakan di Depok.
+
+ Namun, sisi negatifnya, masih banyak pekerjaan yang harus dilakukan untuk menciptakan ruang hidup yang aman, adil, dan inklusif bagi seluruh warga.
+
+ Dan, mari kita jangan lupa, bahwa masih ada kota-kota lain yang belum menunjukkan perbaikan signifikan, jadi kita masih memiliki banyak PR untuk meningkatkan toleransi di Indonesia.
+
+ Jadi, mari kita terus berjuang untuk menciptakan masyarakat yang lebih toleran dan inklusif, dan tidak hanya berhenti pada peringkat IKT!
