@@ -1,7 +1,9 @@
+# Presiden Prabowo Kurban 25 Ekor Sapi di 24 Kabupaten/Kota di Sulsel, Terberat 1.244 Kg
+
+Presiden Prabowo Subianto sediakan 25 ekor sapi untuk kurban Idul Adha di Sulawesi Selatan, siap disembelih pada 6 Juni 2025.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Presiden Prabowo Kurban 25 Ekor Sapi di 24 Kabupaten/Kota di Sulsel, Terberat 1.244 Kg |
-| description | Presiden Prabowo Subianto sediakan 25 ekor sapi untuk kurban Idul Adha di Sulawesi Selatan, siap disembelih pada 6 Juni 2025. |
 | urlshort    | http://kmp.im/AGHpF7 |
 | author      | Hendra Cipto |
 | editor      | Sari Hardiyanto |
@@ -41,6 +43,22 @@ Penyembelihan sapi di daerah akan dikoordinasikan oleh Kementerian Pertanian ter
 \"Penyembelihan diserahkan ke daerah masing-masing untuk memilih lokasi mana akan dilakukan penyembelihan. Kemudian diusulkan ke Sekretariat Presiden untuk mendapatkan persetujuan,\" tutup Sultan.
 
 ---
-Berikut adalah ringkasan singkat berita tersebut dalam satu paragraf: Presiden Prabowo Subianto akan mengalokasikan 25 ekor sapi untuk disembelih pada hari raya Idul Adha 1446 H/2025, yang akan didistribusikan ke 24 kabupaten dan kota di Sulawesi Selatan. Sapi-sapi tersebut telah siap untuk dikurbankan pada 6 Juni 2025 dan telah dipilih berdasarkan kriteria tertentu, termasuk jenis dan bobot. Penyediaan sapi kurban ini dilakukan oleh tim yang terdiri dari teknis dari provinsi dan kabupaten, serta tim dari Presiden Prabowo. Setiap daerah telah mendapatkan jatah bantuan kurban masing-masing dan penyembelihan sapi akan dikoordinasikan oleh Kementerian Pertanian dan Kementerian Agama.
+Berikut adalah rangkuman berita dalam satu paragraf: Presiden Prabowo Subianto akan mengalokasikan 25 ekor sapi untuk disembelih pada hari raya Idul Adha 1446 H/2025 di Sulawesi Selatan.
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan. Sisi positifnya adalah bahwa Presiden Prabowo secara pribadi terlibat dalam penyediaan sapi kurban untuk Idul Adha, menunjukkan bahwa beliau peduli dengan kebutuhan masyarakat. Namun, sisi negatifnya adalah bahwa 25 ekor sapi mungkin tidak cukup untuk memenuhi kebutuhan seluruh masyarakat Sulawesi Selatan, dan kita harus bertanya-tanya apakah ini hanya sebuah gestur politik ataukah tindakan yang sungguh-sungguh untuk membantu masyarakat. Dan, tentu saja, kita tidak bisa melupakan fakta bahwa sapi-sapi tersebut harus disembelih, yang merupakan tindakan yang tragis bagi mereka yang mengasihi hewan. Jadi, mari kita berdoa untuk sapi-sapi tersebut dan berharap bahwa mereka akan menjadi korban yang berarti untuk masyarakat Sulawesi Selatan.
+ Sapi-sapi ini akan didistribusikan ke 24 kabupaten dan kota di provinsi tersebut, dengan satu ekor untuk pemerintah provinsi dan satu ekor untuk tiap-tiap pemerintah kabupaten dan kota.
+
+ Sapi-sapi tersebut telah siap untuk dikurbankan pada 6 Juni 2025 dan memiliki bobot yang bervariasi, dengan bobot terberat mencapai 1,2 ton.
+
+ Penyediaan sapi kurban ini merupakan bagian dari program pemerintah untuk memfasilitasi masyarakat dalam melaksanakan ibadah kurban.
+
+
+
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+
+ Sisi positifnya adalah bahwa pemerintah telah berusaha untuk memfasilitasi masyarakat dalam melaksanakan ibadah kurban, yang merupakan bagian penting dari tradisi Islam.
+
+ Namun, sisi negatifnya adalah bahwa 25 ekor sapi mungkin tidak cukup untuk memenuhi kebutuhan seluruh masyarakat di Sulawesi Selatan, dan biaya penyediaan sapi kurban ini mungkin akan menjadi beban bagi kas negara.
+
+ Dan, tentu saja, kita tidak bisa lupa tentang sapi-sapi yang malang itu, yang akan dikurbankan demi tradisi dan kepentingan manusia.
+
+ Mungkin kita bisa mengatakan bahwa ini adalah contoh "kebijakan sapi" yang efektif, tetapi tidak terlalu efektif dalam memenuhi kebutuhan masyarakat yang lebih luas.
