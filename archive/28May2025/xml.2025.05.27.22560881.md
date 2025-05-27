@@ -4,8 +4,6 @@ Kehadiran Macron disambut langsung oleh jajaran pejabat tinggi Indonesia, termas
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Menlu dan Menhan Sambut Presiden Macron di Bandara Halim |
-| description | Kehadiran Macron disambut langsung oleh jajaran pejabat tinggi Indonesia, termasuk Menteri Luar Negeri Sugiono dan Menhan Sjafrie Sjamsoeddin. |
 | urlshort    | http://kmp.im/AGHpG6 |
 | author      | Fika Nurul Ulya |
 | editor      | Robertus Belarminus |
@@ -45,22 +43,20 @@ Sebagai salah satu dari lima anggota tetap Dewan Keamanan Perserikatan Bangsa-Ba
 Kunjungan Macron ke Indonesia mencerminkan komitmen kedua negara untuk meningkatkan kerja sama konkret dalam menghadapi tantangan global.
 
 ---
-Berikut adalah rangkuman singkat dari laporan berita tersebut: Presiden Prancis Emmanuel Macron tiba di Indonesia dalam rangka kunjungan kenegaraan selama tiga hari, disambut oleh pejabat tinggi Indonesia termasuk Menteri Luar Negeri dan Menteri Pertahanan di Pangkalan Udara Halim Perdanakusuma, Jakarta Timur.
+Berikutlah ringkasan berita tersebut dalam satu paragraf: Presiden Prancis Emmanuel Macron telah tiba di Indonesia dalam rangka kunjungan kenegaraan selama tiga hari, disambut langsung oleh jajaran pejabat tinggi Indonesia termasuk Menteri Luar Negeri Sugiono dan Menteri Pertahanan Sjafrie Sjamsoeddin di Pangkalan Udara Halim Perdanakusuma, Jakarta Timur.
 
- Macron dan istrinya, Brigitte Macron, menerima upacara penyambutan yang khidmat dan akan mengunjungi beberapa tempat di Indonesia, termasuk Akademi Militer Magelang dan Candi Borobudur.
+ Macron dan istrinya, Brigitte Macron, diterima dengan upacara penyambutan yang khidmat dan akan mengunjungi beberapa lokasi seperti Akademi Militer Magelang dan Candi Borobudur.
 
- Kunjungan ini diharapkan akan memperdalam hubungan diplomatik antara Indonesia dan Prancis yang telah terjalin selama lebih dari 70 tahun.
+ Kunjungan ini diharapkan dapat memperdalam hubungan diplomatik kedua negara yang telah terjalin selama lebih dari 70 tahun.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satir yang menyakitkan.
 
- Ya, kita harus bersyukur bahwa Presiden Macron mau berkunjung ke Indonesia, karena itu berarti kita masih dianggap penting oleh negara-negara besar.
+ Sisi positifnya, tentu saja, adalah bahwa kunjungan Presiden Macron dapat memperkuat hubungan diplomatik dan ekonomi antara Indonesia dan Prancis, serta membuka peluang kerja sama dalam menghadapi tantangan global.
 
- Tapi, apakah kita harus memasang *stairlift* di Candi Borobudur hanya untuk menyenangkan tamu kita? Itu seperti kita mengatakan, "Oh, kamu terlalu lemah untuk naik tangga, jadi kita akan membuatkan jalan yang lebih mudah untukmu.
+ Namun, sisi negatifnya adalah bahwa kita harus memasang *stairlift* di Candi Borobudur hanya untuk menyambut tamu penting, yang membuat kita bertanya-tanya apakah kita telah kehilangan sentuhan tradisional dan kearifan lokal kita.
 
-" Sisi positifnya, kunjungan ini bisa memperdalam hubungan diplomatik dan meningkatkan kerja sama antara Indonesia dan Prancis.
+ Dan, tentu saja, kita harus melihat wajah-wajah pejabat yang berbaris rapi untuk menyambut Macron, yang membuat kita teringat bahwa dalam dunia politik, seringkali yang penting bukanlah substansi, tapi hanya tampilan semata.
 
- Tapi, sisi negatifnya, kita harus menyediakan dana yang cukup untuk memfasilitasi kunjungan ini, dan itu bisa menjadi beban bagi negara.
-
- Jadi, mari kita nikmati kunjungan ini, tetapi jangan lupa untuk mempertanyakan biaya dan manfaatnya.
+ Ah, tapi itu sudah menjadi ciri khas kita, bukan?
