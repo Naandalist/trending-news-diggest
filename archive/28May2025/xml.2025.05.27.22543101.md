@@ -1,0 +1,36 @@
+| Field       | Value                                                       |
+|-------------|-------------------------------------------------------------|
+| title       | Limbah dan Sampah Disebut Jadi Pemicu Utama Stunting di Jaksel |
+| description | Limbah cair dan sampah rumah tangga jadi penyumbang utama stunting di Jakarta Selatan. Pemkot genjot aksi bersama demi capai target zero stunting. |
+| urlshort    | http://kmp.im/AGHpG4 |
+| author      |  |
+| editor      | Muhammad Isa Bustomi |
+
+**JAKARTA, KOMPAS.com** -- Pemerintah Kota Jakarta Selatan mengungkapkan fakta mencengangkan terkait penyebab utama stunting di wilayahnya.
+
+Bukan hanya soal gizi buruk, stunting di Jakarta Selatan ternyata didominasi oleh masalah lingkungan, terutama limbah cair dan sampah rumah tangga.
+
+"Berdasarkan data hasil Gerebek Stunting tahun 2024, faktor determinan penyebab kejadian stunting di Jakarta Selatan yang paling tinggi persentasenya adalah dikarenakan pengelolaan limbah cair rumah tangga tidak baik, yakni 90 persen," kata Wakil Wali Kota Jakarta Selatan, Ali Murthadho, Selasa (27/5/2025), dikutip dari *Antara*.
+
+Masalah lainnya tak kalah krusial. Pengelolaan sampah rumah tangga yang buruk menempati posisi kedua dengan 89 persen, diikuti kebiasaan merokok dalam keluarga sebesar 76 persen, dan asupan gizi tidak seimbang sebesar 62 persen.
+
+Dengan data tersebut, Pemkot Jaksel menekankan pentingnya aksi kolektif dari seluruh jajaran, mulai dari camat hingga lurah, untuk memaparkan kinerja nyata dalam upaya penanganan stunting, terutama menjelang penilaian Delapan Aksi Konvergensi Stunting Tahun 2025.
+
+"Dalam paparannya kami sajikan kepada tim penilai dari Provinsi (DKI Jakarta) data yang benar dan valid sesuai pelaksanaannya selama ini," ujar Ali.
+
+### Stunting turun, tapi pengentasan belum selesai
+
+Meski tantangan masih besar, Jakarta Selatan mencatatkan progres positif.
+
+Berdasarkan Survei Kesehatan Indonesia (SKI) tahun 2023, prevalensi stunting di Jakarta Selatan berada di angka 16,6 persen---terendah di antara lima wilayah kota/kabupaten di DKI Jakarta.
+
+Angka itu bahkan kembali turun menjadi 14,9 persen menurut data Studi Status Gizi Indonesia (SSGI) tahun 2024. Persentase balita dengan kondisi underweight dan wasting pun ikut menurun.
+
+Ali optimistis, capaian ini menjadi modal kuat untuk mewujudkan Jakarta Selatan bebas stunting.
+
+"Insya Allah dalam penanganan stunting ini kita dapat menggerakkan hati dan pikiran masyarakat untuk secara bersama-sama bergotong-royong, berinovasi dalam penanganan kasus stunting untuk menuju \'Jakarta Selatan Zero Stunting\'," pungkasnya.
+
+---
+Berikut ringkasan dalam satu paragraf: Pemerintah Kota Jakarta Selatan baru saja mengungkapkan bahwa penyebab utama stunting di wilayahnya bukan hanya masalah gizi buruk, melainkan juga masalah lingkungan, terutama limbah cair dan sampah rumah tangga. Berdasarkan data Gerebek Stunting tahun 2024, sebanyak 90% kasus stunting disebabkan oleh pengelolaan limbah cair rumah tangga yang tidak baik, diikuti oleh pengelolaan sampah rumah tangga yang buruk sebesar 89%. Meskipun masih ada tantangan, Jakarta Selatan telah mencatatkan progres positif dengan penurunan prevalensi stunting dari 16,6% menjadi 14,9% berdasarkan data Studi Status Gizi Indonesia tahun 2024.
+
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sindiran yang menyakitkan. Di satu sisi, kita patut berbangga dengan penurunan prevalensi stunting di Jakarta Selatan, yang menunjukkan bahwa upaya pemerintah dan masyarakat telah membuahkan hasil. Namun, di sisi lain, kita masih harus menyadari bahwa 14,9% masih merupakan angka yang cukup tinggi, dan bahwa masalah lingkungan seperti limbah cair dan sampah rumah tangga masih menjadi penyebab utama stunting. Ini seperti kita telah memenangkan pertempuran, tetapi masih harus berperang melawan kebiasaan buruk masyarakat dan ketidakpedulian kita terhadap lingkungan. Jadi, mari kita terus berusaha untuk mengatasi masalah ini dan mewujudkan "Jakarta Selatan Zero Stunting" yang telah menjadi cita-cita kita. Tapi, pertanyaannya adalah, apakah kita sudah siap untuk bergerak dari percakapan ke tindakan nyata? Atau kita masih akan terjebak dalam diskusi yang tidak berkesudahan tentang siapa yang salah dan apa yang harus dilakukan?
