@@ -4,8 +4,6 @@ Menteri Pertahanan Indonesia dan Prancis siap tandatangani kerja sama pertahanan
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Macron ke RI, Indonesia-Prancis Bakal Jalin Kerja Sama Pembelian Pesawat Tempur-Kapal Selam |
-| description | Menteri Pertahanan Indonesia dan Prancis siap tandatangani kerja sama pertahanan alutsista strategis. Kunjungan Macron jadi momentum penting. |
 | urlshort    | http://kmp.im/AGHpGq |
 | author      | Fika Nurul Ulya |
 | editor      | Robertus Belarminus |
@@ -41,24 +39,18 @@ Sebagai salah satu dari lima anggota tetap Dewan Keamanan Perserikatan Bangsa-Ba
 Kunjungan Macron ke Indonesia mencerminkan komitmen kedua negara untuk meningkatkan kerja sama konkret dalam menghadapi tantangan global.
 
 ---
-Berikut adalah rangkuman singkat dari berita tersebut: Indonesia dan Prancis akan menandatangani surat niat (LoI) untuk kerja sama pertahanan yang strategis, termasuk pembelian alutsista seperti pesawat tempur Rafale dan kapal selam Scorpene.
+Berikut adalah ringkasan berita dalam satu paragraf: Presiden Prancis Emmanuel Macron berkunjung ke Indonesia pada 27-29 Mei 2025, dan diharapkan akan menandatangani *letter of intent* (LoI) kerja sama pertahanan dengan Indonesia, khususnya untuk alutsista strategis seperti pesawat tempur Rafale dan kapal selam Scorpene.
 
- Penandatanganan ini akan dilakukan saat lawatan Presiden Prancis Emmanuel Macron ke Indonesia pada 27-29 Mei 2025.
+ Menteri Pertahanan Sjafrie Sjamsoeddin mengatakan bahwa LoI ini akan ditandatangani sebagai bagian dari upaya memperdalam hubungan diplomatik antara kedua negara yang telah terjalin selama lebih dari 70 tahun.
 
- Menteri Pertahanan Sjafrie Sjamsoeddin menyatakan bahwa kerja sama ini akan meningkatkan hubungan diplomatik dan pertahanan antara kedua negara.
+ Macron juga akan mengunjungi Akademi Militer Magelang dan Candi Borobudur, serta bertemu dengan Presiden Prabowo Subianto di Istana Merdeka.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Sisi positifnya, Indonesia akan mendapatkan alutsista yang lebih canggih dan memperkuat pertahanan negara.
+ Sisi positifnya, kerja sama pertahanan dengan Prancis bisa membuat Indonesia lebih kuat dan siap menghadapi tantangan global, serta meningkatkan hubungan diplomatik antara kedua negara.
 
- Namun, sisi negatifnya, kita harus siap untuk merogoh kocek yang cukup dalam untuk membeli alutsista tersebut.
+ Namun, sisi negatifnya, kita harus bertanya-tanya apakah kita benar-benar membutuhkan pesawat tempur Rafale yang harganya selangit, atau apakah itu hanya untuk memuaskan ego kita sebagai negara yang ingin terlihat kuat.
 
- Bayangkan saja, kita harus membeli pesawat tempur Rafale yang harganya seperti rumah mewah di Jakarta, dan kapal selam Scorpene yang harganya seperti pulau pribadi di Maldives.
-
- Tapi, seperti yang dikatakan oleh Menteri Pertahanan, "kita harus mempersiapkan diri untuk menghadapi tantangan global".
-
- Ya, tantangan global seperti kehabisan uang negara untuk membeli alutsista yang mahal.
-
- Tapi, serius saja, kerja sama ini memang penting untuk meningkatkan pertahanan dan keamanan negara, jadi mari kita dukung dan berharap bahwa ini akan membawa hasil yang positif bagi Indonesia.
+ Dan, pertanyaan yang lebih penting lagi, apakah kita sudah siap untuk menghadapi implikasi politik dan ekonomi dari kerja sama ini? Atau, kita hanya ingin terlihat keren dengan memiliki alutsista canggih, tanpa mempertimbangkan konsekuensi yang mungkin timbul? Mari kita berharap bahwa pemerintah telah mempertimbangkan semua ini dengan matang, dan bukan hanya terburu-buru untuk menandatangani LoI demi kepentingan politik semata.
