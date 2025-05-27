@@ -1,7 +1,9 @@
+# Kepala BRIN Jelaskan Status ASN yang Berdemo Menuntut Dirinya Dicopot
+
+Kepala BRIN Laksana Tri Handoko menanggapi para ASN yang berdemonstrasi menuntut Laksana dicopot dari jabatannya.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Kepala BRIN Jelaskan Status ASN yang Berdemo Menuntut Dirinya Dicopot |
-| description | Kepala BRIN Laksana Tri Handoko menanggapi para ASN yang berdemonstrasi menuntut Laksana dicopot dari jabatannya. |
 | urlshort    | http://kmp.im/AGHpFm |
 | author      | Danu Damarjati  |
 | editor      | Danu Damarjati  |
@@ -36,6 +38,24 @@ Terdapat 20 pegawai ASN BRIN yang berdemonstrasi di halaman Kantor BRIN, Jl MH T
 Selain menuntut adanya pencopotan Laksana Tri Handoko dari jabatannya saat ini sebagai Kepala BRIN, mereka juga menuntut pembatalan sistem pemetaan dan pengembalian para peneliti ke homebase masing-masing.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Kepala Badan Riset dan Inovasi Nasional (BRIN) Laksana Tri Handoko baru-baru ini menanggapi aksi demonstrasi yang dilakukan oleh sejumlah Aparatur Sipil Negara (ASN) yang menuntut pencopotannya dari jabatan. Demonstrasi tersebut dipicu oleh kekecewaan Pegawai BRIN yang berada di penempatan sementara karena belum mendapatkan tempat di homebase kawasan BRIN. Laksana Tri Handoko menjelaskan bahwa proses integrasi SDM yang dilakukan BRIN sejak 2021 memang melibatkan penyesuaian dan masa transisi, serta memberikan kebebasan kepada pegawai untuk memilih formasi sesuai kompetensi dan minat.
+Berikut rangkuman berita dalam satu paragraf: Kepala Badan Riset dan Inovasi Nasional (BRIN) Laksana Tri Handoko menjelaskan bahwa para Aparatur Sipil Negara (ASN) yang berdemonstrasi menuntut pencopotannya dari jabatannya adalah pegawai BRIN yang berada di penempatan sementara karena belum mendapatkan tempat di homebase kawasan BRIN.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan. Di satu sisi, upaya BRIN untuk melakukan integrasi SDM dan memberikan kebebasan kepada pegawai untuk memilih formasi sesuai kompetensi dan minat adalah langkah yang patut diapresiasi. Namun, di sisi lain, demonstrasi ASN yang menuntut pencopotan Laksana Tri Handoko dari jabatannya menunjukkan bahwa masih ada ketidakpuasan dan ketidakpercayaan di kalangan pegawai. Ini seperti sebuah permainan "musik kursi" di mana pegawai yang tidak sesuai dengan formasi yang dipilih harus "duduk di luar" dan mencari kesempatan lain. Laksana Tri Handoko harus segera menyelesaikan masalah ini sebelum "kursi" yang kosong tersebut menjadi "gunung es" yang bisa menenggelamkan harapan dan semangat pegawai. Mari kita tunggu apa yang akan terjadi selanjutnya dalam "sandiwara" ini!
+ Menurut Laksana, sejak dibentuk pada 2021, BRIN melakukan integrasi SDM yang berasal dari 38 Kementerian/Lembaga (K/L) secara berkelanjutan, dan pegawai diberikan kebebasan untuk memilih formasi sesuai kompetensi, kepakaran, dan minat.
+
+ Namun, beberapa pegawai belum menemukan tempat yang sesuai dan berada dalam proses mutasi eksternal ke kementerian/lembaga lain atau pemda.
+
+
+
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+
+ Di satu sisi, upaya BRIN untuk melakukan integrasi SDM dan memberikan kebebasan kepada pegawai untuk memilih formasi sesuai kompetensi mereka adalah langkah yang baik untuk meningkatkan efisiensi dan kinerja organisasi.
+
+ Namun, di sisi lain,.
+
+demostrasi para ASN yang menuntut pencopotan Laksana Tri Handoko dari jabatannya menunjukkan bahwa masih ada ketidakpuasan dan kebingungan di dalam organisasi.
+
+ Ini seperti sebuah drama keluarga yang rumit, di mana setiap orang memiliki pendapat dan keinginan yang berbeda-beda.
+
+ Mungkin Laksana Tri Handoko perlu memiliki kemampuan seperti "superhero" untuk mengatasi semua masalah ini dan membawa BRIN ke arah yang lebih baik.
+
+ Atau, mungkin saja, para pegawai ASN perlu memiliki kemampuan untuk beradaptasi dan berubah, karena "perubahan adalah satu-satunya yang tetap" di era modern ini.
