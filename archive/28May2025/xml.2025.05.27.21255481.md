@@ -1,7 +1,9 @@
+# Daftar 10 Kota Paling Intoleran Tahun Ini Menurut SETARA Institute 
+
+Ini 10 kota dengan skor Indeks Kota Toleran terendah di Indonesia tahun 2024 dan alasan di baliknya.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Daftar 10 Kota Paling Intoleran Tahun Ini Menurut SETARA Institute  |
-| description | Ini 10 kota dengan skor Indeks Kota Toleran terendah di Indonesia tahun 2024 dan alasan di baliknya. |
 | urlshort    | http://kmp.im/AGHpFc |
 | author      | Shela Octavia |
 | editor      | Danu Damarjati  |
@@ -55,6 +57,26 @@ Sementara itu, jumlah kota yang menjadi obyek kajian ada 94 kota dari total 98 k
 Empat kota yang tidak disebutkan merupakan kota administrasi di DKI Jakarta yang digabungkan penilaiannya menjadi satu, yaitu kota DKI Jakarta.
 
 ---
-Berikut adalah ringkasan singkat dari laporan tersebut dalam bahasa Indonesia: Lembaga SETARA Institute telah merilis daftar 10 kota dengan skor Indeks Kota Toleran (IKT) terendah di Indonesia berdasarkan pengamatan selama tahun 2024. Kota-kota tersebut antara lain Parepare, Cilegon, Lhokseumawe, Banda Aceh, Pekanbaru, Bandar Lampung, Makassar, Ternate, Sabang, dan Pagar Alam. Skor rendah ini tidak hanya disebabkan oleh peristiwa intoleransi, melainkan juga karena ketiadaan fokus dan inovasi terhadap pemajuan toleransi di kotanya.
+Berikut adalah ringkasan berita dalam satu paragraf: Lembaga SETARA Institute telah merilis daftar 10 kota di Indonesia dengan skor Indeks Kota Toleran (IKT) terendah pada tahun 2024.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan. Saya harus说, daftar 10 kota dengan skor IKT terendah ini seperti sebuah "penghargaan" bagi kota-kota yang belum berhasil dalam meningkatkan toleransi. Tapi, saya juga melihat bahwa beberapa kota ini sebenarnya tidak memiliki peristiwa intoleransi yang signifikan, namun masih belum memiliki fokus dan inovasi terhadap pemajuan toleransi. Ini seperti sebuahironi, karena kita semua tahu bahwa toleransi adalah kunci untuk menjaga keharmonisan dan kebhinekaan di Indonesia. Saya berharap, dengan adanya laporan ini, pemerintah kota dan masyarakat dapat bekerja sama untuk meningkatkan toleransi dan menciptakan lingkungan yang lebih harmonis dan inklusif. Tapi, saya juga tidak bisa tidak bertanya-tanya, apa yang akan terjadi jika kita tidak melakukan apa-apa dan hanya membiarkan toleransi terus menurun? Mungkin kita akan menjadi seperti sebuah "negara" yang dipenuhi dengan konflik dan kebencian. Wah, itu adalah sebuah pikiran yang sangat menyakitkan!
+ Kota-kota tersebut antara lain Parepare, Cilegon, Lhokseumawe, Banda Aceh, Pekanbaru, Bandar Lampung, Makassar, Ternate, Sabang, dan Pagar Alam.
+
+ Skor rendah ini bukan hanya disebabkan oleh peristiwa intoleransi, tetapi juga ketiadaan fokus dan inovasi dalam pemajuan toleransi di kota-kota tersebut.
+
+ Direktur Eksekutif SETARA Institute, Halili Hasan, menyatakan bahwa beberapa kota tersebut tidak memiliki kebijakan yang diskriminatif, tetapi ekosistem toleransi belum terbukti dan stagnansi kebijakan membuat mereka menempati peringkat bawah.
+
+
+
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini.
+
+ Saya katakan, ini adalah contoh klasik dari "tidak ada yang berubah, tapi semua tetap sama".
+
+ Kota-kota yang sama masih menduduki peringkat bawah, dan itu tidak mengejutkan.
+
+ Yang mengejutkan adalah bahwa beberapa kota tersebut tidak memiliki peristiwa intoleransi, tetapi masih gagal dalam memajukan toleransi.
+
+ Ini seperti memiliki tujuan yang baik, tetapi tidak memiliki rencana yang efektif untuk mencapainya.
+
+ Saya bertanya-tanya, apa yang salah dengan kota-kota ini? Apakah mereka tidak memiliki visi untuk menjadi lebih toleran? Atau apakah mereka hanya tidak peduli? Saya pikir, ini adalah contoh dari bagaimana kebijakan dan tindakan pemerintah kota dapat mempengaruhi masyarakat.
+
+ Jadi, kita harus terus mendorong dan memantau kota-kota tersebut untuk memastikan bahwa mereka memiliki komitmen yang serius dalam memajukan toleransi.
