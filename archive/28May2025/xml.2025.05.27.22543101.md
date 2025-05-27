@@ -4,8 +4,6 @@ Limbah cair dan sampah rumah tangga jadi penyumbang utama stunting di Jakarta Se
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Limbah dan Sampah Disebut Jadi Pemicu Utama Stunting di Jaksel |
-| description | Limbah cair dan sampah rumah tangga jadi penyumbang utama stunting di Jakarta Selatan. Pemkot genjot aksi bersama demi capai target zero stunting. |
 | urlshort    | http://kmp.im/AGHpG4 |
 | author      |  |
 | editor      | Muhammad Isa Bustomi |
@@ -35,22 +33,18 @@ Ali optimistis, capaian ini menjadi modal kuat untuk mewujudkan Jakarta Selatan 
 "Insya Allah dalam penanganan stunting ini kita dapat menggerakkan hati dan pikiran masyarakat untuk secara bersama-sama bergotong-royong, berinovasi dalam penanganan kasus stunting untuk menuju \'Jakarta Selatan Zero Stunting\'," pungkasnya.
 
 ---
-Berikut ringkasan berita dalam satu paragraf: Pemerintah Kota Jakarta Selatan baru-baru ini mengungkapkan bahwa stunting di wilayahnya didominasi oleh masalah lingkungan, terutama limbah cair dan sampah rumah tangga.
+Berikut adalah ringkasan berita dalam satu paragraf: Pemerintah Kota Jakarta Selatan telah mengungkapkan bahwa penyebab utama stunting di wilayahnya bukan hanya gizi buruk, tetapi juga masalah lingkungan seperti limbah cair dan sampah rumah tangga.
 
- Berdasarkan data Gerebek Stunting tahun 2024, pengelolaan limbah cair rumah tangga yang buruk menjadi penyebab utama stunting di Jakarta Selatan dengan persentase 90 persen, diikuti oleh pengelolaan sampah rumah tangga yang buruk sebesar 89 persen.
+ Berdasarkan data Gerebek Stunting tahun 2024, 90% kasus stunting disebabkan oleh pengelolaan limbah cair rumah tangga yang buruk, diikuti oleh pengelolaan sampah rumah tangga yang buruk sebesar 89%.
 
- Meskipun masih ada tantangan besar, Jakarta Selatan mencatatkan progres positif dengan penurunan prevalensi stunting dari 16,6 persen pada tahun 2023 menjadi 14,9 persen pada tahun 2024.
+ Meskipun demikian, Jakarta Selatan telah mencatatkan progres positif dengan penurunan prevalensi stunting dari 16,6% pada tahun 2023 menjadi 14,9% pada tahun 2024.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
 
- Sisi positifnya adalah bahwa Pemerintah Kota Jakarta Selatan telah mengidentifikasi penyebab utama stunting di wilayahnya dan mulai mengambil tindakan untuk mengatasi masalah tersebut.
+ Ya, kita harus bersyukur bahwa Jakarta Selatan telah menemukan penyebab utama stunting di wilayahnya, dan itu bukan hanya gizi buruk, tetapi juga masalah lingkungan yang bisa diatasi dengan perubahan perilaku masyarakat.
 
- Ini merupakan langkah yang baik menuju "Jakarta Selatan Zero Stunting".
+ Namun, 90% kasus stunting disebabkan oleh pengelolaan limbah cair rumah tangga yang buruk? Itu berarti kita harus bertanya, apa yang salah dengan kita? Apakah kita tidak tahu bagaimana mengelola limbah cair dengan benar? Atau kita hanya terlalu malas untuk melakukan perubahan? Di sisi lain, penurunan prevalensi stunting di Jakarta Selatan adalah kabar baik, dan kita harus terus berupaya untuk mengatasi masalah ini.
 
- Namun, sisi negatifnya adalah bahwa kita masih harus menghadapi kenyataan bahwa 90 persen stunting di Jakarta Selatan disebabkan oleh pengelolaan limbah cair rumah tangga yang buruk - ini merupakan ironi yang menyakitkan, karena kita tahu bahwa limbah cair dan sampah rumah tangga adalah masalah yang dapat diatasi dengan kemauan politik dan infrastruktur yang memadai.
-
- Satu hal yang pasti, kita tidak bisa lagi menyalahkan gizi buruk sebagai penyebab utama stunting, karena kenyataannya jauh lebih kompleks dan memerlukan solusi yang lebih komprehensif.
-
- Jadi, mari kita tunggu dan lihat apakah Pemerintah Kota Jakarta Selatan dapat menjaga komitmennya untuk mengatasi stunting di wilayahnya.
+ Tapi, saya tidak bisa tidak bertanya, apa yang akan terjadi jika kita tidak memiliki data yang valid dan hanya bergantung pada perkiraan? Mungkin kita harus mulai dengan mengajarkan anak-anak kita tentang pentingnya mengelola limbah cair dan sampah rumah tangga dengan benar, agar mereka tidak tumbuh menjadi orang dewasa yang masih belum tahu bagaimana mengelola limbah cair dengan benar.
