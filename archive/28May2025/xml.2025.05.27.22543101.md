@@ -31,6 +31,20 @@ Ali optimistis, capaian ini menjadi modal kuat untuk mewujudkan Jakarta Selatan 
 "Insya Allah dalam penanganan stunting ini kita dapat menggerakkan hati dan pikiran masyarakat untuk secara bersama-sama bergotong-royong, berinovasi dalam penanganan kasus stunting untuk menuju \'Jakarta Selatan Zero Stunting\'," pungkasnya.
 
 ---
-Berikut ringkasan dalam satu paragraf: Pemerintah Kota Jakarta Selatan baru saja mengungkapkan bahwa penyebab utama stunting di wilayahnya bukan hanya masalah gizi buruk, melainkan juga masalah lingkungan, terutama limbah cair dan sampah rumah tangga. Berdasarkan data Gerebek Stunting tahun 2024, sebanyak 90% kasus stunting disebabkan oleh pengelolaan limbah cair rumah tangga yang tidak baik, diikuti oleh pengelolaan sampah rumah tangga yang buruk sebesar 89%. Meskipun masih ada tantangan, Jakarta Selatan telah mencatatkan progres positif dengan penurunan prevalensi stunting dari 16,6% menjadi 14,9% berdasarkan data Studi Status Gizi Indonesia tahun 2024.
+Berikut adalah ringkasan berita dalam satu paragraf: Pemerintah Kota Jakarta Selatan mengungkapkan bahwa penyebab utama stunting di wilayahnya bukan hanya masalah gizi buruk, melainkan juga masalah lingkungan seperti limbah cair dan sampah rumah tangga.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sindiran yang menyakitkan. Di satu sisi, kita patut berbangga dengan penurunan prevalensi stunting di Jakarta Selatan, yang menunjukkan bahwa upaya pemerintah dan masyarakat telah membuahkan hasil. Namun, di sisi lain, kita masih harus menyadari bahwa 14,9% masih merupakan angka yang cukup tinggi, dan bahwa masalah lingkungan seperti limbah cair dan sampah rumah tangga masih menjadi penyebab utama stunting. Ini seperti kita telah memenangkan pertempuran, tetapi masih harus berperang melawan kebiasaan buruk masyarakat dan ketidakpedulian kita terhadap lingkungan. Jadi, mari kita terus berusaha untuk mengatasi masalah ini dan mewujudkan "Jakarta Selatan Zero Stunting" yang telah menjadi cita-cita kita. Tapi, pertanyaannya adalah, apakah kita sudah siap untuk bergerak dari percakapan ke tindakan nyata? Atau kita masih akan terjebak dalam diskusi yang tidak berkesudahan tentang siapa yang salah dan apa yang harus dilakukan?
+ Berdasarkan data Gerebek Stunting tahun 2024, sebanyak 90 persen kasus stunting disebabkan oleh pengelolaan limbah cair rumah tangga yang tidak baik, diikuti oleh pengelolaan sampah rumah tangga yang buruk sebesar 89 persen.
+
+ Meskipun masih ada tantangan, Jakarta Selatan mencatatkan progres positif dengan penurunan prevalensi stunting dari 16,6 persen pada tahun 2023 menjadi 14,9 persen pada tahun 2024.
+
+
+
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+
+ Ya, kita bisa melihat bahwa Pemerintah Kota Jakarta Selatan akhirnya menyadari bahwa stunting bukan hanya masalah gizi buruk, melainkan juga masalah lingkungan yang parah.
+
+ Tapi, apa yang membuat mereka butuh waktu sehingga lama untuk menyadari hal ini? Apakah mereka butuh sebuah "gerebek" untuk menyadari bahwa limbah cair dan sampah rumah tangga bisa membunuh anak-anak kita? Di sisi positif, kita bisa melihat bahwa Jakarta Selatan telah mencatatkan progres positif dalam penurunan prevalensi stunting, dan itu patut diapresiasi.
+
+ Tapi, jangan lupa bahwa masih ada 14,9 persen anak-anak yang menderita stunting, dan itu masih terlalu banyak.
+
+ Jadi, mari kita terus berjuang untuk membuat "Jakarta Selatan Zero Stunting" menjadi kenyataan, dan tidak hanya sekedar slogan yang manis.
