@@ -1,7 +1,9 @@
+# Resep Sate Sapi Bumbu Kencur, Ide Olahan Daging Kurban Idul Adha
+
+Salah satu ide olahan daging kurban yang paling umum dibuat yaitu sate. Pada Hari Raya Idul Adha kali ini coba bikin sate sapi bumbu kencur.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Resep Sate Sapi Bumbu Kencur, Ide Olahan Daging Kurban Idul Adha |
-| description | Salah satu ide olahan daging kurban yang paling umum dibuat yaitu sate. Pada Hari Raya Idul Adha kali ini coba bikin sate sapi bumbu kencur. |
 | urlshort    | http://kmp.im/AGHpFe |
 | author      | Suci Wulandari Putri Chaniago |
 | editor      | Ni Nyoman Wira Widyanti |
@@ -36,6 +38,20 @@ Simak resep ide olahan daging kurban kali ini dikutip dari buku *\"500 Resep Mas
 \[embed.1\]
 
 ---
-Berita kali ini membahas tentang ide olahan daging kurban yang lezat dan mudah dibuat, yaitu sate sapi bumbu kencur. Resep ini terdiri dari beberapa langkah, mulai dari memarinasi daging sapi dengan bumbu kencur, kemudian dipanggang dan disajikan bersama saus kacang. Selain itu, ada beberapa resep olahan daging kurban lainnya yang bisa dicoba, seperti semur daging sapi, nasi gandul, dan dendeng ragi. Dengan resep ini, kita bisa menikmati daging kurban dengan cara yang lebih bervariasi dan lezat.
+Berikut adalah ringkasan berita dalam satu paragraf: Dalam menyambut Idul Adha, ada berbagai ide olahan daging kurban yang bisa dicoba, salah satunya adalah sate sapi bumbu kencur.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini. Di sisi positif, resep sate sapi bumbu kencur ini sangat mudah dibuat dan bisa menjadi alternatif yang lezat untuk olahan daging kurban. Namun, di sisi negatif, kita harus mengakui bahwa resep ini tidak terlalu orisinal dan sudah banyak dibagikan di mana-mana. Tapi, apa salahnya kan? Toh, yang penting adalah kita bisa menikmati makanan yang lezat dan tidak perlu memikirkan tentang orisinalitas resep. Dan, bagi yang tidak suka dengan resep ini, bisa mencoba resep lainnya yang ada di artikel tersebut. Jadi, kita bisa memilih resep yang sesuai dengan selera kita dan tidak perlu merasa bosan dengan olahan daging kurban yang itu-itu saja.
+ Resep ini melibatkan proses marinasasi daging sapi dengan campuran bumbu kencur, kemudian dipanggang dan disajikan bersama kuah kacang.
+
+ Sate sapi bumbu kencur bisa disantap bersama nasi putih atau lontong, dan resep ini dikutip dari buku "500 Resep Masakan Terfavorit" karya Sisca Soewitomo.
+
+ Cara membuatnya melibatkan beberapa langkah, seperti menumis bumbu halus, melumuri daging, dan memanggang sate hingga matang merata.
+
+
+
+Saya rasa, resep sate sapi bumbu kencur ini adalah salah satu ide olahan daging kurban yang patut dicoba, terutama karena bumbu kencur yang memberikan rasa unik dan aroma yang menggugah selera.
+
+ Namun, perlu diingat bahwaIdul Adha tidak hanya tentang makanan, tapi juga tentang berbagi dan kepedulian sosial.
+
+ Jadi, mari kita jangan lupa untuk berbagi daging kurban dengan yang membutuhkan, dan tidak hanya memikirkan perut kita sendiri.
+
+ Tapi, jika kita ingin menikmati sate sapi bumbu kencur, maka kita harus siap untuk menghadapi kemungkinan perut kembung dan kecanduan rasa bumbu kencur yang bikin nagih!
