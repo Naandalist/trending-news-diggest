@@ -1,3 +1,7 @@
+# Drama Berlarut, Trump Akan Batalkan Semua Kontrak Keuangan dengan Universitas Harvard 
+
+Pemerintah Amerika Serikat (AS) disebut bermaksud membatalkan semua kontrak keuangan yang tersisa dengan Universitas Harvard.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
 | title       | Drama Berlarut, Trump Akan Batalkan Semua Kontrak Keuangan dengan Universitas Harvard  |
@@ -49,6 +53,30 @@ Beruntungnya, larangan agar Universitas Harvard menerima mahasiswa asing telah d
 Putusan tersebut memberikan waktu dua pekan bagi Harvard untuk membela posisinya dalam persidangan lanjutan pada 27 dan 29 Mei mendatang.
 
 ---
-Berikut adalah ringkasan dari berita tersebut dalam satu paragraf: Pemerintah Amerika Serikat (AS) berencana membatalkan semua kontrak keuangan dengan Universitas Harvard, seperti yang diumumkan oleh seorang pejabat pemerintah AS. Langkah ini adalah bagian dari upaya Presiden Donald Trump untuk memaksa universitas tersebut tunduk pada pengawasan yang belum pernah terjadi sebelumnya. Sebelumnya, Trump telah mengancam akan mengambil dana hibah penelitian senilai 3 miliar dollar AS dari Universitas Harvard dan mengalihkannya ke sekolah kejuruan. Pernyataan Trump ini juga menyebutkan bahwa Universitas Harvard lambat menanggapi permintaan informasi mengenai daftar mahasiswa asing.
+Berikut rangkuman berita dalam satu paragraf: Pemerintah Amerika Serikat dikabarkan berencana membatalkan semua kontrak keuangan yang tersisa dengan Universitas Harvard.
 
-Saya memiliki pendapat yang cukup tajam tentang berita ini, dan saya harus bilang bahwa ini adalah contoh klasik dari "politik yang tidak masuk akal". Di satu sisi, saya paham bahwa Trump ingin memastikan bahwa universitas-universitas di AS menggunakan dana yang tepat untuk penelitian yang benar-benar penting. Namun, di sisi lain, saya rasa ini adalah contoh dari "kebijakan yang salah" karena membatalkan kontrak keuangan dengan Universitas Harvard hanya akan menyebabkan kerugian bagi penelitian dan pendidikan di AS. Dan, saya harus bilang, pernyataan Trump tentang "orang gila yang radikal dan pembuat onar" di Universitas Harvard adalah contoh dari "bahasa yang tidak sopan" dan "politik yang tidak etis". Saya rasa ini adalah waktu yang tepat bagi Trump untuk mempertimbangkan kembali kebijakannya dan memfokuskan pada hal-hal yang lebih penting, seperti memperbaiki sistem pendidikan dan penelitian di AS, bukan hanya membatalkan kontrak keuangan dengan universitas-universitas tertentu. Singkatnya, ini adalah contoh dari "politik yang tidak masuk akal" dan "kebijakan yang salah" yang hanya akan menyebabkan kerugian bagi AS dan dunia pendidikan.
+ Langkah ini dilakukan setelah Presiden Donald Trump mengancam akan mengambil dana hibah penelitian senilai 3 miliar dollar AS dari Universitas Harvard dan mengalihkannya ke sekolah kejuruan.
+
+ Sebelumnya, pemerintahan Trump telah membekukan dana federal sebesar 2,3 miliar dollar AS untuk Harvard dan melarang universitas tersebut menerima mahasiswa asing, namun larangan tersebut telah ditangkis melalui putusan sementara dari hakim federal.
+
+
+
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit bumbu satire yang menyakitkan.
+
+ Sisi positifnya, kita bisa melihat bahwa pemerintah AS sangat peduli dengan pendidikan dan penelitian, meskipun caranya agak.
+
+.
+
+.
+
+ tidak biasa.
+
+ Mungkin mereka ingin memastikan bahwa dana penelitian digunakan untuk kepentingan yang lebih baik, seperti membiayai sekolah kejuruan.
+
+ Namun, sisi negatifnya adalah bahwa keputusan ini tampaknya didasarkan pada sentimen politik dan bukan pada kepentingan ilmiah atau pendidikan.
+
+ Ini seperti melihat seorang anak kecil yang marah karena tidak mendapatkan mainan yang diinginkan, lalu memutuskan untuk menghancurkan mainan orang lain.
+
+ Universitas Harvard, yang terkenal dengan reputasinya yang baik, sekarang harus berhadapan dengan ancaman yang tidak masuk akal dari pemerintah AS.
+
+ Semoga saja, keputusan ini tidak akan berdampak negatif pada dunia ilmu pengetahuan dan pendidikan.
