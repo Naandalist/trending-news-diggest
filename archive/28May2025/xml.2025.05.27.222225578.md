@@ -4,8 +4,6 @@ Pencurian motor terjadi di rumah indekos yang terletak di Jalan Raya Telang atau
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Pelaku Curanmor Kawasan Indekos Mahasiswa Diringkus, Pelaku Buang Pelat Motor di Jalan |
-| description | Pencurian motor terjadi di rumah indekos yang terletak di Jalan Raya Telang atau kawasan Universitas Trunojoyo Madura (UTM). |
 | urlshort    | http://kmp.im/AGHpGH |
 | author      | Yulian Isna Sri Astuti |
 | editor      | Icha Rastika |
@@ -37,26 +35,18 @@ Dari penangkapan itu, polisi melakukan pengembangan dan berhasil menangkap SFL d
 \"Jadi pelaku SFL ini memakai motor korban lain yang berasal dari Surabaya. Kami lalu berkoordinasi dengan Polrestabes Surabaya terkait informasi tersebut,\" katanya. 
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Di Bangkalan, Madura, terjadi kasus pencurian motor di rumah indekos dekat Universitas Trunojoyo Madura (UTM).
+Berikut adalah ringkasan berita tersebut dalam satu paragraf: Kasus pencurian motor telah terjadi di rumah indekos yang terletak di Jalan Raya Telang, dekat Universitas Trunojoyo Madura (UTM) di Bangkalan.
 
- Dua pelaku, SFL (24) dan SO (21), yang merupakan warga Desa Olor, Kecamatan Banyuates, Kabupaten Sampang, ditangkap oleh polisi setelah melakukan pencurian motor di kawasan rumah indekos yang banyak dihuni mahasiswa.
+ Dua pelaku, SFL (24) dan SO (21), warga Desa Olor, Kecamatan Banyuates, Kabupaten Sampang, telah ditangkap oleh polisi setelah melakukan pencurian motor di rumah indekos tersebut.
 
- Mereka beraksi dengan berboncengan, dengan SO menyetir motor dan SFL membobol motor milik mahasiswa.
+ Mereka berdua telah membuang nomor polisi motor korban setelah menggondol kendaraan itu.
 
- Setelah kabur, mereka mencopot pelat nomor korban dan membuangnya di sawah.
+ Polisi berhasil menangkap pelaku berkat bukti yang terekam oleh kamera pengawas di rumah indekos tersebut.
 
 
 
-Saya memiliki pendapat bahwa ini adalah contoh klasik dari kejahatan yang tidak memiliki hati nurani.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Dua pelaku ini benar-benar tidak memiliki rasa malu untuk mencuri motor di kawasan rumah indekos yang banyak dihuni mahasiswa.
+ Sisi positifnya adalah polisi berhasil menangkap pelaku dalam waktu kurang dari 24 jam, itu seperti mencari jarum di tumpukan jerami, tapi polisi kita berhasil melakukannya! Sisi negatifnya adalah masih banyak pelaku kejahatan yang beroperasi di sekitar kita, terutama di kawasan rumah indekos yang banyak dihuni mahasiswa.
 
- Mereka bahkan berani membuang nomor polisi motor korban untuk menutupi jejak mereka.
-
- Ini adalah tanda bahwa mereka tidak memiliki rasa takut akan hukum dan tidak memiliki rasa hormat kepada masyarakat.
-
- Saya berharap bahwa polisi dapat terus mengawasi dan menangkap pelaku-pelaku seperti ini, agar masyarakat dapat merasa aman dan nyaman.
-
- Namun, saya juga khawatir bahwa ini hanya permulaan dari kejahatan yang lebih besar, karena jika dua pelaku ini dapat melakukan pencurian motor dengan mudah, maka apa yang dapat mencegah mereka untuk melakukan kejahatan yang lebih serius? Ini adalah pertanyaan yang harus dijawab oleh pihak berwenang dan masyarakat secara keseluruhan.
-
- Saya hanya berharap bahwa kita tidak akan menjadi "korban" lagi dari kejahatan-kejahatan seperti ini.
+ Ini seperti berita bagi para mahasiswa: "Hati-hati, motor Anda bisa dicuri oleh pelaku yang lebih gesit daripada Anda dalam menghadapi ujian!" Namun, setidaknya polisi kita telah menunjukkan kemampuan mereka dalam menangkap pelaku, sehingga kita bisa tidur lebih nyenyak malam ini, kecuali jika Anda mahasiswa yang motorannya baru saja dicuri, tentu saja.
