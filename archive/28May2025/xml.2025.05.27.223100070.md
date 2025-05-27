@@ -4,8 +4,6 @@ Pemerintah Amerika Serikat (AS) disebut bermaksud membatalkan semua kontrak keua
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Drama Berlarut, Trump Akan Batalkan Semua Kontrak Keuangan dengan Universitas Harvard  |
-| description | Pemerintah Amerika Serikat (AS) disebut bermaksud membatalkan semua kontrak keuangan yang tersisa dengan Universitas Harvard. |
 | urlshort    | http://www.kompas.com/global/read/2025/05/27/223100070/drama-berlarut-trump-akan-batalkan-semua-kont |
 | author      | Danur Lambang Pristiandaru |
 | editor      | Danur Lambang Pristiandaru |
@@ -53,30 +51,32 @@ Beruntungnya, larangan agar Universitas Harvard menerima mahasiswa asing telah d
 Putusan tersebut memberikan waktu dua pekan bagi Harvard untuk membela posisinya dalam persidangan lanjutan pada 27 dan 29 Mei mendatang.
 
 ---
-Berikut rangkuman berita dalam satu paragraf: Pemerintah Amerika Serikat dikabarkan berencana membatalkan semua kontrak keuangan yang tersisa dengan Universitas Harvard.
+Ringkasan berita: Pemerintah Amerika Serikat (AS) berencana membatalkan semua kontrak keuangan yang tersisa dengan Universitas Harvard.
 
- Langkah ini dilakukan setelah Presiden Donald Trump mengancam akan mengambil dana hibah penelitian senilai 3 miliar dollar AS dari Universitas Harvard dan mengalihkannya ke sekolah kejuruan.
+ Hal ini disampaikan oleh seorang pejabat pemerintah AS setelah Presiden Donald Trump mengancam akan mengambil dana hibah penelitian senilai 3 miliar dollar AS dari Universitas Harvard dan mengalihkannya ke sekolah kejuruan.
 
- Sebelumnya, pemerintahan Trump telah membekukan dana federal sebesar 2,3 miliar dollar AS untuk Harvard dan melarang universitas tersebut menerima mahasiswa asing, namun larangan tersebut telah ditangkis melalui putusan sementara dari hakim federal.
+ Trump juga telah membekukan dana federal sebesar 2,3 miliar dollar AS untuk Harvard pada April lalu.
+
+ Universitas Harvard telah melakukan serangan balik atas keputusan pemerintah AS dan telah mengajukan gugatan di Boston.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit bumbu satire yang menyakitkan.
+Saya lihat, drama antara Pemerintah AS dan Universitas Harvard semakin memanas.
 
- Sisi positifnya, kita bisa melihat bahwa pemerintah AS sangat peduli dengan pendidikan dan penelitian, meskipun caranya agak.
+ Di satu sisi, keputusan pemerintah AS untuk membatalkan kontrak keuangan dengan Harvard bisa dianggap sebagai upaya untuk meningkatkan transparansi dan akuntabilitas dalam penggunaan dana publik.
+
+ Namun, di sisi lain, langkah ini juga bisa dianggap sebagai bentuk intimidasi dan tekanan politik terhadap sebuah lembaga pendidikan yang terkenal.
+
+ Saya pikir, Trump mungkin sedang mencoba untuk menunjukkan kekuasaannya dengan cara yang cukup.
 
 .
 
 .
 
- tidak biasa.
+unik.
 
- Mungkin mereka ingin memastikan bahwa dana penelitian digunakan untuk kepentingan yang lebih baik, seperti membiayai sekolah kejuruan.
+ Bayangkan saja, mengambil dana hibah penelitian dari Harvard dan mengalihkannya ke sekolah kejuruan? itu seperti mengambil dana dari rumah sakit dan mengalihkannya ke bioskop.
 
- Namun, sisi negatifnya adalah bahwa keputusan ini tampaknya didasarkan pada sentimen politik dan bukan pada kepentingan ilmiah atau pendidikan.
+ Tapi, hei,Siapa tahu, mungkin Trump memiliki rencana besar untuk meningkatkan kualitas pendidikan di AS.
 
- Ini seperti melihat seorang anak kecil yang marah karena tidak mendapatkan mainan yang diinginkan, lalu memutuskan untuk menghancurkan mainan orang lain.
-
- Universitas Harvard, yang terkenal dengan reputasinya yang baik, sekarang harus berhadapan dengan ancaman yang tidak masuk akal dari pemerintah AS.
-
- Semoga saja, keputusan ini tidak akan berdampak negatif pada dunia ilmu pengetahuan dan pendidikan.
+ Tapi, untuk sekarang, saya masih ragu-ragu tentang keputusan ini.
