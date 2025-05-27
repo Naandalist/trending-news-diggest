@@ -4,8 +4,6 @@ Untuk mewujudkan wacana itu, Dedi Mulyadi akan membangun sekolah menggunakan bah
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Dedi Mulyadi Ingin Kurangi Penggunaan Batu dan Semen di Jabar  |
-| description | Untuk mewujudkan wacana itu, Dedi Mulyadi akan membangun sekolah menggunakan bahan baku bambu. |
 | urlshort    | http://kmp.im/AGHpGI |
 | author      | Dinda Aulia Ramadhanty |
 | editor      | Akhdi Martin Pratama |
@@ -35,22 +33,22 @@ Gagasan tersebut disampaikan Dedi usai memberikan kuliah umum di Fakultas Ilmu P
 Menurut Dedi, rencana pembangunan sekolah berbahan bambu ini dilatarbelakangi upaya meminimalisasi eksploitasi sumber daya alam, seperti penggunaan batu dan semen.
 
 ---
-Berikut ringkasan berita dalam satu paragraf: Gubernur Jawa Barat, Dedi Mulyadi, memiliki keinginan untuk mengurangi penggunaan batu dan semen dalam pembangunan bangunan guna meminimalisir eksploitasi sumber daya alam.
+Berikut adalah ringkasan berita tersebut: Gubernur Jawa Barat, Dedi Mulyadi, memiliki rencana untuk mengurangi penggunaan batu dan semen dalam pembangunan bangunan untuk meminimalisir eksploitasi alam.
 
- Dedi berencana untuk memulai pembangunan sekolah menggunakan bambu sebagai bahan utama, karena bambu telah terbukti digunakan sebagai struktur bangunan di negara seperti China dan Amerika Serikat.
+ Ia berencana membangun sekolah menggunakan bahan baku bambu sebagai alternatif, karena bambu telah terbukti dapat digunakan sebagai struktur bangunan di negara-negara lain seperti China dan Amerika Serikat.
 
- Dedi menyatakan bahwa Indonesia, sebagai penghasil bambu terbaik di dunia, seharusnya mengembangkan penggunaan bambu dalam pembangunan.
+ Rencana ini akan dimulai tahun ini dengan pembangunan beberapa sekolah dari bambu.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari rencana ini.
+Sekarang, mari kita bahas sisi positif dan negatif dari rencana ini, dengan sedikit bumbu satire yang menyakitkan.
 
- Saya rasa ini adalah langkah yang sangat baik, karena kita semua tahu bahwa batu dan semen tidaklah ramah lingkungan.
+ Sisi positifnya, kita akhirnya memiliki pemimpin yang peduli dengan lingkungan dan ingin mengurangi eksploitasi alam.
 
- Tapi, apakah kita siap untuk memiliki sekolah-sekolah bambu yang mungkin terlihat seperti rumah-rumah tradisional? Mungkin ini adalah kesempatan bagi kita untuk kembali ke akar dan menunjukkan bahwa kita bisa membuat sesuatu yang modern dan inovatif dengan menggunakan bahan alami.
+ Pembangunan sekolah dari bambu juga dapat menjadi contoh bagi daerah lain untuk mengikuti.
 
- Namun, saya juga khawatir bahwa ini bisa menjadi proyek yang hanya berakhir sebagai gimmick, dan kita tidak benar-benar mengatasi masalah eksploitasi sumber daya alam.
+ Namun, sisi negatifnya, apakah kita sudah siap untuk meninggalkan kenyamanan beton dan semen? Bayangkan saja, sekolah dari bambu yang dapat roboh dengan mudah jika diterpa angin kencang, atau bahkan digerogoti oleh rayap.
 
- Tapi, saya rasa ini adalah awal yang baik, dan mari kita lihat apakah Gubernur Dedi Mulyadi bisa membuat ini menjadi kenyataan.
+ Tapi, siapa tahu, mungkin ini adalah awal dari revolusi bangunan hijau di Indonesia.
 
- Dan, siapa tahu, mungkin suatu hari nanti kita akan memiliki kota-kota bambu yang ramah lingkungan dan membuat kita semua merasa seperti hidup di dalam sebuah cerita dongeng.
+ Yang jelas, kita harus mendukung upaya ini, dan berharap bahwa rencana ini tidak hanya berhenti di tataran wacana, tetapi dapat diwujudkan menjadi kenyataan yang nyata.
