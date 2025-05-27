@@ -41,22 +41,24 @@ Sebagai salah satu dari lima anggota tetap Dewan Keamanan Perserikatan Bangsa-Ba
 Kunjungan Macron ke Indonesia mencerminkan komitmen kedua negara untuk meningkatkan kerja sama konkret dalam menghadapi tantangan global.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Indonesia dan Prancis akan menandatangani *letter of intent* (LoI) untuk kerja sama pertahanan yang meliputi alutsista strategis, seperti pesawat tempur Rafale dan kapal selam Scorpene, saat lawatan Presiden Prancis Emmanuel Macron ke Indonesia pada 27-29 Mei 2025.
+Berikut adalah rangkuman singkat dari berita tersebut: Indonesia dan Prancis akan menandatangani surat niat (LoI) untuk kerja sama pertahanan yang strategis, termasuk pembelian alutsista seperti pesawat tempur Rafale dan kapal selam Scorpene.
 
- Menteri Pertahanan Sjafrie Sjamsoeddin mengatakan bahwa penandatanganan LoI ini akan dilakukan pada 28 Mei 2025, saat pertemuan antara Presiden Macron dan Presiden Prabowo Subianto di Istana Merdeka.
+ Penandatanganan ini akan dilakukan saat lawatan Presiden Prancis Emmanuel Macron ke Indonesia pada 27-29 Mei 2025.
 
- Kunjungan Macron ke Indonesia merupakan bagian dari lawatannya ke tiga negara ASEAN, yakni Vietnam, Indonesia, dan Singapura, dan diharapkan akan menghasilkan capaian konkret yang memperdalam hubungan diplomatik kedua negara.
+ Menteri Pertahanan Sjafrie Sjamsoeddin menyatakan bahwa kerja sama ini akan meningkatkan hubungan diplomatik dan pertahanan antara kedua negara.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit bumbu satir yang menyakitkan.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Di satu sisi, kerja sama pertahanan dengan Prancis dapat membantu Indonesia memperkuat kemampuan militernya, terutama dengan pembelian alutsista strategis seperti pesawat tempur Rafale dan kapal selam Scorpene.
+ Sisi positifnya, Indonesia akan mendapatkan alutsista yang lebih canggih dan memperkuat pertahanan negara.
 
- Namun, di sisi lain, kita harus bertanya-tanya apakah kita benar-benar membutuhkan alutsista tersebut, atau apakah itu hanya untuk memuaskan ego kita sebagai negara.
+ Namun, sisi negatifnya, kita harus siap untuk merogoh kocek yang cukup dalam untuk membeli alutsista tersebut.
 
- Dan, tentu saja, kita harus mempertimbangkan biaya yang akan dikeluarkan untuk pembelian alutsista tersebut, yang dapat mencapai miliaran dolar.
+ Bayangkan saja, kita harus membeli pesawat tempur Rafale yang harganya seperti rumah mewah di Jakarta, dan kapal selam Scorpene yang harganya seperti pulau pribadi di Maldives.
 
- Mungkin kita dapat menggunakan uang tersebut untuk memperbaiki infrastruktur kita yang masih memprihatinkan, atau meningkatkan kualitas pendidikan dan kesehatan kita.
+ Tapi, seperti yang dikatakan oleh Menteri Pertahanan, "kita harus mempersiapkan diri untuk menghadapi tantangan global".
 
- Tapi, hey, siapa yang peduli dengan itu ketika kita dapat memiliki pesawat tempur yang keren dan kapal selam yang canggih?
+ Ya, tantangan global seperti kehabisan uang negara untuk membeli alutsista yang mahal.
+
+ Tapi, serius saja, kerja sama ini memang penting untuk meningkatkan pertahanan dan keamanan negara, jadi mari kita dukung dan berharap bahwa ini akan membawa hasil yang positif bagi Indonesia.
