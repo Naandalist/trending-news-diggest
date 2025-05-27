@@ -4,8 +4,6 @@ Nantinya, seluruh pendapatan dari ERP akan digunakan untuk mensubsidi transporta
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Pramono Bakal Gunakan Pendapatan ERP untuk Subsidi Transportasi Umum |
-| description | Nantinya, seluruh pendapatan dari ERP akan digunakan untuk mensubsidi transportasi umum bagi 15 golongan masyarakat. |
 | urlshort    | http://kmp.im/AGHpGE |
 | author      | Ruby Rachmadina |
 | editor      | Akhdi Martin Pratama |
@@ -59,22 +57,22 @@ Berikut adalah 15 golongan masyarakat yang akan menikmati fasilitas transportasi
 15\. Jumantik (Juru Pemantau Jentik).
 
 ---
-Berikut adalah ringkasan singkat dari berita tersebut: Pemerintah Jakarta berencana untuk menerapkan sistem jalan berbayar elektronik atau Electronic Road Pricing (ERP) di beberapa ruas jalan di Ibu Kota, dengan tujuan untuk mensubsidi transportasi umum bagi 15 golongan masyarakat, termasuk warga dari luar Jakarta.
+Berikut adalah rangkuman singkat dari laporan berita: Gubernur Jakarta, Pramono Anung, mengumumkan rencana untuk menerapkan sistem jalan berbayar elektronik atau Electronic Road Pricing (ERP) di sejumlah ruas jalan di Jakarta.
 
- Gubernur Jakarta, Pramono Anung, menyatakan bahwa pendapatan dari ERP akan digunakan untuk memberikan akses transportasi publik secara gratis bagi masyarakat kurang mampu, sementara mereka yang mampu akan membayar penuh penggunaan jalan dan parkir.
+ Pendapatan dari ERP akan digunakan untuk mensubsidi transportasi umum bagi 15 golongan masyarakat, termasuk warga dari luar Jakarta.
 
- Selain itu, sistem transportasi juga akan diperluas dengan layanan Trans Jabodetabek, yang akan memungkinkan warga dari daerah penyangga untuk mengakses transportasi umum terintegrasi.
+ Sistem ini bertujuan untuk menerapkan prinsip keadilan dan keterbukaan, di mana mereka yang mampu akan membayar penuh penggunaan jalan dan parkir, sementara masyarakat kurang mampu akan mendapat akses transportasi publik secara gratis.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari kebijakan ini, dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini, dengan sedikit sentuhan satire yang menyakitkan.
 
- Sisi positifnya, kebijakan ERP ini bisa membantu mengurangi kemacetan di Jakarta dan memberikan akses transportasi publik yang lebih baik bagi masyarakat kurang mampu.
+ Ya, karena itu adalah Jakarta, di mana kemacetan lalu lintas sudah seperti sebuah olahraga nasional.
 
- Namun, sisi negatifnya, kebijakan ini juga bisa membuat warga Jakarta yang sudah terbiasa dengan kemacetan harus membayar lebih banyak untuk menggunakan jalan dan parkir.
+ Dengan ERP, pemerintah berharap dapat mengurangi kemacetan dan meningkatkan pendapatan untuk mensubsidi transportasi umum.
 
- Ah, tapi itu tidak masalah, kan? Kita semua tahu bahwa uang tidak bisa membeli kebahagiaan, tapi bisa membeli akses ke jalan tol yang tidak macet.
+ Namun, pertanyaannya adalah, apakah ini akan efektif? Atau hanya akan menjadi sebuah sumber pendapatan baru untuk pemerintah? Dan bagaimana dengan mereka yang tidak termasuk dalam 15 golongan masyarakat yang mendapat subsidi? Apakah mereka akan terus menderita dalam kemacetan lalu lintas? Ya, karena itu adalah Jakarta, di mana keadilan dan keterbukaan hanya berlaku untuk beberapa orang tertentu.
 
- Selain itu, kebijakan ini juga bisa membuat warga dari luar Jakarta merasa lebih welcome di Jakarta, karena mereka akan mendapatkan akses transportasi publik yang gratis.
+ Tapi, hey, setidaknya kita akan memiliki Trans Jabodetabek, yang akan membuat perjalanan kita dari Bekasi ke Jakarta menjadi sedikit lebih menyenangkan.
 
- Tapi, apakah ini berarti bahwa warga Jakarta harus merasa bersyukur karena bisa membayar lebih banyak untuk menggunakan jalan dan parkir, sementara warga dari luar Jakarta bisa menikmati fasilitas transportasi umum secara gratis? Ah, keadilan dan keterbukaan, kan?
+ Sedikit.
