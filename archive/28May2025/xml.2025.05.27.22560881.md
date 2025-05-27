@@ -45,22 +45,24 @@ Sebagai salah satu dari lima anggota tetap Dewan Keamanan Perserikatan Bangsa-Ba
 Kunjungan Macron ke Indonesia mencerminkan komitmen kedua negara untuk meningkatkan kerja sama konkret dalam menghadapi tantangan global.
 
 ---
-Berikut adalah rangkuman singkat berita tentang kunjungan Presiden Prancis Emmanuel Macron ke Indonesia: Presiden Prancis Emmanuel Macron tiba di Indonesia pada Selasa malam dalam kunjungan kenegaraan selama tiga hari, disambut oleh pejabat tinggi Indonesia termasuk Menteri Luar Negeri Sugiono dan Menteri Pertahanan Sjafrie Sjamsoeddin di Pangkalan Udara Halim Perdanakusuma, Jakarta Timur.
+Presiden Prancis Emmanuel Macron tiba di Indonesia untuk kunjungan kenegaraan selama tiga hari, disambut oleh pejabat tinggi Indonesia termasuk Menteri Luar Negeri Sugiono dan Menteri Pertahanan Sjafrie Sjamsoeddin di Pangkalan Udara Halim Perdanakusuma, Jakarta Timur.
 
- Macron dan istrinya Brigitte Macron diterima dengan upacara penyambutan yang khidmat, termasuk tarian tradisional Betawi dan pasukan kehormatan, sebelum menuju ke hotel tempat menginap.
+ Macron dan istrinya, Brigitte Macron, diterima dengan upacara penyambutan yang khidmat, termasuk tarian tradisional Betawi dan pasukan kehormatan.
 
- Kunjungan Macron ke Indonesia merupakan bagian dari lawatannya ke tiga negara ASEAN, yaitu Vietnam, Indonesia, dan Singapura.
+ Dalam kunjungannya, Macron akan mengunjungi Akademi Militer Magelang dan Candi Borobudur, serta melakukan pertemuan dengan pejabat Indonesia untuk membahas kerja sama bilateral.
+
+ Pemerintah Indonesia menyambut baik kunjungan Macron dan berharap akan menghasilkan capaian konkret dalam memperdalam hubungan diplomatik kedua negara.
 
 
 
-Saya melihat kunjungan Presiden Macron ke Indonesia memiliki sisi positif dan negatif.
+Sekarang, mari kita lihat sisi lain dari kunjungan ini.
 
- Di sisi positif, kunjungan ini dapat memperdalam hubungan diplomatik antara Indonesia dan Prancis, serta memperkuat kerja sama dalam menghadapi tantangan global.
+ Di satu sisi, kunjungan Macron bisa menjadi langkah awal untuk meningkatkan kerja sama ekonomi dan politik antara Indonesia dan Prancis, yang tentu saja sangat menguntungkan bagi kita.
 
- Namun, di sisi negatif, saya khawatir bahwa kita hanya akan mendengar janji-janji manis dari Macron, tanpa ada tindakan konkret yangsignifikan.
+ Tapi, di sisi lain, kita harus ingat bahwa Prancis masih memiliki kepentingan tertentu di Asia Tenggara, dan kita harus waspada agar tidak terjebak dalam permainan geopolitik mereka.
 
- Ini seperti pacar yang hanya berjanji untuk datang, tetapi tidak pernah menepati janjinya.
+ Bayangkan saja, mereka memasang *stairlift* di Candi Borobudur hanya untuk Macron, padahal kita masih memiliki masalah infrastruktur yang lebih mendesak di dalam negeri.
 
- Saya berharap bahwa kunjungan ini tidak hanya akan menjadi pertemuan foto-foto, tetapi juga akan menghasilkan kesepakatan yang nyata dan bermanfaat bagi rakyat Indonesia.
+ Ini hanya menunjukkan bahwa kita masih memiliki banyak pekerjaan rumah untuk dilakukan dalam meningkatkan kualitas hidup rakyat, bukan hanya untuk menyenangkan tamu-tamu VIP.
 
- Dan, tentu saja, saya berharap bahwa pemerintah tidak akan terlalu sibuk memasang *stairlift* di Candi Borobudur, sehingga lupa untuk memperbaiki infrastruktur dasar yang lebih penting.
+ Tapi, hei, setidaknya kita bisa melihat Macron melambaikan tangan dari dalam limosin berpelat diplomatik, itu sudah cukup untuk membuat kita merasa bangga, kan?
