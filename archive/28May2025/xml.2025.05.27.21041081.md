@@ -1,7 +1,9 @@
+# Menag Bersyukur Idul Adha 2025 Berbarengan dengan Muhammadiyah
+
+Menteri Agama Nasaruddin Umar bersyukur Idul Adha 2025 jatuh pada 6 Juni, seragam dengan Muhammadiyah.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Menag Bersyukur Idul Adha 2025 Berbarengan dengan Muhammadiyah |
-| description | Menteri Agama Nasaruddin Umar bersyukur Idul Adha 2025 jatuh pada 6 Juni, seragam dengan Muhammadiyah. |
 | urlshort    | http://kmp.im/AGHpFU |
 | author      | Firda Janati |
 | editor      | Danu Damarjati  |
@@ -27,6 +29,20 @@ Keputusan pemerintah ini sama dengan ormas Islam Muhammadiyah yang sebelumnya me
 Muhammadiyah sendiri menggunakan metode perhitungan hisab hakiki wujudul hilal yang menetapkan pergantian bulan hijriah.
 
 ---
-Berikut adalah rangkuman singkat dari berita tersebut: Pemerintah telah menetapkan tanggal 1 Zulhijah 1446 Hijriah jatuh pada Rabu, 28 Mei 2025, sehingga Hari Raya Idul Adha akan jatuh pada Jumat, 6 Juni 2025. Keputusan ini diambil setelah proses pantauan hilal yang dilakukan dari 114 lokasi berbeda di Indonesia dan sesuai dengan penetapan ormas Islam Muhammadiyah. Menteri Agama Nasaruddin Umar menyambut baik keputusan ini karena dapat mempersatukan umat Islam dalam merayakan Idul Adha.
+Berikut adalah rangkuman berita dalam satu paragraf: Pemerintah melalui Kementerian Agama (Kemenag) telah menetapkan bahwa 1 Zulhijah 1446 Hijriah jatuh pada Rabu, 28 Mei 2025, sehingga Hari Raya Idul Adha jatuh pada Jumat, 6 Juni 2025.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan. Sisi positifnya adalah bahwa pemerintah dan ormas Islam seperti Muhammadiyah dapat bersatu dalam menetapkan tanggal Idul Adha, sehingga umat Islam dapat merayakan hari raya tersebut dengan lebih seragam dan harmonis. Namun, sisi negatifnya adalah bahwa proses penetapan tanggal ini terkadang dapat berlangsung alot dan memerlukan laporan dari perukyat hilal di berbagai lokasi, yang dapat menimbulkan kebingungan dan keraguan di kalangan umat Islam. Dan, dengan sedikit satire, kita dapat bertanya, apa yang akan terjadi jika perukyat hilal tersebut tidak dapat melihat hilal karena tertutup awan atau karena mereka sedang sibuk memantau serial televisi favorit mereka? Mungkin kita perlu mempertimbangkan untuk menggunakan teknologi yang lebih canggih, seperti aplikasi perukyat hilal, untuk mempermudah proses penetapan tanggal Idul Adha.
+ Keputusan ini diambil setelah pantauan hilal dari 114 lokasi berbeda di Indonesia dan laporan dari para rukyatul hilal.
+
+ Menteri Agama Nasaruddin Umar menyambut gembira keputusan ini karena sama dengan yang diambil oleh Muhammadiyah, sehingga umat Islam di Indonesia dapat merayakan Idul Adha bersama-sama.
+
+
+
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+
+ Sisi positifnya adalah bahwa pemerintah dan Muhammadiyah dapat bersatu dalam menetapkan tanggal Idul Adha, sehingga umat Islam di Indonesia dapat merayakan hari raya ini dengan lebih harmonis.
+
+ Namun, sisi negatifnya adalah bahwa proses penetapan tanggal ini masih terkesan alot dan tidak transparan, dengan hilal yang tidak terlihat dan harus menunggu laporan dari para rukyatul hilal.
+
+ Ini membuat saya bertanya-tanya, apakah kita masih hidup di abad pertengahan atau sudah memasuki era digital? Tapi, saya rasa itulah keunikan Indonesia, di mana tradisi dan teknologi dapat berjalan berdampingan dengan cara yang unik dan menyenangkan.
+
+ Jadi, mari kita tunggu Idul Adha dengan penuh harap dan kegembiraan, dan berharap bahwa tahun depan proses penetapan tanggalnya dapat berjalan lebih lancar dan transparan!
