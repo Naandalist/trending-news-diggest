@@ -1,3 +1,7 @@
+# 2 Rest Area Tol Padang-Sicincin Adopsi Desain Rumah Adat Minangkabau
+
+HKI tengah membangun dua unit rest area di tol pertama Sumatera Barat yang mengadopsi srsitektur neo vernacular budaya lokal Minangkabau.
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
 | title       | 2 Rest Area Tol Padang-Sicincin Adopsi Desain Rumah Adat Minangkabau |
@@ -27,6 +31,22 @@ Untuk mendukung kelancaran mobilitas dan kenyamanan pengguna jalan tol, rest are
 Adapun di jalur B, tersedia kapasitas parkir untuk 210 kendaraan golongan I dan 59 kendaraan golongan II hingga V. 
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pembangunan Tempat Istirahat dan Pelayanan (TIP) di Jalan Tol Padang-Sicincin telah memiliki arsitektur *neo vernacular* yang mengadopsi budaya lokal Minang, dengan konstruksi menggunakan material modern dan ornamen khas Minang. Direktur Operasi III PT Hutama Karya Infrastruktur (HKI) Aditya Novendra Jaya menyatakan bahwa HKI tidak hanya membangun fisik, tapi juga merawat warisan budaya. Rest area ini akan memiliki fasilitas seperti masjid, toilet umum, klinik, bengkel, SPBU, kantor pengelola, bangunan pengolahan limbah, foodcourt, dan minimarket. Dengan adanya penyewa UMKM, diharapkan dapat meningkatkan perekonomian masyarakat sekitar dan memperkenalkan budaya khas Sumatra Barat.
+Berikut adalah ringkasan berita dalam satu paragraf: Proyek pembangunan Tempat Istirahat dan Pelayanan (TIP) atau rest area di Jalan Tol Padang-Sicincin telah dimulai dengan konsep arsitektur *neo vernacular* yang mengadopsi budaya lokal Minangkabau.
 
-Sekarang, mari kita simak sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan. Sisi positifnya adalah bahwa rest area ini dapat menjadi contoh bagi proyek-proyek lain dalam melestarikan warisan budaya lokal, serta memberikan kesempatan bagi UMKM untuk berkembang. Tapi, sisi negatifnya adalah bahwa kita masih harus menunggu selesai pembangunannya, dan itu berarti kita masih harus menderita dengan kondisi jalan tol yang kurang memadai. Apalagi, kita tidak tahu apakah rest area ini akan menjadi tempat yang nyaman untuk beristirahat, atau hanya menjadi tempat untuk menghabiskan uang pada makanan dan minuman yang mahal. Tapi, sekali lagi, ini adalah langkah yang positif, dan kita harus berharap bahwa ini akan menjadi awal dari proyek-proyek yang lebih baik di masa depan. Dan, siapa tahu, mungkin suatu hari nanti kita akan memiliki rest area yang lebih baik dari negara-negara lain, dan itu akan menjadi kebanggaan kita sebagai bangsa. Tapi, sampai saat itu, kita masih harus sabar dan berdoa agar proyek ini selesai dengan cepat dan sukses.
+ Rest area ini tidak hanya menyediakan fasilitas umum seperti masjid, toilet, dan klinik, tetapi juga menampilkan ornamen khas Minang seperti mahkota, dada kelelawar, dan motif ukiran tradisional.
+
+ PT Hutama Karya Infrastruktur (HKI) bekerja sama dengan spesialis Ranah Minang untuk memastikan bahwa arsitektur rest area ini dapat mewakili budaya Minang.
+
+ Progres fisik proyek ini telah mencapai 80,06 persen hingga April 2025.
+
+
+
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini.
+
+ Saya senang melihat bahwa rest area ini tidak hanya berfungsi sebagai tempat istirahat, tetapi juga sebagai sarana untuk memperkenalkan budaya dan kuliner khas Sumatra Barat kepada para pengunjung.
+
+ Namun, saya juga khawatir bahwa konsep *neo vernacular* ini hanya merupakan kosmetik untuk menyembunyikan kenyataan bahwa kita masih belum memiliki infrastruktur yang memadai.
+
+ Apakah rest area ini benar-benar dapat membantu meningkatkan perekonomian masyarakat sekitar, atau hanya menjadi proyek untuk memuaskan ego para pejabat? Saya tidak tahu, tapi yang jelas adalah bahwa kita tidak perlu lagi rest area yang "instagrammable" jika jalan tol masih penuh dengan lubang dan gangguan lalu lintas.
+
+ Mari kita fokus pada memperbaiki infrastruktur dasar kita, bukan hanya pada membuatnya terlihat cantik.
