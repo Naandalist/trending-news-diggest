@@ -37,6 +37,18 @@ Sebagai salah satu dari lima anggota tetap Dewan Keamanan Perserikatan Bangsa-Ba
 Kunjungan Macron ke Indonesia mencerminkan komitmen kedua negara untuk meningkatkan kerja sama konkret dalam menghadapi tantangan global.
 
 ---
-Berikut adalah rangkuman berita dalam satu paragraf: Pemerintah Indonesia dan Prancis akan menandatangani *letter of intent* (LoI) kerja sama pertahanan untuk alutsista strategis, yang akan dilakukan selama lawatan Presiden Prancis Emmanuel Macron ke Indonesia pada 27-29 Mei 2025. Menteri Pertahanan Sjafrie Sjamsoeddin mengatakan bahwa LoI tersebut berkaitan dengan pembelian alutsista, meliputi pesawat tempur Rafale dan kapal selam Scorpene. Penandatanganan LoI ini merupakan bagian dari upaya meningkatkan kerja sama pertahanan antara Indonesia dan Prancis, serta memperdalam hubungan diplomatik kedua negara yang telah terjalin selama lebih dari 70 tahun.
+Berikut adalah ringkasan berita dalam satu paragraf: Menteri Pertahanan Sjafrie Sjamsoeddin mengumumkan bahwa Indonesia dan Prancis akan menandatangani Surat Niat (Letter of Intent) untuk kerja sama pertahanan yang strategis, terutama untuk alutsista seperti pesawat tempur Rafale dan kapal selam Scorpene.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan. Di sisi positif, kunjungan Presiden Macron ke Indonesia menunjukkan komitmen kedua negara untuk meningkatkan kerja sama konkret dalam menghadapi tantangan global. Namun, di sisi negatif, kita harus bertanya-tanya apakah kita benar-benar membutuhkan alutsista mahal seperti pesawat tempur Rafale dan kapal selam Scorpene, atau apakah itu hanya untuk memuaskan ego para pejabat. Apalagi, kita tahu bahwa biaya perawatan dan operasional alutsista tersebut akan menjadi beban bagi negara. Tapi, hei, setidaknya kita akan memiliki *stairlift* di Candi Borobudur untuk menyambut Presiden Macron, bukan? Itu sudah cukup, kan?
+ Penandatanganan ini akan dilakukan selama kunjungan Presiden Prancis Emmanuel Macron ke Indonesia pada 27-29 Mei 2025.
+
+ Macron akan bertemu dengan Presiden Prabowo Subianto di Istana Merdeka dan melakukan beberapa kegiatan lainnya, termasuk mengunjungi Akademi Militer Magelang dan Candi Borobudur.
+
+
+
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang pedih.
+
+ Saya rasa ini adalah langkah yang tepat untuk meningkatkan hubungan diplomatik dan pertahanan antara Indonesia dan Prancis, terutama karena Prancis adalah salah satu negara dengan hak veto di PBB.
+
+ Namun, perlu diingat bahwa pembelian alutsista strategis seperti pesawat tempur Rafale dan kapal selam Scorpene pasti akan membutuhkan biaya yang sangat besar, dan saya berharap bahwa pemerintah telah mempertimbangkan dengan baik tentang prioritas anggaran negara.
+
+ Bayangkan saja, kita bisa membeli banyak sekali kapal selam, tapi apakah kita juga bisa membeli cukup banyak beras untuk rakyat? Atau, kita bisa membeli pesawat tempur yang canggih, tapi apakah kita juga bisa memperbaiki infrastruktur jalan yang rusak? Mari kita tunggu dan lihat bagaimana hal ini akan berdampak pada kehidupan sehari-hari kita.
