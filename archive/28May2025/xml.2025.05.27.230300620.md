@@ -49,6 +49,22 @@ Setidaknya, umur ideal untuk menikah adalah di atas 20 tahun atau ketika memasuk
 "Paling tidak sudah di atas umur 20 tahun," ujarnya
 
 ---
-Berikut adalah ringkasan berita tersebut dalam satu paragraf: Kasus pernikahan anak di bawah umur di Lombok Tengah, Nusa Tenggara Barat (NTB) telah memicu heboh di kalangan masyarakat. Pasangan tersebut, YL (15 tahun) dan RN (16 tahun), telah menikah secara adat sebelum dipisahkan oleh kepala dusun karena belum cukup umur. Namun, mereka nekat menikah kembali dengan tradisi "merariq" atau kawin lari dan dibawa ke Sumbawa selama dua hari sebelum dipulangkan ke Lombok. Psikolog anak Gloria Siagian M mengatakan bahwa anak-anak yang menikah di bawah umur belum siap secara mental dan lebih rentan terhadap konflik dan perceraian.
+Berikut adalah ringkasan kabar tersebut dalam satu paragraf: Kasus pernikahan anak di bawah umur di Lombok Tengah, Nusa Tenggara Barat (NTB), telah menjadi perhatian publik setelah seorang perempuan berusia 15 tahun dan laki-laki berusia 16 tahun menikah secara adat, lalu dipisahkan oleh kepala dusun karena masih di bawah umur.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari kasus ini dengan sedikit satire yang menyakitkan. Sisi positifnya, kita dapat melihat bahwa cinta sejati masih ada dan tidak terkalahkan oleh batasan usia - meskipun itu berarti melanggar aturan dan logika. Namun, sisi negatifnya adalah bahwa pernikahan di bawah umur dapat menyebabkan konflik dan perceraian yang lebih besar, serta menghambat perkembangan mental dan emosional anak-anak tersebut. Ini seperti memasukkan anak-anak ke dalam "permainan dewasa" tanpa memberikan mereka pelatihan yang cukup. Psikolog anak Gloria Siagian M sudah menjelaskan bahwa otak manusia baru mencapai kematangan penuh pada usia 25 tahun ke atas, jadi apa yang kita lakukan dengan membiarkan anak-anak menikah di bawah umur? Ini seperti membiarkan mereka mengemudi mobil tanpa SIM dan kemudian heran ketika mereka terlibat dalam kecelakaan. Mari kita jaga anak-anak kita danmemberikan mereka kesempatan untuk tumbuh dan berkembang dengan normal sebelum memasuki "permainan dewasa" yang kompleks ini.
+ Namun, pasangan tersebut tetap nekat menikah kembali dengan tradisi merariq atau kawin lari, dan akhirnya orangtua perempuan memilih membiarkan anaknya tetap menikah, sesuai dengan tradisi yang berlaku.
+
+ Menurut psikolog anak Gloria Siagian, anak yang menikah di bawah umur dianggap belum matang dan siap secara mental, karena perkembangan otak baru mencapai angka sempurna saat manusia berusia 25 tahun ke atas.
+
+
+
+Sekarang, mari kita lihat sisi positif dan negatif dari kabar ini.
+
+ Saya harus mengatakan bahwa saya sangat prihatin dengan kasus ini, karena pernikahan di bawah umur dapat menyebabkan konflik dan perceraian.
+
+ Tapi, saya juga tertawa sedih ketika membaca bahwa orangtua perempuan memilih membiarkan anaknya tetap menikah, sesuai dengan tradisi yang berlaku.
+
+ Apakah kita masih hidup di zaman batu? Pernikahan di bawah umur bukanlah solusi untuk memecahkan masalah, melainkan memperburuk keadaan.
+
+ Saya setuju dengan psikolog anak Gloria Siagian yang mengatakan bahwa umur ideal untuk menikah adalah di atas 20 tahun atau ketika memasuki usia dewasa muda.
+
+ Jadi, mari kita semua berpikir lebih dewasa dan tidak membiarkan tradisi yang ketinggalan zaman menghancurkan hidup anak-anak kita.
