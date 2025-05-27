@@ -4,8 +4,6 @@ Depok tak lagi jadi kota paling intoleran. Dalam IKT 2025, peringkatnya melonjak
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Depok Tak Lagi Kota Paling Intoleran, Naik Peringkat Versi Setara Institute |
-| description | Depok tak lagi jadi kota paling intoleran. Dalam IKT 2025, peringkatnya melonjak ke 78, jauh dari posisi 94 pada 2023 setelah 3 tahun di posisi bawah |
 | urlshort    | http://kmp.im/AGHpGd |
 | author      | Muhammad Isa Bustomi |
 | editor      | Muhammad Isa Bustomi |
@@ -44,24 +42,22 @@ Dalam penilaiannya, Setara Institute menggunakan empat variabel utama yang terdi
 Setiap variabel diukur untuk menilai sejauh mana suatu kota mampu menciptakan ruang hidup yang aman, adil, dan inklusif bagi seluruh warganya, tanpa diskriminasi berdasarkan agama, keyakinan, atau identitas lainnya.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Kota Depok telah mengalami lompatan signifikan dalam Indeks Kota Toleran (IKT) 2025, naik ke peringkat 78 dari sebelumnya berada di posisi 94 pada tahun 2023.
+Berikut ringkasan berita tersebut dalam satu paragraf: Kota Depok tidak lagi menjadi kota paling intoleran di Indonesia, menurut laporan Indeks Kota Toleran (IKT) 2025 yang dirilis Setara Institute.
 
- Ini menandakan perbaikan yang menyolok di antara 94 kota yang dinilai.
+ Depok mengalami lompatan signifikan ke peringkat 78, setelah sebelumnya berada di posisi 94 pada tahun 2023.
 
- Depok yang dulu pernah dinobatkan sebagai kota paling intoleran selama tiga tahun berturut-turut, kini menunjukkan kemajuan berkat komitmen pemangku kebijakan untuk membangun ekosistem yang lebih toleran.
+ Ini menandakan perbaikan yang cukup pesat, terutama setelah Depok dinobatkan sebagai kota paling intoleran selama tiga tahun berturut-turut pada IKT tahun 2020, 2021, dan 2022.
 
- Menurut laporan Setara Institute, kenaikan pesat Depok tak lepas dari perubahan positif dalam komitmen pemerintah daerah, minimnya kebijakan diskriminatif, serta meningkatnya partisipasi masyarakat sipil.
+ Laporan tersebut menyebutkan bahwa kenaikan pesat Depok tak lepas dari komitmen pemangku kebijakan untuk membangun ekosistem yang lebih toleran, dengan perubahan positif dalam komitmen pemerintah daerah dan partisipasi masyarakat sipil.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit bumbu satir yang menyakitkan.
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini, dengan sedikit satire yang menyakitkan.
 
- Ya, Depok akhirnya tidak lagi menjadi kota paling intoleran di Indonesia, dan ini adalah kabar baik! Tapi, jangan terlalu bersemangat, kita masih memiliki 77 kota lain yang lebih toleran daripada Depok.
+ Hmm, Depok tidak lagi menjadi kota paling intoleran? Wah, itu seperti meraih penghargaan "Tidak Terlalu Buruk"! Tapi serius, ini adalah sebuah langkah maju yang signifikan, dan patut diapresiasi.
 
- Sisi positifnya, ini menunjukkan bahwa upaya untuk membangun ekosistem yang lebih toleran membuahkan hasil, dan kita harus mengapresiasi komitmen pemangku kebijakan di Depok.
+ Namun, kita tidak boleh lupa bahwa masih banyak pekerjaan yang harus dilakukan untuk menciptakan ruang hidup yang aman, adil, dan inklusif bagi seluruh warganya.
 
- Namun, sisi negatifnya, masih banyak pekerjaan yang harus dilakukan untuk menciptakan ruang hidup yang aman, adil, dan inklusif bagi seluruh warga.
+ Jadi, mari kita tidak terlalu berbangga diri dan terus berusaha untuk meningkatkan toleransi dan kesadaran akan pentingnya keberagaman.
 
- Dan, mari kita jangan lupa, bahwa masih ada kota-kota lain yang belum menunjukkan perbaikan signifikan, jadi kita masih memiliki banyak PR untuk meningkatkan toleransi di Indonesia.
-
- Jadi, mari kita terus berjuang untuk menciptakan masyarakat yang lebih toleran dan inklusif, dan tidak hanya berhenti pada peringkat IKT!
+ Dan kepada mereka yang masih berpikir bahwa intoleransi adalah jawaban, saya hanya ingin mengatakan: "Selamat, Anda masih bisa menjadi kandidat untuk kota paling intoleran di tahun-tahun mendatang!" Tapi dengan serius, ini adalah momentum yang baik untuk terus memperjuangkan kesetaraan dan keadilan bagi semua.
