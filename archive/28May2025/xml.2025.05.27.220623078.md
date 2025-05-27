@@ -4,8 +4,6 @@ Presiden Prabowo Subianto menargetkan pengentasan 3,17 juta penduduk miskin ekst
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Potret Kemiskinan di Indonesia: 24 Juta Warga Masih Bertahan di Bawah Garis Hidup |
-| description | Presiden Prabowo Subianto menargetkan pengentasan 3,17 juta penduduk miskin ekstrem di Indonesia pada 2026. Simak strateginya! |
 | urlshort    | http://kmp.im/AGHpGD |
 | author      | Titis Anis Fauziyah |
 | editor      | Sari Hardiyanto |
@@ -49,28 +47,22 @@ Untuk itu, dia mendorong intervensi terhadap kelompok miskin dengan memberikan b
 \"Berdaya itu artinya produktif. Mereka memiliki penghasilan. Caranya bagaimana? Siapa yang mau bekerja kita kasih lapangan kerja, siapa yang mau usaha kita kasih lapangan kerja,\" tandas Agus.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Presiden Prabowo Subianto telah menginstruksikan Kementerian Sosial (Kemensos) untuk mengentaskan 3,17 juta penduduk miskin ekstrem di Indonesia pada 2026.
+Berikut adalah rangkuman berita dalam satu paragraf: Presiden Prabowo Subianto telah menginstruksikan Kementerian Sosial (Kemensos) untuk mengentaskan 3,17 juta penduduk miskin ekstrem di Indonesia pada tahun 2026.
 
- Wakil Menteri Sosial Agus Jabo Priyono menyatakan bahwa data menunjukkan jumlah penduduk miskin ekstrem di Indonesia mencapai 3,17 juta jiwa, atau 1,13 persen dari total penduduk.
+ Menurut Wakil Menteri Sosial Agus Jabo Priyono, jumlah penduduk miskin ekstrem ini setara dengan 1,13 persen dari total penduduk Indonesia, yaitu sekitar 285 juta jiwa.
 
- Kemensos diperintahkan untuk berkolaborasi dengan berbagai pihak untuk mengentaskan kemiskinan, dengan target bahwa pada 2026 tidak ada lagi warga miskin ekstrem.
+ Kemensos telah diperintahkan untuk berkolaborasi dengan berbagai pihak, termasuk kementerian lain, sektor swasta, dan perguruan tinggi, dalam upaya pengentasan kemiskinan.
 
- Intervensi pemerintah akan dilakukan dengan memberikan bantuan usaha agar kelompok miskin dapat mandiri dan berdaya secara ekonomi.
+ Target yang telah ditetapkan adalah untuk menghapus kemiskinan ekstrem di Indonesia pada tahun 2026.
 
 
 
-Saya memiliki pendapat yang cukup sinis tentang rencana pemerintah ini.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Di satu sisi, saya mengapresiasi upaya pemerintah untuk mengentaskan kemiskinan, karena ini adalah masalah yang sangat penting di Indonesia.
+ Sisi positifnya adalah bahwa pemerintah telah menetapkan target yang jelas untuk mengentaskan kemiskinan ekstrem di Indonesia, yang menunjukkan komitmen untuk memperbaiki kehidupan penduduk miskin.
 
- Namun, di sisi lain, saya khawatir bahwa rencana ini hanya akan menjadi janji kosong seperti banyak rencana lainnya.
+ Namun, sisi negatifnya adalah bahwa target ini mungkin terlalu optimis, mengingat bahwa kemiskinan ekstrem telah menjadi masalah yang chronis di Indonesia.
 
- Apalagi, jika kita lihat dari data, bantuan sosial yang diberikan pemerintah setiap tahun tidak cukup untuk mengentaskan kemiskinan.
+ Selain itu, pernyataan bahwa "masalah kemiskinan di Indonesia tidak hanya berkaitan dengan aspek ekonomi, tetapi juga mentalitas" bisa dianggap sebagai alasan untuk mengalihkan tanggung jawab dari pemerintah kepada individu miskin.
 
- Saya juga khawatir bahwa intervensi pemerintah akan hanya memperburuk keadaan, karena kita tahu bahwa korupsi dan inefisiensi masih merupakan masalah besar di Indonesia.
-
- Jadi, saya berharap bahwa pemerintah tidak hanya fokus pada janji-janji, tetapi juga pada tindakan nyata untuk mengentaskan kemiskinan.
-
- Dan, saya juga berharap bahwa kita tidak hanya fokus pada angka-angka, tetapi juga pada kualitas hidup penduduk miskin.
-
- Karena, pada akhirnya, yang terpenting bukanlah angka-angka, tetapi kualitas hidup manusia.
+ Mari kita lihat apakah pemerintah benar-benar serius dalam mengentaskan kemiskinan ekstrem di Indonesia, atau hanya sekadar membuat janji manis untuk memenangkan hati rakyat.
