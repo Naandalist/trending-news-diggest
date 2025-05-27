@@ -33,6 +33,20 @@ Rencananya, Parjo akan dikirim langsung ke Kantor Gubernur Banten dan dikurbanka
 Terpilihnya Parjo sebagai sapi kurban presiden menjadi kebanggaan dan motivasi bagi Saripudin dan timnya untuk terus mengembangkan peternakan dengan kualitas terbaik.
 
 ---
-Berikut adalah ringkasan dari laporan berita dalam satu paragraf: Presiden Prabowo Subianto telah memilih sapi bernama Parjo yang memiliki bobot luar biasa seberat 1,15 ton untuk dijadikan hewan kurban pada Hari Raya Idul Adha 1446 Hijriah. Sapi ini berasal dari Peternakan Putra Bungsu di Kota Tangerang dan memiliki aura kemegahan yang merupakan hasil kerja keras dan ketelatenan dari seorang peternak muda bernama Saripudin. Dengan tinggi mencapai 1,58 meter dan panjang tubuh 2,3 meter, Parjo yang berusia 3,5 tahun ini adalah sapi terbesar di Tangerang dan memiliki nilai fantastis yang diperkirakan lebih dari Rp120 juta.
+Berikut adalah ringkasan berita dalam satu paragraf: Presiden Prabowo Subianto telah memilih sapi bernama Parjo dari Kota Tangerang sebagai hewan kurban pada Hari Raya Idul Adha 1446 Hijriah.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan. Sisi positifnya, tentu saja, adalah bahwa sapi Parjo ini merupakan contoh nyata dari hasil kerja keras dan ketelatenan yang dapat menghasilkan sesuatu yang luar biasa. Namun, sisi negatifnya adalah bahwa sapi ini mungkin akan menjadi korban dari keinginan presiden untuk mencari sapi terbesar dan termahal untuk dijadikan hewan kurban. Bayangkan saja, sapi ini harus menjalani perawatan khusus dan diberi makan konsentrat dan vitamin berkali-kali lipat hanya untuk menjaga kesehatan dan kebugarannya sebelum akhirnya dikurbankan. Ini seperti memberi sapi sebuah "tiket menuju kematian" yang sangat mewah. Tapi, hei, setidaknya sapi Parjo ini akan mati dengan bangga, karena telah menjadi sapi terbesar dan termahal di Tangerang.
+ Sapi ini memiliki bobot luar biasa, yaitu 1,15 ton, dan memancarkan aura kemegahan hasil kerja keras dan ketelatenan peternak muda, Saripudin.
+
+ Parjo adalah sapi terbesar di Tangerang dengan tinggi 1,58 meter dan panjang tubuh 2,3 meter, dan memiliki nilai fantastis yang diperkirakan lebih dari Rp120 juta.
+
+
+
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+
+ Sisi positifnya, kita memiliki seorang presiden yang masih ingat tradisi kurban Idul Adha, dan itu patut diapresiasi.
+
+ Namun, sisi negatifnya, kita harus bertanya-tanya tentang prioritas kita sebagai bangsa.
+
+ Apakah kita lebih peduli dengan sapi yang seberat 1,15 ton atau dengan rakyat yang masih berjuang untuk memenuhi kebutuhan sehari-hari? Parjo, sapi yang dibesarkan dengan konsentrat dan vitamin berkali-kali lipat, mungkin memiliki kualitas yang lebih baik daripada beberapa infrastruktur di negara kita.
+
+ Jadi, mari kita jangan terlalu terpesona dengan kebesaran Parjo, tetapi juga ingat untuk memperhatikan kebutuhan rakyat yang masih banyak yang belum terpenuhi.
