@@ -4,8 +4,6 @@ Pelari asal Kanada, Stephanie Case, menang lomba lari lintas alam atau trail run
 
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | Perjuangan Ganda Seorang Ibu, Menang Lomba Lari 100 Km sambil Menyusui |
-| description | Pelari asal Kanada, Stephanie Case, menang lomba lari lintas alam atau trail run sejauh 100 kilometer (km) sambil menyusui bayinya. |
 | urlshort    | http://www.kompas.com/global/read/2025/05/27/230100170/perjuangan-ganda-seorang-ibu-menang-lomba-lar |
 | author      |  |
 | editor      | Danur Lambang Pristiandaru |
@@ -55,14 +53,26 @@ Perjalanan menuju kehamilan pun tidak mudah. Ia mengalami keguguran dan beberapa
 Beberapa bulan setelah melahirkan, Case membuktikan keberaniannya kembali. Ia tidak hanya kembali ke lintasan, tapi juga memenangkan salah satu lomba *trail run* paling bergengsi di Inggris, sambil tetap menjalankan perannya sebagai seorang ibu.
 
 ---
-Berikut adalah ringkasan singkat dari laporan berita tersebut: Stephanie Case, seorang pelari asal Kanada, telah mencapai prestasi luar biasa di ajang Ultra-Trail Snowdonia, sebuah lomba lari lintas alam sejauh 100 kilometer di Inggris, dengan menjadi juara pertama kategori wanita dan menyelesaikan lomba dalam waktu 16 jam 53 menit 22 detik.
+Berikut adalah ringkasan dari laporan berita tersebut: Pelari asal Kanada, Stephanie Case, telah mencapai prestasi luar biasa di ajang Ultra-Trail Snowdonia, sebuah lomba lari lintas alam sejauh 100 kilometer yang digelar di Inggris.
 
- Case, yang juga seorang ibu dari seorang bayi perempuan bernama Pepper, harus berhenti di beberapa pos sepanjang rute untuk menyusui sang anak dan menghadapi tantangan ganda sebagai seorang ibu dan atlet.
+ Case tidak hanya berhasil menyelesaikan perlombaan ini, tetapi juga keluar sebagai juara pertama kategori wanita dengan catatan waktu 16 jam 53 menit 22 detik.
+
+ Sebagai ibu dari seorang bayi perempuan bernama Pepper, Case harus menghadapi tantangan ganda dalam lomba ini, termasuk menyusui sang anak di sepanjang rute.
+
+ Dengan dukungan suaminya, John Roberts, dan para relawan, Case berhasil menyelesaikan lomba ini dan membuktikan bahwa peran sebagai ibu dan atlet dapat berjalan beriringan.
 
 
 
-Sekarang, mari kita bicara tentang sisi positif dan negatif dari berita ini, dengan sedikit satire yang pedih.
+Sekarang, mari kita bicara tentang sisi positif dan negatif dari informasi ini.
 
- Di satu sisi, kita harus mengakui bahwa Stephanie Case adalah seorang wanita luar biasa yang dapat menyelesaikan lomba 100 kilometer sambil menyusui anaknya - itu adalah prestasi yang sangat mengesankan! Namun, di sisi lain, kita juga harus bertanya-tanya apakah kita telah mencapai titik di mana kita lebih peduli dengan kehebatan seorang ibu daripada kesejahteraan anaknya.
+ Wow, apa yang telah dilakukan oleh Stephanie Case? Ia seperti seorang superwoman yang dapat melakukan segalanya, dari menyusui bayinya hingga memenangkan lomba lari lintas alam! Sisi positifnya adalah bahwa Case telah menunjukkan bahwa peran sebagai ibu dan atlet tidaklah saling eksklusif.
 
- Apakah benar bahwa kita harus memuji seorang ibu yang berlari 100 kilometer sambil menyusui anaknya, atau apakah kita harus mempertanyakan prioritasnya? Jangan salah, saya sangat menghormati Stephanie Case, tapi saya juga ingin tahu apakah anaknya, Pepper, sudah siap untuk menjadi pengemudi timnya sendiri dalam beberapa tahun mendatang.
+ Ia telah membuktikan bahwa dengan dukungan yang tepat, seorang ibu dapat tetap melanjutkan karir dan hobi yang dicintainya.
+
+ Namun, sisi negatifnya adalah bahwa Case harus menghadapi tantangan yang tidak mudah, seperti menyusui bayinya di sepanjang rute dan berpisah dengan sang anak.
+
+ Ini seperti sebuah lelucon yang tidak enak, di mana seorang ibu harus memilih antara menyusui bayinya atau memenangkan lomba.
+
+ Tapi, Case telah membuktikan bahwa dengan keberanian dan dukungan yang tepat, seorang ibu dapat melakukan segalanya.
+
+ Jadi, bagi semua ibu di luar sana, jangan ragu untuk mengejar impianmu, karena kamu dapat melakukan segalanya!
