@@ -1,7 +1,9 @@
+# 3 Cara Membersihkan Tanaman Hias agar Tetap Subur dan Bebas Debu
+
+Debu dan kotoran yang menempel pada daun dapat menghambat proses fotosintesis serta memperburuk penampilan tanaman. 
+
 | Field       | Value                                                       |
 |-------------|-------------------------------------------------------------|
-| title       | 3 Cara Membersihkan Tanaman Hias agar Tetap Subur dan Bebas Debu |
-| description | Debu dan kotoran yang menempel pada daun dapat menghambat proses fotosintesis serta memperburuk penampilan tanaman.  |
 | urlshort    | http://kmp.im/AGHpFZ |
 | author      | Lulu Lukyani |
 | editor      | Lulu Lukyani |
@@ -53,6 +55,26 @@ Untuk tanaman berdaun berbulu, gunakan semprotan udara (*spray air*) untuk menga
 Selain itu, untuk tanaman berdaun berbulu, kamu juga bisa menggunakan kuas make-up berbulu lembut untuk membersihkan permukaan daunnya. Hindari kuas kasar, seperti kuas oles makanan, karena bisa merusak jaringan daun yang halus.
 
 ---
-Berikut ringkasan singkat berita tersebut: Merawat tanaman hias tidak hanya tentang menyiram dan memberi pupuk, tetapi juga menjaga kebersihan daunnya. Debu dan kotoran pada daun dapat menghambat fotosintesis dan memperburuk penampilan tanaman. Membersihkan tanaman secara rutin dapat menjaga kesuburannya, mempercantik tampilannya, dan mencegah serangan hama. Idealnya, tanaman hias dibersihkan sebulan sekali, tetapi frekuensi pembersihan dapat disesuaikan dengan kondisi rumah. Cara membersihkan tanaman hias dapat dilakukan dengan menyiram, menggunakan botol semprot, atau bahkan tanpa air, tergantung pada jenis tanaman.
+Berikut adalah ringkasan berita dalam satu paragraf: Merawat tanaman hias tidak hanya tentang penyiraman dan pemberian pupuk, tetapi juga menjaga kebersihan daunnya.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit bumbu satire. Ya, kita tahu bahwa membersihkan tanaman hias itu penting, tapi siapa yang tidak malas melakukan itu? Sisi positifnya, membersihkan tanaman hias dapat membuat kita merasa seperti orang tua yang peduli dengan anak-anaknya (dalam hal ini, tanaman hias). Namun, sisi negatifnya, kita harus bersiap-siap untuk mengeluarkan dana tambahan untuk membeli botol semprot, sabun cuci piring, dan kuas make-up berbulu lembut. Dan, tidak lupa, kita juga harus menyediakan waktu untuk membersihkan tanaman hias sebulan sekali, yang berarti kita harus mengorbankan waktu bermain game atau menonton Netflix. Tapi, percayalah, itu semua sepadan dengan hasilnya: tanaman hias yang sehat, cantik, dan bebas dari debu. Jadi, ayo, mulai membersihkan tanaman hias kita dan jadilah orang tua yang peduli dengan anak-anak tanaman hias kita!
+ Debu dan kotoran pada daun dapat menghambat proses fotosintesis dan memperburuk penampilan tanaman.
+
+ Oleh karena itu, membersihkan tanaman secara rutin dapat membantu menjaga kesuburannya, mempercantik tampilannya, dan mencegah serangan hama.
+
+ Idealnya, tanaman hias dibersihkan sebulan sekali, tetapi frekuensi pembersihan dapat lebih sering tergantung kondisi rumah.
+
+ Ada beberapa cara untuk membersihkan tanaman hias, seperti menyiramnya, menggunakan botol semprot, atau bahkan tanpa air menggunakan kain lembut atau semprotan udara.
+
+
+
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
+
+ Jadi, kita harus membersihkan tanaman hias kita secara rutin? Wah, tambahan lagi tugas rumah yang harus kita lakukan.
+
+ Tapi, secara positif, membersihkan tanaman hias dapat membantu menjaga kesuburannya dan mempercantik tampilannya, jadi kita tidak perlu malu jika tamu datang ke rumah.
+
+ Namun, di sisi negatif, kita harus bersiap-siap untuk mengeluarkan uang lebih untuk membeli peralatan pembersih tanaman, seperti botol semprot dan kain lembut.
+
+ Tapi, hei, setidaknya kita dapat menggunakan kuas make-up berbulu lembut untuk membersihkan tanaman, jadi kita tidak perlu membuang uang untuk membeli kuas khusus tanaman.
+
+ Jadi, mari kita mulai membersihkan tanaman hias kita dan menjadi "orang tua tanaman" yang lebih baik, agar tanaman kita dapat tumbuh dengan sehat dan bahagia, dan kita dapat menjadi bangga dengan taman kita yang indah.
