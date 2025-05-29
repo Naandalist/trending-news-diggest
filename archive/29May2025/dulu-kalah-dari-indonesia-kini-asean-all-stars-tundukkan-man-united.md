@@ -10,6 +10,8 @@ ASEAN All Stars bukanlah tim baru. Skuad gabungan pemain Asia Tenggara ini perta
 | author      | Firzie A. Idris |
 | editor      | Firzie A. Idris |
 
+![Pemain Timnas Indonesia Talaohu Abdulmushafry menyundul bola dalam pertandingan amal melawan Asean All Star di Stadion Utama Gelora Bung Karno, Senayan, Jakarta, Minggu (11/5/2014). Pertandingan ini merupakan pertandingan amal bagi korban bencana angin topan di Filipina. ](https://asset.kompas.com/crops/xeJorxqO5EmvPyJJin4u2QyhpwI=/0x0:780x390/780x390/data/photo/2014/05/12/0502029ENDO780x390.jpg)
+
 **KOMPAS.com** -- Manchester United harus menanggung malu dalam laga perdana tur pascamusim mereka di Asia setelah tumbang 0-1 dari ASEAN All Stars pada Rabu (28/5/2025).
 
 Pertandingan Asean All Stars vs Manchester United berlangsung di Stadion Nasional Bukit Jalil, Malaysia, hanya melahirkan satu gol. 
@@ -59,22 +61,22 @@ Pelatih: Rajagopal
 ::::
 
 ---
-Berita terbaru dari dunia sepak bola, Manchester United harus menelan kekalahan dalam laga perdana tur pascamusim mereka di Asia setelah kalah 0-1 dari ASEAN All Stars.
+Manchester United mengalami kekalahan memalukan dalam laga perdana tur pascamusim mereka di Asia, kalah 0-1 dari ASEAN All Stars pada Rabu (28/5/2025) di Stadion Nasional Bukit Jalil, Malaysia.
 
- Pertandingan yang berlangsung di Stadion Nasional Bukit Jalil, Malaysia, hanya melahirkan satu gol yang dicetak oleh Maung Maung Lwin, kapten Timnas Myanmar, pada menit ke-71.
+ Gol tunggal dalam pertandingan itu dicetak oleh Maung Maung Lwin, kapten Timnas Myanmar, setelah menerima umpan terobosan dari Adrian Segecic pada menit ke-71.
 
- Ini merupakan kekalahan yang memalukan bagi Manchester United, terutama considers sejarah bahwa ASEAN All Stars sebelumnya kalah dari Timnas Indonesia dalam laga amal pada 2014.
+ Ini menjadi sorotan tajam, terutama jika menengok sejarah, ketika ASEAN All Stars sebelumnya kalah dari Timnas Indonesia dalam laga amal pada 2014.
 
 
 
-Sekarang, mari kita bicara tentang kehebatan ASEAN All Stars dan kehancuran Manchester United.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menusuk.
 
- Jelas, ini adalah kekalahan yang sangat memalukan bagi Manchester United, karena mereka kalah dari tim yang sebelumnya kalah dari Timnas Indonesia.
+ Di sisi positif, ASEAN All Stars berhasil menumbangkan raksasa Sepakbola Inggris, Manchester United, yang tentunya menjadi kebanggaan bagi sepakbola Asia Tenggara.
 
- Ini seperti saya kalah dari adik saya, lalu adik saya kalah dari anak kecil di seberang jalan.
+ Ini menunjukkan bahwa tim-tim lokal kita bisa bersaing dengan tim-tim besar dunia.
 
- Ini benar-benar memalukan! Tapi, kita harus memberikan applause kepada ASEAN All Stars yang berhasil mengalahkan tim besar seperti Manchester United.
+ Tapi, di sisi negatif, ini juga menunjukkan bahwa Manchester United sedang mengalami krisis yang dalam, sehingga bisa kalah dari tim yang mungkin belum pernah mereka dengar sebelumnya.
 
- Mungkin mereka bisa membuka mata kita bahwa sepak bola di Asia Tenggara tidak hanya tentang Indonesia, tapi juga tentang negara-negara lain yang memiliki talenta yang luar biasa.
+ Ini seperti saya kalah dalam pertandingan sepakbola dari tim anak-anak SD, sungguh memalukan! Tapi, hei, setidaknya ASEAN All Stars bisa berkata, "Kami telah mengalahkan Manchester United, dan itu lebih baik daripada yang bisa dikatakan oleh banyak tim lain di dunia.
 
- Jadi, mari kita jangan terlalu sombong dan mengakui kehebatan tim lain, terutama ASEAN All Stars yang berhasil mengalahkan Manchester United.
+" Jadi, mari kita nikmati kemenangan ini dan berharap tim-tim Asia Tenggara kita terus bersaing di kancah sepakbola internasional.
