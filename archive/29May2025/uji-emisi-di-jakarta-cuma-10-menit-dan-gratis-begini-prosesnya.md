@@ -35,16 +35,22 @@ Perlu diketahui, hasil uji emisi ini berlaku selama satu tahun. Artinya, pemilik
 Selain di bengkel-bengkel yang telah bekerja sama, layanan uji emisi juga tersedia di kantor Dinas Lingkungan Hidup (DLH) DKI Jakarta yang buka Senin sampai Jumat, pukul 08.00 WIB sampai 15.00 WIB.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Dinas Lingkungan Hidup (DLH) DKI Jakarta menyampaikan bahwa kegiatan uji emisi kendaraan bermotor dapat dilakukan dengan mudah dan gratis, khusus bagi warga Ibu Kota.
+Berikut ringkasan berita dalam satu paragraf: Dinas Lingkungan Hidup (DLH) DKI Jakarta menyediakan layanan uji emisi kendaraan bermotor yang gratis dan hanya membutuhkan waktu 5-10 menit, khusus bagi warga Ibu Kota.
 
- Prosesnya hanya membutuhkan waktu 5-10 menit, di mana pengguna cukup menyerahkan fotokopi STNK dan menunjukkan Kartu Tanda Penduduk (KTP).
+ Prosesnya cukup mudah, pengguna hanya perlu menyerahkan fotokopi STNK dan menunjukkan KTP, lalu petugas akan memasukkan alat ke bagian knalpot untuk mengukur emisi gas buang.
 
- Setelah itu, petugas akan memasukkan alat ke bagian knalpot untuk mengukur emisi gas buang, dan hasil pengukuran akan menunjukkan parameter seperti karbonmonoksida (CO), karbondioksida (CO2), hidrokarbon (HC), hingga kadar oksigen.
+ Hasil pengukuran akan menunjukkan parameter seperti karbonmonoksida, karbondioksida, hidrokarbon, dan kadar oksigen, yang menjadi tolok ukur apakah kendaraan dinyatakan lolos atau tidak.
+
+ Jika hasilnya tidak memenuhi ambang batas, kendaraan wajib mendapatkan perbaikan, dan hasil uji emisi ini berlaku selama satu tahun.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu roasting yang menyakitkan.
 
- Jadi, kita memiliki layanan uji emisi yang gratis dan mudah, tapi apakah itu benar-benar efektif? Atau hanya sebuah trik untuk membuat kita merasa bahwa pemerintah peduli dengan lingkungan? Sisi positifnya, kita dapat memeriksa emisi gas buang kendaraan kita dan mengurangi dampaknya terhadap lingkungan.
+ Sisi positifnya, layanan uji emisi yang gratis dan mudah ini bisa membuat warga Ibu Kota lebih peduli dengan lingkungan dan kesehatan mereka sendiri.
 
- Tapi, sisi negatifnya, apakah kita dapat yakin bahwa hasil uji emisi tersebut akurat dan tidak dipengaruhi oleh faktor-faktor lain? Dan apa yang terjadi jika kendaraan kita gagal uji emisi? Apakah kita harus mengeluarkan biaya tambahan untuk perbaikan? Jadi, kita harus tetap waspada dan tidak terlalu percaya diri dengan layanan ini, karena seperti yang kita tahu, "janji pemerintah itu seperti janji pacar, selalu diingkari".
+ Tapi, sisi negatifnya, masih banyak orang yang tidak peduli dengan emisi gas buang kendaraan mereka, dan mungkin mereka lebih peduli dengan harga bensin yang murah daripada kesehatan mereka sendiri.
+
+ Dan, apa yang lebih menyakitkan lagi, masih banyak bengkel yang tidak mau bekerja sama dengan DLH untuk menyediakan layanan uji emisi, mungkin karena mereka lebih suka menerima uang dari pemilik kendaraan yang tidak mau memperbaiki kendaraan mereka.
+
+ Jadi, bagi kamu yang masih menggunakan kendaraan yang mengeluarkan asap tebal, mungkin sudah waktunya untuk memperbaiki atau mengganti kendaraanmu, agar kamu tidak menjadi penyebab polusi udara di Ibu Kota.
