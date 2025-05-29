@@ -10,6 +10,8 @@ Presiden Prabowo Subianto menerima tanda kehormatan dari Prancis, momen bersejar
 | author      | Adhyasta Dirgantara |
 | editor      | Danu Damarjati  |
 
+![Presiden RI Prabowo Subianto menerima tanda jasa Legion of Honour dari Presiden Prancis Emmanuel Macron di Akmil, Magelang, Kamis (29/5/2025). ](https://asset.kompas.com/crops/j7-5JVsF-vXjRaowsW8YRSWD3QI=/0x0:0x0/750x500/data/photo/2025/05/29/6837f19cd12ec.jpg)
+
 **JAKARTA, KOMPAS.com** - Presiden RI Prabowo Subianto menerima tanda jasa dari pemerintahan Prancis berupa *Legion of Honour*.
 
 Berdasarkan tayangan YouTube Setpres, Kamis (29/5/2025), penghargaan itu diterima Prabowo setelah dirinya dan Presiden Prancis Emmanuel Macron berkeliling mengecek pasukan di Akademi Militer (Akmil), Magelang, Jawa Tengah.
@@ -29,20 +31,18 @@ Mereka pun berjabat tangan.
 Mereka pun mengunjungi ruang kelas taruna yang sedang belajar Bahasa Prancis.
 
 ---
-Berita terbaru dari Jakarta, Presiden RI Prabowo Subianto baru saja menerima penghargaan *Legion of Honour* dari pemerintahan Prancis, yang merupakan penghargaan kehormatan tertinggi *Grand-croix de la Légion d'honneur*.
+Presiden RI Prabowo Subianto baru saja menerima penghargaan tertinggi dari Pemerintahan Prancis, yaitu *Legion of Honour* atau *Grand-croix de la Légion d'honneur*, setelah berkeliling mengecek pasukan di Akademi Militer (Akmil) Magelang, Jawa Tengah, bersama Presiden Prancis Emmanuel Macron.
 
- Penghargaan ini diterima oleh Prabowo setelah dia dan Presiden Prancis Emmanuel Macron melakukan inspeksi pasukan di Akademi Militer (Akmil) Magelang, Jawa Tengah.
+ Penghargaan ini diberikan sebagai tanda jasa dan kehormatan tertinggi, dan Prabowo menerimanya dengan gestur hormat dan jabat tangan dengan Macron.
 
- Setelah upacara penghargaan, mereka berdua melakukan kunjungan ke ruang kelas taruna yang sedang belajar Bahasa Prancis.
-
- Ini adalah momen yang sangat penting dan mendapat perhatian besar dari masyarakat.
+ Setelah upacara penganugerahan, mereka berdua melanjutkan kunjungan ke ruang kelas taruna yang sedang belajar Bahasa Prancis.
 
 
 
-Tapi, mari kita lihat sisi lainnya, apa gunanya penghargaan ini bagi rakyat Indonesia? Apakah harga barang-barang di pasar akan turun karena Prabowo dapat penghargaan dari Prancis? Atau apakah korupsi di negara kita akan berkurang karena Prabowo dipuja oleh pemerintahan Prancis? Saya rasa ini hanya sebagai pencuci nama dan pencitraan semata.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Prabowo harus ingat, rakyat Indonesia tidak butuh *Legion of Honour*, tapi butuh harga beras yang murah, butuh biaya hidup yang terjangkau, dan butuh keadilan yang sebenarnya.
+ Sisi positifnya, Prabowo berhasil menerima penghargaan dari Pemerintahan Prancis, yang berarti kita bisa menyebutnya "Pangeran kehormatan" sekarang.
 
- Jadi, alangkah baiknya jika Prabowo fokus pada memperbaiki kehidupan rakyat Indonesia, bukan hanya memperbaiki citra dirinya di mata internasional.
+ Tapi, sisi negatifnya, apakah ini berarti kita harus mulai memanggilnya "Votre Excellence" dan membayar pajak lebih tinggi untuk membiayai biaya pengiriman penghargaan ini? Atau mungkin ini hanya cara Prancis untuk membalas dendam atas kekalahan mereka di Piala Dunia sepak bola yang lalu? Hmm, mungkin saja.
 
- Dan, Macron, jangan terlalu bangga dengan penghargaan yang kamu berikan, karena kita semua tahu bahwa penghargaan itu hanya sebagai simbol kekuasaan dan kepentingan politik belaka.
+ Yang jelas, Prabowo pasti akan menyimpan penghargaan ini di lemari piala yang sudah penuh dengan penghargaan lainnya, seperti "Penghargaan untuk Makan Nasi Goreng Paling Cepat" atau "Penghargaan untuk Menggunakan Jas Paling Mewah".
