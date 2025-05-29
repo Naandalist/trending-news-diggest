@@ -61,24 +61,28 @@ Durasi video yang dihasilkan lewat Veo 3 maksimal delapan detik dengan resolusi 
  
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Google baru saja meluncurkan model pembuatan video AI terbarunya, Veo 3, di ajang Google I/O 2025.
+Berikut adalah rangkuman berita tersebut dalam satu paragraf: Google baru saja meluncurkan model pembuatan video AI terbarunya, Veo 3, di ajang tahunan Google I/O 2025.
 
  Veo 3 merupakan penerus dari Veo 2 yang dapat menciptakan konten baru berbasis AI dengan fokus pada pembuatan video.
 
- Fitur-fitur baru seperti peningkatan respon terhadap prompt, kemampuan mengikuti serangkaian tindakan dan adegan dengan akurasi yang lebih baik, serta kemampuan untuk menghasilkan audio percakapan atau efek suara yang sesuai membuat video yang dihasilkan terasa lebih hidup.
+ Dengan kemampuan yang lebih baik, Veo 3 dapat menghasilkan video sinematik dengan kualitas yang lebih tinggi dan dapat mengikuti serangkaian tindakan dan adegan dengan akurasi yang lebih baik.
 
- Veo 3 dapat digunakan melalui model AI generatif Gemini dan alat pembuatan film AI Flow, dan saat ini tersedia di negara Amerika Serikat.
+ Selain itu, Veo 3 juga dapat menghasilkan audio percakapan atau efek suara yang sesuai, sehingga video yang dihasilkan terasa lebih hidup.
+
+ Pengguna dapat menggunakan Veo 3 melalui model AI generatif Gemini dan alat pembuatan film AI Flow.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita berbicara tentang sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Di sisi positif, Veo 3 memang merupakan kemajuan besar dalam teknologi AI, dan kemampuan untuk menghasilkan video sinematik dengan kualitas tinggi serta respon yang akurat terhadap prompt adalah sebuah kemajuan luar biasa.
+ Sisi positifnya adalah bahwa Veo 3 dapat membantu kita menciptakan konten video yang lebih baik dan lebih menarik tanpa harus memiliki kemampuan pembuatan video yang profesional.
 
- Namun, di sisi negatif, kita harus bertanya-tanya apakah kita sudah siap untuk kehilangan pekerjaan sebagai pembuat konten karena AI yang semakin pintar.
+ Namun, sisi negatifnya adalah bahwa Veo 3 dapat membuat kita semua menjadi malas dan tidak perlu lagi memiliki kemampuan kreatif karena semuanya dapat dilakukan oleh AI.
 
- Bayangkan saja,Veo 3 bisa membuat video yang lebih baik dari kita, dan itu sangat menyakitkan.
+ Bayangkan saja, kita dapat membuat video sinematik yang bagus hanya dengan memasukkan perintah teks dan menunggu AI melakukan sisanya.
 
- Selain itu, kita juga harus khawatir tentang privasi dan keamanan data kita, karena Veo 3 dapat mengumpulkan data kita untuk meningkatkan kemampuan AI-nya.
+ Kita tidak perlu lagi memiliki pengetahuan tentang pembuatan film, editing, atau bahkan aktor yang bagus.
 
- Jadi, kita harus berhati-hati dan bertanya-tanya apakah kita sudah siap untuk hidup di dunia yang dipenuhi oleh AI yang semakin pintar dan mengancam.
+ Veo 3 dapat melakukan semua itu untuk kita, dan kita hanya perlu duduk dan menikmati hasilnya.
+
+ Wah, betapa menyenangkannya! Tapi, apakah kita akan kehilangan kemampuan kreatif kita sendiri? Apakah kita akan menjadi terlalu bergantung pada AI? Pertanyaan-pertanyaan ini membuat saya ingin bertanya, "Apakah kita masih memiliki jiwa kreatif kita sendiri, atau hanya menjadi robot yang dikendalikan oleh AI?"
