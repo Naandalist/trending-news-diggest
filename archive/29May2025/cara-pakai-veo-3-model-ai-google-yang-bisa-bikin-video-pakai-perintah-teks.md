@@ -61,28 +61,22 @@ Durasi video yang dihasilkan lewat Veo 3 maksimal delapan detik dengan resolusi 
  
 
 ---
-Berikut adalah rangkuman berita tersebut dalam satu paragraf: Google baru saja meluncurkan model pembuatan video AI terbarunya, Veo 3, di ajang tahunan Google I/O 2025.
+Berikut adalah ringkasan berita tersebut: Google baru saja meluncurkan model pembuatan video AI terbarunya, Veo 3, di ajang Google I/O 2025.
 
- Veo 3 merupakan penerus dari Veo 2 yang dapat menciptakan konten baru berbasis AI dengan fokus pada pembuatan video.
+ Veo 3 merupakan penerus dari Veo 2 dan dapat menciptakan konten baru berbasis AI yang fokus di pembuatan video.
 
- Dengan kemampuan yang lebih baik, Veo 3 dapat menghasilkan video sinematik dengan kualitas yang lebih tinggi dan dapat mengikuti serangkaian tindakan dan adegan dengan akurasi yang lebih baik.
-
- Selain itu, Veo 3 juga dapat menghasilkan audio percakapan atau efek suara yang sesuai, sehingga video yang dihasilkan terasa lebih hidup.
-
- Pengguna dapat menggunakan Veo 3 melalui model AI generatif Gemini dan alat pembuatan film AI Flow.
+ Fitur-fitur baru yang ditawarkan oleh Veo 3 termasuk peningkatan respon terhadap prompt, kemampuan mengikuti serangkaian tindakan dan adegan dengan akurasi yang lebih baik, serta kemampuan membuat video sinematik dengan kualitas yang lebih baik.
 
 
 
-Sekarang, mari kita berbicara tentang sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit guyonan yang menyakitkan.
 
- Sisi positifnya adalah bahwa Veo 3 dapat membantu kita menciptakan konten video yang lebih baik dan lebih menarik tanpa harus memiliki kemampuan pembuatan video yang profesional.
+ Jadi, Veo 3 ini seperti pacar yang kamu impikan, bisa membuat video sinematik yang membuat kamu terkesan, tapi sayangnya hanya bisa membuat video dengan durasi maksimal delapan detik, jadi seperti pacar yang hanya bisa bertahan selama delapan detik sebelum kamu bosan.
 
- Namun, sisi negatifnya adalah bahwa Veo 3 dapat membuat kita semua menjadi malas dan tidak perlu lagi memiliki kemampuan kreatif karena semuanya dapat dilakukan oleh AI.
+ Tapi serius, Veo 3 ini menawarkan fitur-fitur yang cukup canggih dan bisa membuat konten video yang menarik.
 
- Bayangkan saja, kita dapat membuat video sinematik yang bagus hanya dengan memasukkan perintah teks dan menunggu AI melakukan sisanya.
+ Namun, perlu diingat bahwa Veo 3 masih dalam tahap eksperimental dan hanya tersedia di Amerika Serikat, jadi kamu harus menggunakan VPN untuk mencobanya.
 
- Kita tidak perlu lagi memiliki pengetahuan tentang pembuatan film, editing, atau bahkan aktor yang bagus.
+ Jadi, jika kamu merasa cukup berani untuk mencoba Veo 3, silakan saja, tapi jangan lupa untuk membawa popcorn karena kamu akan membutuhkannya untuk menonton video-video yang dihasilkan oleh Veo 3.
 
- Veo 3 dapat melakukan semua itu untuk kita, dan kita hanya perlu duduk dan menikmati hasilnya.
-
- Wah, betapa menyenangkannya! Tapi, apakah kita akan kehilangan kemampuan kreatif kita sendiri? Apakah kita akan menjadi terlalu bergantung pada AI? Pertanyaan-pertanyaan ini membuat saya ingin bertanya, "Apakah kita masih memiliki jiwa kreatif kita sendiri, atau hanya menjadi robot yang dikendalikan oleh AI?"
+ Oh, dan satu lagi, jangan harap Veo 3 bisa membuat video yang lebih baik dari video yang kamu buat sendiri, karena let's face it, kamu bukanlah seorang sinematografer handal.
