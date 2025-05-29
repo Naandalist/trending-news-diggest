@@ -10,6 +10,8 @@ Sejumlah media ASEAN menyoroti kekalahan memalukan MU di Malaysia. Ada yang meny
 | author      | Muhammad Iqbal Amar |
 | editor      | Irawan Sapto Adhi |
 
+![Patrick Dorgu (tengah) dari Manchester United berebut bola dengan pemain ASEAN All Stars Kealey Adamson (kanan) dan Kan Mo (kiri) selama pertandingan persahabatan eksibisi antara Manchester United dan Asean All-Stars di Stadion Nasional Bukit Jalil di Kuala Lumpur pada 28 Mei 2025.](https://asset.kompas.com/crops/EIYSo_pVqnF2P12CnbiYsPZuHys=/0x0:1024x683/750x500/data/photo/2025/05/28/6837244a17603.jpg)
+
 **KOMPAS.com -** Tim Liga Inggris Manchester United (MU) kembali menelan pil pahit usai dipermalukan oleh tim ASEAN All-Stars dalam pertandingan di Stadion Nasional Bukit Jalil, Malaysia pada Rabu (28/5/2025) malam.
 
 Dalam pertandingan di ajang Maybank Challenge Cup tersebut, MU harus mengakui kekalahan 0-1 dari tim ASEAN All-Stars yang belum lama dibentuk.
@@ -83,26 +85,20 @@ Ia menekankan bahwa tidak ada pemain yang cedera dalam laga ini dan menyatakan p
 \"Hal yang baik tentang pertandingan ini adalah kami tidak memiliki pemain yang cedera lagi. Terimalah bahwa ada risiko. Namun, kami harus menghormati para suporter. Membuat semua pemain harus diturunkan ke lapangan. Kami harus memenangkan pertandingan ini. Namun, kami harus melupakannya,\" kata Amorim.
 
 ---
-Berikut adalah ringkasan singkat dari laporan berita tersebut: Tim Manchester United (MU) kembali mengalami kekalahan, kali ini dari tim ASEAN All-Stars dengan skor 0-1 dalam pertandingan di Stadion Nasional Bukit Jalil, Malaysia.
+Berikut adalah ringkasan berita dalam satu paragraf: Tim Manchester United (MU) kembali mengalami kekalahan setelah dipermalukan oleh tim ASEAN All-Stars dengan skor 0-1 dalam pertandingan di Stadion Nasional Bukit Jalil, Malaysia.
 
- Kekalahan ini merupakan lanjutan dari kegagalan MU di final Liga Europa dan membuat mereka tidak lolos ke Liga Champions musim depan.
+ Pertandingan ini merupakan bagian dari Maybank Challenge Cup, dan kekalahan MU ini menjadi perbincangan hangat di media ASEAN dan warganet.
 
- Meskipun MU memiliki pemain-pemain bintang, mereka tidak mampu mengalahkan tim ASEAN All-Stars yang sebagian besar bermain di liga domestik.
+ Meskipun MU memiliki pemain-pemain bintang seperti Harry Maguire, Hojlund, dan Casemiro, mereka tidak mampu mengalahkan tim gabungan pemain Asia Tenggara yang sebagian besar hanya berlaga di liga-liga domestik.
 
 
 
-Sekarang, mari kita bahas bagian paling menyenangkan - menyebarkan caci maki yang menyakitkan! Jadi, MU kalah lagi, dan kali ini dari tim ASEAN All-Stars.
+Sekarang, mari kita lihat sisi positif dan negatif dari kekalahan MU ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Ini seperti kakek kita yang masih ingin jadi bintang sepak bola, tapi malah jatuh dan terjengkang.
+ Ya, kita bisa bilang bahwa kekalahan MU ini adalah kegagalan total, tetapi setidaknya mereka konsisten dalam kegagalan mereka, kan? Mereka seperti tim yang selalu siap untuk membuat kita tertawa dengan kebodohan mereka.
 
- Mereka memiliki pemain-pemain bintang seperti Harry Maguire, Hojlund, dan Casemiro, tapi masih kalah dari tim yang sebagian besar bermain di liga domestik.
+ Dan yang lebih lucu lagi, mereka memiliki pemain-pemain bintang yang tidak bisa memenangkan pertandingan melawan tim gabungan pemain Asia Tenggara yang hanya berlatih dua sesi! itu seperti menyewa seorang koki Michelin untuk memasak nasi goreng, tapi malah membuatnya menjadi nasi basi.
 
- Ini seperti memiliki Ferrari, tapi tidak tahu cara mengemudi.
+ Tapi, mari kita jangan terlalu keras pada MU, karena mereka masih memiliki fans yang setia, bahkan jika mereka tidak memiliki pemain yang bisa memenangkan pertandingan.
 
- Media ASEAN juga tidak ragu-ragu untuk menyebarkan caci maki, dengan salah satu media Malaysia mengatakan bahwa MU sebaiknya bermain di liga yang lebih rendah.
-
- Saya setuju, karena mereka tidak layak bermain di level tertinggi.
-
- Tapi, kita harus mengakui bahwa kekalahan ini juga membuat kita sedikit bangga, karena tim ASEAN All-Stars mampu mengalahkan tim besar seperti MU.
-
- Jadi, mari kita nikmati kekalahan MU ini dan tidak lupa untuk menertawakan mereka sedikit.
+ Mungkin mereka bisa mencoba merekrut pemain-pemain dari tim ASEAN All-Stars, karena mereka sudah terbukti bisa mengalahkan MU!
