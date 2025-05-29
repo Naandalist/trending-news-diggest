@@ -25,18 +25,16 @@ Selain itu, pengguna jalan juga diingatkan untuk memastikan kecukupan saldo kart
 Selalu patuhi rambu-rambu lalu lintas serta ikuti arahan petugas di lapangan demi menjaga keselamatan dan kelancaran selama perjalanan.
 
 ---
-Berikut adalah rangkuman berita tersebut dalam satu kalimat: Dalam rangka menghadapi lonjakan lalu lintas saat libur panjang Kenaikan Yesus Kristus, Jasa Marga dan Kepolisian menerapkan rekayasa lalu lintas contraflow di Ruas Tol Jagorawi arah Puncak untuk mengurangi kepadatan kendaraan dan memperlancar arus lalu lintas.
+Berikut adalah ringkasan berita dalam satu paragraf: Dalam menyambut libur panjang Kenaikan Yesus Kristus, Jasa Marga dan pihak Kepolisian menerapkan rekayasa lalu lintas berupa contraflow di Ruas Tol Jagorawi arah Puncak.
 
- Pemberlakuan rekayasa ini berlaku mulai pukul 06.
+ Rekayasa ini berlaku mulai pukul 06.
 
-00 WIB dan berlangsung dari KM 44+400 hingga KM 46+400, serta diimbaukan kepada pengguna jalan untuk mempersiapkan rute perjalanan dan memastikan kecukupan saldo kartu tol elektronik untuk menghindari antrean.
+00 WIB, dari KM 44+400 hingga KM 46+400, dengan tujuan mengurai kepadatan kendaraan dan menjaga kelancaran arus lalu lintas menuju kawasan wisata Puncak.
+
+ Jasa Marga mengimbau pengguna jalan untuk mengantisipasi rute perjalanan dan memastikan kecukupan saldo kartu tol elektronik sebelum memulai perjalanan.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit bumbu roasting yang sakit.
 
- Sisi positifnya, contraflow ini bisa membantu mengurangi kepadatan lalu lintas dan membuat perjalanan kita lebih lancar, meskipun itu berarti kita harus rela menjadi kelinci percobaan untuk sistem lalu lintas yang belum teruji.
-
- Sisi negatifnya, kita harus siap-siap menghadapi kemacetan yang masih akan terjadi, serta para pengemudi yang masih belum paham konsep dasar mengemudi, seperti menghidupkan lampu sen dan tidak menyeruduk ke jalur contraflow.
-
- Jadi, selamat menikmati perjalanan Anda, dan jangan lupa untuk membawa sabar dan kesabaran ekstra karena kita semua akan menjadi bagian dari "rekayasa" lalu lintas ini.
+ Jadi, contraflow di Tol Jagorawi, itu seperti solusi untuk mengatasi kepadatan kendaraan, tapi juga seperti memindahkan kemacetan dari satu tempat ke tempat lain, kan? "Hai, kami tahu kamu ingin ke Puncak, tapi kami ingin kamu merasakan kemacetan dulu, baru deh kamu bisa menikmati liburanmu!" Sisi positifnya, setidaknya Jasa Marga dan Kepolisian mencoba melakukan sesuatu untuk mengatasi kepadatan, tapi sisi negatifnya, apa tidak ada solusi yang lebih kreatif? Misalnya, membuat jalur khusus untuk mereka yang ingin pergi ke Puncak dengan membawa oleh-oleh yang banyak, atau membuat jalur untuk mereka yang ingin pergi ke Puncak dengan mengendarai kendaraan yang sudah dipenuhi dengan kemacetan di dalamnya? Ya, itu hanya bercanda, tapi serius, semoga contraflow ini bisa membantu mengurangi kepadatan dan membuat liburan kita semua lebih menyenangkan!
