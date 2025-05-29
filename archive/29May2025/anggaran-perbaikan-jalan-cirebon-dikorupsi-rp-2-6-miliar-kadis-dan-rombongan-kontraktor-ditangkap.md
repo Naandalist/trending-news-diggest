@@ -43,24 +43,28 @@ Ketujuh tersangka diancam menggunakan Undang-Undang Nomor 31 Tahun 1999 yang tel
 Kejari Kabupaten Cirebon masih melakukan pendalaman dan pengembangan kasus ini.
 
 ---
-Berikut ringkasan singkat berita dalam satu paragraf: Kabupaten Cirebon, Jawa Barat, mengalami skandal korupsi anggaran perbaikan jalan di Kecamatan Losari dan Kecamatan Lemahabang yang mencapai Rp 2,6 miliar dari dana Bantuan Keuangan Khusus (BKK) tahun anggaran 2024.
+Berikut adalah rangkuman berita dalam satu paragraf: Di Kabupaten Cirebon, Jawa Barat, ditemukan kasus korupsi anggaran perbaikan jalan di Kecamatan Losari dan Kecamatan Lemahabang yang mencapai sekitar Rp 2,6 miliar.
 
- Tujuh orang, termasuk Kepala Dinas Perumahan, Kawasan Permukiman dan Pertahanan (DPKPP) Kabupaten Cirebon dan enam kontraktor, telah ditetapkan sebagai tersangka.
+ Kasus ini melibatkan tujuh orang, termasuk Kepala Dinas Perumahan, Kawasan Permukiman dan Pertahanan (DPKPP) Kabupaten Cirebon dan enam kontraktor swasta.
 
- Kasus korupsi ini melibatkan proyek peningkatan jalan dan drainase yang tidak dikerjakan secara maksimal, menyebabkan kerugian negara mencapai Rp 2,694 miliar.
+ Mereka dituduh melakukan tindak pidana korupsi dengan modus tidak mengerjakan tugas sepenuhnya secara maksimal, sehingga negara mengalami kerugian mencapai Rp 2,694 miliar.
+
+ Ketujuh tersangka diancam dengan ancaman maksimal 20 tahun penjara berdasarkan Undang-Undang Nomor 31 Tahun 1999 tentang Pemberantasan Tindak Pidana Korupsi.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari kasus ini dengan sedikit sindiran yang pedas.
 
- Sisi positifnya, kita memiliki contoh lain bahwa Indonesia masih memiliki aparatus hukum yang berfungsi, setidaknya dalam menangkap dan menjerat para koruptor.
+ Sisi positifnya, kita memiliki Kejari Kabupaten Cirebon yang cukup tanggap dalam menangani kasus korupsi ini, sehingga kita bisa melihat bahwa ada upaya serius untuk memberantas korupsi di Indonesia.
 
- Namun, sisi negatifnya, korupsi masih menjadi "budaya" yang sangat kuat di negeri ini.
+ Namun, sisi negatifnya, kita masih melihat bahwa korupsi masih merajalela di negeri ini, dan itu sangat memalukan.
 
- Bayangkan, Rp 2,6 miliar bisa hilang begitu saja karena ketamakan beberapa orang.
+ Kita memiliki pejabat yang tidak bertanggung jawab, kontraktor yang tidak profesional, dan sistem yang masih belum efektif dalam mencegah korupsi.
 
- Ini seperti membayangkan sebuah cerita komedi, tetapi sayangnya, ini adalah kenyataan yang pahit.
+ Bayangkan, 72,49% dan 90,57% dari pekerjaan perbaikan jalan tidak dikerjakan, itu seperti membuang uang rakyat ke selokan.
 
- Para koruptor ini seolah-olah telah menganggap anggaran negara sebagai "uang jajan" pribadi mereka, dan kita, rakyat, yang harus menanggung akibatnya.
+ Jadi, kita harus terus meneriakkan bahwa korupsi tidak bisa diterima, dan kita harus terus memperjuangkan transparansi dan akuntabilitas dalam pengelolaan anggaran negara.
 
- Jadi, mari kita tunggu dan lihat apa yang akan terjadi selanjutnya dengan kasus ini, dan berharap bahwa para koruptor ini akan mendapatkan hukuman yang setimpal dengan "prestasi" mereka.
+ Dan kepada para koruptor, saya katakan, "Kalian memang pintar, tapi pintar dalam melakukan kezaliman, dan itu tidak akan membuat kalian menjadi bangga, karena kalian hanya akan menjadi bahan ejekan bagi rakyat Indonesia.
+
+"
