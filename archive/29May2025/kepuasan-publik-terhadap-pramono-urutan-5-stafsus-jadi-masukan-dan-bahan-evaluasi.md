@@ -10,6 +10,8 @@ Pramono-Rano posisi kelima tingkat kepuasan masyarakat terhadap Gubernur dan Wak
 | author      | Ruby Rachmadina |
 | editor      | Akhdi Martin Pratama |
 
+![Gubernur Jakarta Pramono Anung saat menyampaikan pidato dalam acara pembubaran tim sukses Pramono Anung-Rano Karno di Jalan Cemara, Gondangdia, Menteng, Jakarta Pusat, Sabtu (8/3/2025). ](https://asset.kompas.com/crops/4r3eIFgm13-dCzCSaU7BG6udOvA=/0x0:0x0/750x500/data/photo/2025/03/08/67cc30fd4c5be.jpg)
+
 **JAKARTA, KOMPAS.com** - Staf Khusus Gubernur dan Wakil Gubernur Jakarta Bidang Komunikasi Publik, Chico Hakim, menanggapi hasil survei Indikator Politik Indonesia yang menunjukkan tingkat kepuasan masyarakat terhadap kinerja Gubernur Pramono Anung dan Wakil Gubernur Rano Karno berada di posisi kelima se-Pulau Jawa dalam 100 hari kerja pertama mereka.
 
 Chico menyatakan bahwa hasil survei tersebut akan menjadi bahan evaluasi bagi Pemprov Jakarta.
@@ -49,26 +51,34 @@ Selain itu, angka kepuasan masyarakat terhadap Pramono-Rano juga masih di bawah 
 Hanya gubernur dan wakil gubernur Banten yang mencatatkan tingkat kepuasan masyarakat lebih rendah dari Pramono-Rano.
 
 ---
-Berita hari ini menyebutkan bahwa gubernur dan wakil gubernur Jakarta, Pramono Anung dan Rano Karno, menduduki peringkat kelima dalam tingkat kepuasan masyarakat di Pulau Jawa setelah 100 hari kerja.
+Berikut adalah ringkasan dari laporan berita tersebut: Staf Khusus Gubernur dan Wakil Gubernur Jakarta, Chico Hakim, memberikan tanggapan atas hasil survei Indikator Politik Indonesia yang menunjukkan tingkat kepuasan masyarakat terhadap kinerja Gubernur Pramono Anung dan Wakil Gubernur Rano Karno berada di posisi kelima se-Pulau Jawa dalam 100 hari kerja pertama mereka.
 
- Menurut survei Indikator Politik Indonesia, 60 persen warga Jakarta menyatakan puas terhadap kinerja Pramono Anung, sedangkan 60,5 persen puas terhadap Rano Karno.
-
- Staf khusus gubernur, Chico Hakim, menyatakan bahwa hasil survei ini akan menjadi bahan evaluasi bagi Pemprov Jakarta dan menekankan pentingnya memperhatikan faktor-faktor seperti metode survei dan demografi responden.
+ Chico menyatakan bahwa hasil survei tersebut akan menjadi bahan evaluasi bagi Pemprov Jakarta dan menjelaskan bahwa banyak faktor yang harus diperhatikan dalam membaca hasil survei, termasuk metode survei, demografi responden, dan konteks pertanyaan yang diajukan.
 
 
 
-Tapi mari kita lihat sisi lainnya, bro.
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, gubernur dan wakil gubernur kita ini berada di peringkat kelima, tapi Chico Hakim masih mencoba mempertahankan wajah dengan mengatakan bahwa masyarakat Jakarta terlalu kritis dan sulit puas.
+ Jadi, Gubernur Pramono Anung dan Wakil Gubernur Rano Karno berada di posisi kelima dalam tingkat kepuasan masyarakat, wow, itu prestasi yang luar biasa.
 
- Haha, apa ini, sih? Masyarakat Jakarta memang pintar dan berpendidikan tinggi, tapi itu tidak berarti mereka tidak bisa melihat kinerja gubernur yang baik atau buruk.
+.
 
- Dan apa itu, 60 persen puas? Itu artinya 40 persen tidak puas, bro.
+.
 
- Mungkin Pramono Anung dan Rano Karno harus lebih banyak lagi kerja keras dan tidak hanya fokus pada program-program penting, tapi juga memperhatikan kebutuhan masyarakat secara keseluruhan.
+ atau tidak? Mereka berhasil membuat masyarakat Jakarta yang terkenal heterogen dan berpendidikan tinggi hanya 60% puas dengan kinerja mereka.
 
- Dan, ya, peringkat kelima? Itu tidak jelek, tapi juga tidak bagus.
+ Saya rasa itu sudah cukup bagus, mengingat banyak hal yang harus mereka hadapi di Jakarta, seperti macet, polusi, dan kemacetan lagi.
 
- Mungkin mereka harus belajar dari gubernur Jawa Barat, Dedi Mulyadi, yang mendapatkan tingkat kepuasan masyarakat tertinggi dengan 94,7 persen.
+ Tapi, tentu saja, ada yang lebih baik daripada mereka, seperti Gubernur Jawa Barat Dedi Mulyadi yang berhasil mendapatkan 94,7% tingkat kepuasan masyarakat.
 
- Jadi, mari kita tunggu dan lihat apa yang akan dilakukan Pramono Anung dan Rano Karno untuk meningkatkan kinerja mereka dan membuat masyarakat Jakarta lebih puas.
+ Mungkin Pramono Anung dan Rano Karno harus belajar dari Dedi Mulyadi tentang bagaimana menjadi gubernur yang populer, yaitu dengan aktif di masyarakat dan masif di media sosial.
+
+ Atau, mungkin mereka hanya perlu fokus pada membuat masyarakat Jakarta tidak terlalu kritis dan tidak terlalu suka mengeluh.
+
+ Yang pasti, ada banyak pekerjaan rumah yang harus mereka lakukan untuk meningkatkan tingkat kepuasan masyarakat, dan saya yakin mereka akan berhasil.
+
+.
+
+.
+
+ atau tidak.
