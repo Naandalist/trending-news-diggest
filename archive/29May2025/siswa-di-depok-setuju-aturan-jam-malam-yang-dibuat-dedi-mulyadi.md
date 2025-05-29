@@ -10,6 +10,8 @@ Anggi (17), siswa kelas XI SMA di Depok, menilai kebijakan jam malam bagus agar 
 | author      | Lidia Pratama Febrian |
 | editor      | Akhdi Martin Pratama |
 
+![Aturan Jam Malam Pelajar di Jabar, Warga Depok: Perlu Pendekatan Orang Tua dan Sekolah](https://asset.kompas.com/crops/xoSzLInpNSKPXXaZzK0N0lLJi3M=/0x0:0x0/750x500/data/photo/2025/05/29/6837df07c615a.jpeg)
+
 **DEPOK, KOMPAS.com** - Sejumlah siswa di Depok setuju dengan adanya aturan jam malam yang dibuat Gubernur Jawa Barat Dedi Mulyadi.
 
 Anggi (17), siswa kelas XI SMA di Depok, menilai kebijakan jam malam bagus agar para siswa fokus belajar ketimbang keluyuran di malam hari.
@@ -45,24 +47,26 @@ Ia memastikan pendekatan yang digunakan bersifat edukatif, bukan hukuman fisik.
 Aturan yang tertuang dalam Surat Edaran Nomor 51/PA.03/DISDIK itu melarang pelajar berkegiatan di luar rumah pada pukul 21.00 hingga 04.00 WIB, kecuali untuk kepentingan pendidikan, keagamaan, atau alasan ekonomi mendesak, dengan syarat didampingi orang tua.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Sejumlah siswa di Depok mendukung kebijakan jam malam yang diterapkan oleh Gubernur Jawa Barat Dedi Mulyadi, yang melarang pelajar berkegiatan di luar rumah pada pukul 21.
+Berikut adalah ringkasan berita dalam satu paragraf: Beberapa siswa di Depok setuju dengan kebijakan jam malam yang diterapkan Gubernur Jawa Barat Dedi Mulyadi, yang melarang pelajar berkegiatan di luar rumah pada pukul 21.
 
 00 hingga 04.
 
 00 WIB, kecuali untuk kepentingan pendidikan, keagamaan, atau alasan ekonomi mendesak.
 
- Siswa seperti Anggi dan Lukman menyatakan bahwa aturan jam malam dapat membantu mereka fokus belajar, tetapi juga meminta agar aturan tersebut dibarengi dengan pendekatan yang jelas dan komunikasi rutin antara sekolah, orangtua, dan siswa.
+ Siswa seperti Anggi dan Lukman menyatakan bahwa kebijakan ini bagus asal ada aturan yang jelas dan tidak memberatkan mereka.
 
- Orangtua seperti Abdul Rahman dan Ela juga mendukung kebijakan jam malam, tetapi menyoroti pentingnya peran sekolah dalam menyosialisasikan aturan ini dan memberikan informasi kepada orangtua tentang aktivitas anak di luar jam sekolah.
+ Mereka juga menyarankan agar sekolah berperan aktif dalam memberikan informasi kepada orangtua mengenai aktivitas anak di luar jam sekolah.
+
+ Orangtua seperti Abdul Rahman dan Ela juga mendukung kebijakan ini, tetapi menyoroti pentingnya peran sekolah dalam menyosialisasikan aturan ini.
 
 
 
-Sekarang, mari kita bahas tentang sisi baik dan buruk dari kebijakan jam malam ini.
+Sekarang, mari kita lihat sisi positif dan negatif dari kebijakan ini dengan sedikit sentuhan humor yang menyakitkan.
 
- Saya rasa ini adalah langkah yang baik untuk membuat anak-anak fokus belajar, tapi jangan lupa, anak-anak juga butuh kebebasan untuk mengembangkan kreativitas dan sosialisasi mereka.
+ Sisi positifnya, kebijakan jam malam ini dapat membantu siswa fokus belajar dan menghindari kegiatan yang tidak baik di malam hari.
 
- Tapi, apa yang lebih menyakitkan adalah ketika orangtua dan sekolah tidak berkomunikasi dengan baik, sehingga anak-anak menjadi korban kebijakan yang tidak jelas.
+ Tapi, sisi negatifnya, kebijakan ini dapat membuat siswa merasa seperti dipenjara di rumah sendiri, tanpa kebebasan untuk melakukan apa yang mereka inginkan.
 
- Saya seperti ingin bertanya, "Apakah gubernur kita lupa bahwa anak-anak juga butuh kebebasan untuk membuat kesalahan dan belajar dari kesalahan tersebut?" Atau, "Apakah kita ingin membuat anak-anak kita menjadi seperti robot yang hanya bisa belajar dan tidak bisa bersosialisasi?" Saya rasa, kebijakan jam malam ini perlu dilakukan dengan lebih hati-hati dan tidak hanya mengandalkan aturan, tetapi juga pendekatan yang edukatif dan komunikasi yang baik antara semua pihak.
+ Bayangkan, kamu harus memiliki izin dari orangtua atau sekolah untuk keluar rumah setelah pukul 21.
 
- Jadi, mari kita jangan hanya terfokus pada aturan, tetapi juga pada kebutuhan dan hak-hak anak-anak kita.
+00, itu seperti hidup di bawah rezim militer! Tapi, tentu saja, ini semua dilakukan untuk "kebaikan" kita, kan? Jadi, mari kita terima kebijakan ini dengan lapang dada dan berharap bahwa ini akan membuat kita menjadi generasi yang "sehat, kuat, cerdas, berakhlak, dan berdaya saing" seperti yang diinginkan Gubernur Jawa Barat.
