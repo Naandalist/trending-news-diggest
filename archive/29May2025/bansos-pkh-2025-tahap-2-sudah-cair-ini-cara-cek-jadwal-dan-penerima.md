@@ -2,15 +2,15 @@
 
 Kemensos mulai menyalurkan bansos PKH 2025 tahap 2 pada Rabu (28/5/2025). Pencairan bansos PKH dilakukan secara bertahap. Simak cara cek penerimanya.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Bansos PKH 2025 Tahap 2 Sudah Cair, Ini Cara Cek Jadwal dan Penerima |
-| description | Kemensos mulai menyalurkan bansos PKH 2025 tahap 2 pada Rabu (28/5/2025). Pencairan bansos PKH dilakukan secara bertahap. Simak cara cek penerimanya. |
-| urlshort    | http://kmp.im/AGHp76 |
-| author      | Mela Arnani |
-| editor      | Mela Arnani |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Bansos PKH 2025 Tahap 2 Sudah Cair, Ini Cara Cek Jadwal dan Penerima |
+| 📝 Description | Kemensos mulai menyalurkan bansos PKH 2025 tahap 2 pada Rabu (28/5/2025). Pencairan bansos PKH dilakukan secara bertahap. Simak cara cek penerimanya. |
+| 🔗 Short URL   | http://kmp.im/AGHp76 |
+| 👤 Author      | Mela Arnani |
+| ✏️ Editor      | Mela Arnani |
 
-![Ilustrasi uang. Bansos PKH 2025. Bansos PKH 2025 tahap 2. Bansos PKH 2025 kapan cair?](https://asset.kompas.com/crops/xM2Go5zDU63n8i8-6GANiqpZEUE=/126x44:5144x3389/750x500/data/photo/2025/03/13/67d21bd3a391b.jpg)
+![Ilustrasi cek bansos PKH 2025. Cek bansos PKH 2025 tahap 2. Cara cek jadwal pencairan bansos PKH 2025 tahap 2.](https://asset.kompas.com/crops/91kIS9P1togJEGPlJCEZkClnfVk=/0x0:882x588/750x500/data/photo/2025/05/29/683807b09262a.jpg)
 
 **KOMPAS.com -** Pemerintah melalui Kementerian Sosial (Kemensos) mulai menyalurkan bantuan sosial triwulan II (April-Juni) tahun 2025 mulai Rabu, 28 Mei 2025. Bansos yang cair salah satunya adalah Program Keluarga Harapan (PKH).
 
@@ -30,7 +30,7 @@ Saat hasil pencarian cek bansos Kemensos menunjukkan keterangan **\"YA\"** dalam
 
 Namun, untuk memastikan tanggal berapa PKH tahap 2 cair, Anda bisa mengeceknya ke desa/kelurahan atau pendamping PKH masing-masing.
 
-Adapun cara cek penerima dan jadwal pencairan PKH 2025 via cek bansos Kemensos sebagai berikut:
+\[img.2\]Adapun cara cek penerima dan jadwal pencairan PKH 2025 via cek bansos Kemensos sebagai berikut:
 
 - Akses laman <https://cekbansos.kemensos.go.id>
 - Masukkan nama, provinsi, kabupaten/kota, kecamatan, dan desa
@@ -64,22 +64,26 @@ Sebagai informasi, Kemensos menyalurkan sebanyak Rp 10 triliun untuk 16,5 juta K
 \[video.1\]
 
 ---
-Berikut adalah ringkasan berita dalam bahasa Indonesia: Pemerintah melalui Kementerian Sosial (Kemensos) telah memulai penyaluran bantuan sosial triwulan II tahun 2025, termasuk Program Keluarga Harapan (PKH), mulai tanggal 28 Mei 2025.
+## Ringkasan
 
- Penyaluran bansos PKH dilakukan secara bertahap, dan Keluarga Penerima Manfaat (KPM) dapat memantau jadwal pencairannya melalui situs cek bansos Kemensos.
+Pemerintah telah mulai menyalurkan bantuan sosial triwulan II tahun 2025, termasuk Program Keluarga Harapan (PKH), mulai Rabu, 28 Mei 2025.
 
- Proses pemutakhiran Data Tunggal Sosial dan Ekonomi Nasional (DTSEN) telah dilakukan untuk memastikan akurasi data penerima bansos.
+ Pencairan bansos PKH 2025 tahap 2 dilakukan bertahap, dan Keluarga Penerima Manfaat (KPM) dapat memantau secara berkala jadwal pencairannya melalui cek bansos Kemensos.
+
+ Informasi tentang penyaluran bansos dapat diperiksa melalui laman <https://cekbansos.
+
+kemensos.
+
+go.
+
+id>.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Wah, akhirnya bansos cair juga, ya! 🤑 Tapi, jangan terlalu senang dulu, karena proses pencairannya masih bertahap, dan kamu harus memantau jadwal pencairannya secara berkala 📅.
 
- Sisi positifnya, pemerintah telah memulai penyaluran bantuan sosial, yang berarti bahwa mereka masih peduli dengan nasib rakyatnya (setidaknya, itu yang mereka klaim).
+ Jangan sampai kamu ketinggalan, karena pengecekan penerima dan jadwal pencairan harus dilakukan melalui cek bansos Kemensos 🤦‍♂️.
 
- Namun, sisi negatifnya, proses penyaluran bansos masih dilakukan secara bertahap, yang berarti bahwa banyak keluarga masih harus menunggu dengan sabar untuk menerima bantuan yang mereka butuhkan.
+ Tapi, secara keseluruhan, ini adalah kabar baik, karena pemerintah sudah mulai menyalurkan bantuan sosial untuk 16,5 juta KPM bansos triwulan II tahun 2025 🙌.
 
- Dan, seperti biasa, ada kemungkinan bahwa data penerima bansos masih tidak akurat, sehingga ada kemungkinan bahwa bantuan tidak akan sampai ke tangan yang tepat.
-
- Tapi, hey, setidaknya pemerintah telah mencoba, kan? Mungkin mereka harus mencoba lebih keras lagi, atau mungkin mereka hanya perlu mencetak lebih banyak uang untuk membiayai program ini.
-
- Ah, who knows, mungkin saja kita semua hanya perlu berdoa lebih keras agar bantuan sosial ini benar-benar efektif.
+ Jadi, ingat, cek bansos kamu, dan jangan lupa untuk mengusulkan atau menyanggah data yang ada, karena pemerintah ingin meminimalkan ketidaktepatan sasaran dalam penyaluran bansos 🙏.
