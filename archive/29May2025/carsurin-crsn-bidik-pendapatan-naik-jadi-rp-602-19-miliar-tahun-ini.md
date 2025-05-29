@@ -12,6 +12,8 @@ CRSN sendiri telah membukukan pendapatan sebesar Rp 448,51 miliar pada 2024, ata
 | author      | Agustinus Rangga Respati |
 | editor      | Aprillia Ika |
 
+![Kiri-kanan: Erwin Manurung Direktur, Harold David Loevy Direktur, Sheila Maria Tiwan Direktur Utama dan Timotius Nugraha Tjahjana Direktur](https://asset.kompas.com/crops/9gXvJS0Tv4Sv40wWWJ9BqcoYH7M=/0x0:0x0/750x500/data/photo/2025/05/29/6837dcb5be91a.jpg)
+
 **JAKARTA, KOMPAS.com** - Emiten penyedia layanan Testing, Inspection, and Certification (TIC) PT Carsurin Tbk atau CRSN membidik target pertumbuhan pendapatan senilai Rp 602,19 miliar pada tahun buku 2025. Target pendapatan itu naik 34,26 persen dibandingkan pendapatan yang dibukukan pada 2024.\
 \
 CRSN sendiri telah membukukan pendapatan sebesar Rp 448,51 miliar pada 2024, atau meningkat Rp 4,09 miliar dibandingkan 2023.\
@@ -38,24 +40,18 @@ Selain itu, perseroan juga telah berekspansi ke sektor baru seperti analisis jej
 \
 
 ---
-Berikut adalah ringkasan berita tersebut dalam satu paragraf: PT Carsurin Tbk (CRSN) membidik target pendapatan sebesar Rp 602,19 miliar pada tahun 2025, meningkat 34,26 persen dibandingkan pendapatan pada 2024.
+Berikut adalah ringkasan berita dalam satu paragraf: PT Carsurin Tbk (CRSN), emiten penyedia layanan Testing, Inspection, and Certification (TIC), menargetkan pendapatan sebesar Rp 602,19 miliar pada tahun buku 2025, meningkat 34,26 persen dibandingkan dengan pendapatan pada 2024.
 
- Pendapatan perseroan pada 2024 mencapai Rp 448,51 miliar, dengan segmen Inspeksi sebagai penyumbang utama pendapatan sebesar Rp 358,83 miliar.
+ Pada 2024, CRSN membukukan pendapatan sebesar Rp 448,51 miliar, dengan segmen Inspeksi sebagai penyumbang utama pendapatan perseroan.
 
- Direktur Utama CRSN, Sheila Tiwan, mengatakan bahwa dedikasi tim dan strategi yang tepat memungkinkan perseroan meraih pertumbuhan yang berkelanjutan dan mempertahankan posisi sebagai pelopor di industri TIC.
+ Direktur Utama CRSN, Sheila Tiwan, menyatakan bahwa dedikasi tim dan strategi yang tepat memungkinkan perseroan untuk meraih pertumbuhan yang berkelanjutan dan mempertahankan posisi sebagai pelopor di industri TIC.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan humor yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
 
- Jadi, CRSN ini kayak pacar yang baru saja naik pangkat, pendapatannya meningkat, dan dia jadi lebih percaya diri.
+ Jadi, CRSN ingin meningkatkan pendapatannya menjadi Rp 602,19 miliar pada 2025? Wow, itu sangat ambisius, tetapi apakah mereka sudah siap untuk menghadapi tantangan yang akan datang? Sisi positifnya, CRSN telah memiliki strategi yang tepat dengan fokus pada segmen Inspeksi dan Investasi berkelanjutan, sehingga mereka dapat memanfaatkan peluang pertumbuhan dan menjaga arus kas yang sehat.
 
- Tapi, kita harus lihat juga sisi lainnya, seperti EBITDA yang turun pada 2024, itu kayak ketika pacar kamu tiba-tiba jadi lebih pelit.
+ Tapi, sisi negatifnya, apakah mereka sudah siap untuk menghadapi persaingan yang semakin ketat di industri TIC? Dan apa yang akan terjadi jika target pendapatan mereka tidak tercapai? Mungkin mereka harus mulai memikirkan strategi lain, seperti membuat produk yang lebih inovatif atau memperluas layanan mereka ke sektor lain.
 
- Tapi, dengan proyeksi pertumbuhan EBITDA yang signifikan pada 2025, itu kayak pacar kamu yang berjanji akan lebih dermawan di masa depan.
-
- Lalu, ada juga ekspansi ke sektor baru seperti analisis jejak karbon dan solusi digital canggih, itu kayak pacar kamu yang tiba-tiba jadi lebih pintar dan menjaga lingkungan.
-
- Tapi, kita harus tetap waspada, karena pendapatan yang meningkat juga bisa berarti bahwa CRSN akan lebih banyak mengeluarkan uang untuk belanja modal, kayak pacar kamu yang tiba-tiba jadi lebih suka berbelanja.
-
- Jadi, kita harus lihat secara keseluruhan, apakah CRSN ini benar-benar bisa menjadi pacar yang ideal, atau hanya sekadar pacar yang kayaknya cukup baik tapi masih perlu diperbaiki.
+ Tapi, secara keseluruhan, CRSN telah menunjukkan kemampuan mereka untuk beradaptasi dan tumbuh, jadi mari kita tunggu apa yang akan terjadi pada 2025.
