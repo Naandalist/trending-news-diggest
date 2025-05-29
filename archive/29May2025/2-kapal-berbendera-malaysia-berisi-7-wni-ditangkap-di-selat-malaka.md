@@ -10,6 +10,8 @@ Dua kapal asing berbendera Malaysia ditangkap KKP di Selat Malaka karena penangk
 | author      | Goklas Wisely  |
 | editor      | Andi Hartik |
 
+![Dua kapal asing dengan bendera Malaysia ditangkap Kementrian Kelautan dan Perikanan (KKP) di perairan Indonesia, Selat Malaka, karena melakukan penangkapan ikan ilegal. ](https://asset.kompas.com/crops/CD3_fzfdyz-gd8qL0fS0vTuiB90=/0x0:0x0/750x500/data/photo/2025/05/29/6837f75d07dbc.jpg)
+
 **MEDAN, KOMPAS.com** - Dua kapal asing dengan bendera Malaysia ditangkap Kementerian Kelautan dan Perikanan (KKP) di perairan Selat Malaka karena melakukan penangkapan ikan ilegal.
 
 Direktur Jenderal Pengawasan Sumber Daya Kelautan dan Perikanan (PSDKP) Pung Nugroho Saksono menyampaikan, petugas melakukan penangkapan dengan Kapal Pengawas (KP) Hiu 16 pada Senin (26/6/2025).
@@ -39,18 +41,20 @@ Kepala Stasiun PSDKP Belawan, M Syamsu Rokman, menambahkan, kedua kapal itu mela
 ---
 Berikut adalah ringkasan berita dalam satu paragraf: Dua kapal asing dengan bendera Malaysia telah ditangkap oleh Kementerian Kelautan dan Perikanan (KKP) di perairan Selat Malaka karena melakukan penangkapan ikan ilegal.
 
- Kapal-kapal tersebut tidak memiliki dokumen perizinan dari Pemerintah Indonesia dan menggunakan alat penangkapan ikan trawl, yang menyebabkan potensi kerugian negara sebesar Rp 19,9 miliar.
+ Kapal Pengawas (KP) Hiu 16 berhasil menangkap kedua kapal tersebut yang tidak memiliki dokumen perizinan dari Pemerintah Indonesia dan menggunakan alat penangkapan ikan trawl.
 
- Awak kapal yang terdiri dari 7 orang WNI bekerja di Malaysia dengan motivasi gaji yang tinggi, tetapi tidak mengikuti prosedur yang benar.
+ Kedua kapal tersebut ditemukan membawa awak kapal WNI dan memiliki muatan ikan campur.
 
- Kedua kapal tersebut sekarang sedang diproses lebih lanjut oleh Penyidik Pegawai Negeri Sipil (PPNS) Perikanan Stasiun PSDKP Belawan.
+ Potensi kerugian negara dari aktivitas ilegal tersebut diperkirakan sebesar Rp 19,9 miliar.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit roster yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Sisi positifnya, kita harus berterima kasih kepada KKP yang telah menangkap kapal-kapal ilegal tersebut, sehingga kita bisa menyelamatkan sumber daya laut kita dari para perompak Malaysia.
+ Sisi positifnya, kita telah berhasil menangkap kapal-kapal asing yang tidak ingin mengikuti aturan, dan itu berarti kita telah menyelamatkan kerugian negara sebesar Rp 19,9 miliar - walaupun itu hanya sebagian kecil dari total kerugian yang kita derita karena korupsi dan kelemahan sistem.
 
- Tapi, sisi negatifnya, apa yang salah dengan orang Indonesia kita ini? Mengapa mereka rela bekerja ilegal di Malaysia hanya untuk gaji yang tinggi? Apakah mereka tidak tahu bahwa mereka sedang merugikan negara sendiri? Dan apa yang dilakukan oleh pemerintah kita untuk mencegah hal seperti ini terjadi lagi? Sepertinya, kita masih perlu melakukan banyak hal untuk menjaga sumber daya laut kita dan meningkatkan kesadaran masyarakat tentang pentingnya melestarikan lingkungan laut.
+ Sisi negatifnya, kita masih memiliki banyak awak kapal WNI yang bekerja ilegal di kapal-kapal asing, yang menunjukkan bahwa kita masih memiliki masalah besar dalam mengurus sumber daya manusia kita.
 
- Jadi, mari kita tunggu apa yang akan terjadi selanjutnya, dan semoga saja kita bisa belajar dari kesalahan-kesalahan ini.
+ Dan, tentu saja, kita tidak bisa melupakan bahwa kita masih memiliki banyak pejabat yang tidak melakukan tugasnya dengan baik, sehingga kita masih perlu menangkap kapal-kapal asing secara manual.
+
+ Jadi, mari kita terus berjuang melawan kejahatan dan ketidakadilan, tapi juga jangan lupa untuk menertawakan diri kita sendiri karena kita masih memiliki banyak pekerjaan rumah yang belum selesai.
