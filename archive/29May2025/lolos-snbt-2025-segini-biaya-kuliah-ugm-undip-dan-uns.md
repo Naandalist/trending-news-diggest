@@ -2,13 +2,13 @@
 
 Pengumuman hasil SNBT 2025 sudah diumumkan, ini rincian biaya kuliah di UGM, UNS, dan Undip.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Lolos SNBT 2025, Segini Biaya Kuliah UGM, Undip, dan UNS |
-| description | Pengumuman hasil SNBT 2025 sudah diumumkan, ini rincian biaya kuliah di UGM, UNS, dan Undip. |
-| urlshort    | http://www.kompas.com/tren/read/2025/05/29/140000265/lolos-snbt-2025-segini-biaya-kuliah-ugm-undip-d |
-| author      | Retia Kartika Dewi |
-| editor      | Resa Eka Ayu Sartika |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Lolos SNBT 2025, Segini Biaya Kuliah UGM, Undip, dan UNS |
+| 📝 Description | Pengumuman hasil SNBT 2025 sudah diumumkan, ini rincian biaya kuliah di UGM, UNS, dan Undip. |
+| 🔗 Short URL   | http://www.kompas.com/tren/read/2025/05/29/140000265/lolos-snbt-2025-segini-biaya-kuliah-ugm-undip-d |
+| 👤 Author      | Retia Kartika Dewi |
+| ✏️ Editor      | Resa Eka Ayu Sartika |
 
 ![ilustrasi daftar biaya kuliah di UGM, Undip, dan UNS jalur SNBT 2025/2026.](https://asset.kompas.com/crops/xrt6HpA0GGyBEOenXzZc1MJknM0=/0x0:407x271/750x500/data/photo/2025/05/28/683706515e431.png)
 
@@ -94,26 +94,30 @@ Berikut ilustrasi pembiayaan kuliah calon mahasiswa yang diterima di prodi Hukum
 Daftar lengkap biaya kuliah atau UKT di Undip dapat disimak di link [*ini*](https://pmb.undip.ac.id/wp-content/uploads/2025/03/Biaya-Studi-Sarjana-dan-Vokasi-2025-2026.pdf).
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pengumuman hasil Ujian Tertulis Berbasis Komputer Seleksi Nasional Berdasarkan Tes (UTBK SNBT) tahun ini sudah bisa diakses sejak Rabu (28/5/2025) pukul 15.
+## Ringkasan
+
+Ringkasan berita: Hasil Ujian Tertulis Berbasis Komputer Seleksi Nasional Berdasarkan Tes (UTBK SNBT) tahun ini telah diumumkan dan dapat diakses sejak Rabu (28/5/2025) pukul 15.
 
 00 WIB.
 
- Bagi peserta yang lolos seleksi, mereka perlu memperhatikan biaya kuliah dari program studi yang dipilihnya.
+ Bagi peserta yang lolos seleksi, mereka perlu memperhatikan biaya kuliah dari program studi yang dipilihnya, terutama biaya kuliah tunggal (UKT) yang diterapkan oleh beberapa perguruan tinggi negeri (PTN).
 
- Beberapa perguruan tinggi negeri (PTN) seperti Universitas Gadjah Mada (UGM), Universitas Diponegoro (Undip), dan Universitas Sebelas Maret (UNS) menerapkan biaya kuliah yang disebut uang kuliah tunggal (UKT) yang besarnya berbeda-beda sesuai dengan kemampuan finansial orangtua/wali dan program studi yang dipilih.
+ Beberapa PTN seperti Universitas Gadjah Mada (UGM), Universitas Diponegoro (Undip), dan Universitas Sebelas Maret (UNS) telah merilis daftar biaya kuliah mereka.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit bumbu satire yang menyakitkan.
+Hmm, mari kita bahas biaya kuliah ini dengan sedikit sentuhan humor 🤣.
 
- Di satu sisi, kita harus bersyukur bahwa hasil UTBK SNBT sudah diumumkan, sehingga para calon mahasiswa bisa segera mempersiapkan diri untuk memasuki dunia perkuliahan yang penuh dengan tugas, ujian, dan.
+ Jadi, bagi kalian yang lolos SNBT 2025, kalian harus siap-siap untuk merogoh kocek kalian karena biaya kuliah di beberapa PTN itu tidak murah, bro! 🤑 Misalnya, di UNS, biaya kuliah untuk prodi Kedokteran bisa mencapai Rp 269.
 
-.
+920.
 
-.
+000 per semester, wow! 🤯 Sedangkan di UGM, biaya kuliah untuk prodi Akuntansi bisa mencapai Rp 9.
 
- utang! Ya, karena biaya kuliah yang dikutip oleh beberapa PTN tersebut bisa membuat orangtua/wali para calon mahasiswa menangis darah.
+200.
 
- Tapi, setidaknya, dengan sistem UKT, para calon mahasiswa dari keluarga kurang mampu bisa mendapatkan kesempatan untuk berkuliah dengan biaya yang lebih terjangkau.
+000 per semester, masih terjangkau, tapi tetap aja mahal, kan? 🤔 Dan di Undip, biaya kuliah untuk prodi Hukum bisa mencapai Rp 7.
 
- Namun, di sisi lain, kita juga harus bertanya, apakah benar bahwa biaya kuliah yang dikutip oleh beberapa PTN tersebut sudah "adil" dan "terjangkau" bagi semua kalangan? Atau apakah itu hanya sebuah ilusi yang diciptakan untuk membuat para calon mahasiswa merasa "lega" sebelum mereka menyadari bahwa mereka harus mengeluarkan kocek yang sangat dalam untuk bisa berkuliah? Ah, pertanyaan yang sangat filosofis, bukan?
+000.
+
+000 per semester, lumayan juga, bro! 💸 Jadi, bagi kalian yang ingin kuliah di PTN, kalian harus siap-siap untuk menghadapi biaya kuliah yang tidak murah, tapi tetap aja worth it, kan? 😊
