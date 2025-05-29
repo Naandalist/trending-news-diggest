@@ -2,13 +2,13 @@
 
 Pramono-Rano posisi kelima tingkat kepuasan masyarakat terhadap Gubernur dan Wakil Gubernur di Pulau Jawa dalam 100 hari kerja.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Kepuasan Publik terhadap Pramono Urutan 5, Stafsus: Jadi Masukan dan Bahan Evaluasi |
-| description | Pramono-Rano posisi kelima tingkat kepuasan masyarakat terhadap Gubernur dan Wakil Gubernur di Pulau Jawa dalam 100 hari kerja. |
-| urlshort    | http://kmp.im/AGHp7h |
-| author      | Ruby Rachmadina |
-| editor      | Akhdi Martin Pratama |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Kepuasan Publik terhadap Pramono Urutan 5, Stafsus: Jadi Masukan dan Bahan Evaluasi |
+| 📝 Description | Pramono-Rano posisi kelima tingkat kepuasan masyarakat terhadap Gubernur dan Wakil Gubernur di Pulau Jawa dalam 100 hari kerja. |
+| 🔗 Short URL   | http://kmp.im/AGHp7h |
+| 👤 Author      | Ruby Rachmadina |
+| ✏️ Editor      | Akhdi Martin Pratama |
 
 ![Gubernur Jakarta Pramono Anung saat menyampaikan pidato dalam acara pembubaran tim sukses Pramono Anung-Rano Karno di Jalan Cemara, Gondangdia, Menteng, Jakarta Pusat, Sabtu (8/3/2025). ](https://asset.kompas.com/crops/4r3eIFgm13-dCzCSaU7BG6udOvA=/0x0:0x0/750x500/data/photo/2025/03/08/67cc30fd4c5be.jpg)
 
@@ -51,34 +51,22 @@ Selain itu, angka kepuasan masyarakat terhadap Pramono-Rano juga masih di bawah 
 Hanya gubernur dan wakil gubernur Banten yang mencatatkan tingkat kepuasan masyarakat lebih rendah dari Pramono-Rano.
 
 ---
-Berikut adalah ringkasan dari laporan berita tersebut: Staf Khusus Gubernur dan Wakil Gubernur Jakarta, Chico Hakim, memberikan tanggapan atas hasil survei Indikator Politik Indonesia yang menunjukkan tingkat kepuasan masyarakat terhadap kinerja Gubernur Pramono Anung dan Wakil Gubernur Rano Karno berada di posisi kelima se-Pulau Jawa dalam 100 hari kerja pertama mereka.
+## Ringkasan
 
- Chico menyatakan bahwa hasil survei tersebut akan menjadi bahan evaluasi bagi Pemprov Jakarta dan menjelaskan bahwa banyak faktor yang harus diperhatikan dalam membaca hasil survei, termasuk metode survei, demografi responden, dan konteks pertanyaan yang diajukan.
+Berikut adalah ringkasan berita dalam Bahasa Indonesia: Staf Khusus Gubernur dan Wakil Gubernur Jakarta, Chico Hakim, menanggapi survei Indikator Politik Indonesia yang menunjukkan tingkat kepuasan masyarakat terhadap kinerja Gubernur Pramono Anung dan Wakil Gubernur Rano Karno berada di posisi kelima se-Pulau Jawa dalam 100 hari kerja pertama mereka.
+
+ Chico menyatakan bahwa hasil survei tersebut akan menjadi bahan evaluasi bagi Pemprov Jakarta.
+
+ Tingkat kepuasan masyarakat terhadap Pramono-Rano sebesar 60 persen, yang menempatkan mereka di posisi kelima dalam daftar.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
+Hmm, mari kita lihat sisi positif dan negatif dari hasil survei ini 😏.
 
- Jadi, Gubernur Pramono Anung dan Wakil Gubernur Rano Karno berada di posisi kelima dalam tingkat kepuasan masyarakat, wow, itu prestasi yang luar biasa.
+ Jadi, Pramono-Rano berada di posisi kelima, dan itu tidak terlalu buruk, kan? 🤔 Tapi, ada beberapa gubernur lain yang lebih unggul, seperti Kang Dedi Mulyadi yang mendapatkan tingkat kepuasan masyarakat sebesar 94,7 persen 🤯! Ini membuat saya bertanya, apa yang membuat Kang Dedi begitu populer? 🤔 Apakah karena dia aktif di media sosial? 📱 Atau karena dia memiliki wajah yang tampan? 😍 Hmm, mungkin itu kombinasi dari keduanya 🤣.
 
-.
+ Tapi, serius saja, Pramono-Rano harus melakukan sesuatu untuk meningkatkan tingkat kepuasan masyarakat, karena posisi kelima tidaklah cukup bagus 🙅‍♂️.
 
-.
+ Mungkin mereka bisa belajar dari Kang Dedi dan menjadi lebih aktif di media sosial, atau membuat kebijakan yang lebih pro-rakyat 🤝.
 
- atau tidak? Mereka berhasil membuat masyarakat Jakarta yang terkenal heterogen dan berpendidikan tinggi hanya 60% puas dengan kinerja mereka.
-
- Saya rasa itu sudah cukup bagus, mengingat banyak hal yang harus mereka hadapi di Jakarta, seperti macet, polusi, dan kemacetan lagi.
-
- Tapi, tentu saja, ada yang lebih baik daripada mereka, seperti Gubernur Jawa Barat Dedi Mulyadi yang berhasil mendapatkan 94,7% tingkat kepuasan masyarakat.
-
- Mungkin Pramono Anung dan Rano Karno harus belajar dari Dedi Mulyadi tentang bagaimana menjadi gubernur yang populer, yaitu dengan aktif di masyarakat dan masif di media sosial.
-
- Atau, mungkin mereka hanya perlu fokus pada membuat masyarakat Jakarta tidak terlalu kritis dan tidak terlalu suka mengeluh.
-
- Yang pasti, ada banyak pekerjaan rumah yang harus mereka lakukan untuk meningkatkan tingkat kepuasan masyarakat, dan saya yakin mereka akan berhasil.
-
-.
-
-.
-
- atau tidak.
+ Yang jelas, mereka harus melakukan sesuatu untuk meningkatkan popularitas mereka, karena tidak ada yang suka kalah, kan? 🏆👑 😂
