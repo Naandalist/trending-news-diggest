@@ -2,13 +2,13 @@
 
 China secara resmi telah membuka akses ekspor durian beku asal Indonesia.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | China Buka Akses Ekspor Durian Beku Indonesia |
-| description | China secara resmi telah membuka akses ekspor durian beku asal Indonesia. |
-| urlshort    | http://kmp.im/AGHp7Z |
-| author      |  |
-| editor      | Erlangga Djumena |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | China Buka Akses Ekspor Durian Beku Indonesia |
+| 📝 Description | China secara resmi telah membuka akses ekspor durian beku asal Indonesia. |
+| 🔗 Short URL   | http://kmp.im/AGHp7Z |
+| 👤 Author      |  |
+| ✏️ Editor      | Erlangga Djumena |
 
 ![Ilustrasi durian](https://asset.kompas.com/crops/iaU5JAVlIxm1McrAb-5fD5PM69c=/0x0:0x0/750x500/data/photo/2022/11/02/6362456d307aa.jpg)
 
@@ -35,18 +35,16 @@ Lebih lanjut, dia mengatakan, dalam prosesnya ketertelusuran tersebut melibatkan
 \"Dengan terbukanya akses ekspor ini, diharapkan dapat menciptakan iklim investasi yang kondusif di bidang hortikultura dan sebagai sumber perolehan devisa negara untuk mensejahterakan kehidupan petani di Indonesia,\" kata Sahat.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Kepala Badan Karantina Indonesia, Sahat Manaor Panggabean, mengumumkan bahwa China secara resmi telah membuka akses ekspor durian beku Indonesia.
+## Ringkasan
 
- Hal ini dilakukan setelah penandatanganan protokol ekspor durian beku antara Badan Karantina Indonesia dan Menteri General Administration of Customs of the People's Republic of China (GACC) Sun Meijin.
+Berikut adalah ringkasan berita dalam satu paragraf: Kepala Badan Karantina Indonesia, Sahat Manaor Panggabean, mengumumkan bahwa China telah membuka akses ekspor durian beku Indonesia secara resmi.
 
- Protokol ini menekankan pada konsep traceability, di mana proses produksi durian segar dapat terpantau dan tertelusur dari kebun hingga siap dikirimkan.
+ Protokol ekspor ini telah ditandatangani bersama dengan Menteri General Administration of Customs of the People's Republic of China (GACC) Sun Meijin.
 
- Dengan terbukanya akses ekspor ini, diharapkan dapat menciptakan iklim investasi yang kondusif di bidang hortikultura dan meningkatkan kesejahteraan petani di Indonesia.
+ Dengan terbukanya akses ekspor ini, diharapkan dapat meningkatkan investasi di bidang hortikultura dan menjadi sumber perolehan devisa negara.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Hmm, mari kita bahas ini dengan cara yang lebih menyenangkan 😜! Jadi, China telah membuka akses ekspor durian beku kita, dan itu adalah kabar baik, karena kita bisa mendapatkan uang dari penjualan durian beku 🤑! Tapi, jangan lupa, kita juga harus menjaga kualitas durian beku kita, agar tidak membuat orang China sakit perut 🤢.
 
- Ya, kita dapat bersorak-sorak karena durian beku Indonesia akhirnya dapat diekspor ke China, tapi jangan lupa bahwa kita masih perlu memenuhi syarat-syarat yang rumit dan memastikan bahwa produk kita aman untuk dikonsumsi.
-
- Tapi, hei, setidaknya kita dapat meningkatkan kesejahteraan petani dan menciptakan iklim investasi yang kondusif, kan? Tapi, apakah kita sudah siap untuk menghadapi persaingan dengan produk durian beku lainnya di pasar internasional? Atau kita hanya akan menjadi penonton yang terlena oleh janji-janji manis dari pemerintah? Mari kita tunggu dan lihat, karena hanya waktu yang dapat menentukan apakah kita akan menjadi pemain utama di pasar durian beku internasional atau hanya sekedar penonton yang terpinggirkan.
+ Dan, tentu saja, kita harus bersyukur kepada pemerintah yang telah bekerja keras untuk membuat kesepakatan ini 💪! Tapi, saya masih bertanya-tanya, apa yang membuat China ingin membeli durian beku kita? Apakah mereka bosan dengan makanan mereka sendiri? 🤔 Atau apakah mereka hanya ingin mencoba sesuatu yang baru? 🤷‍♂️ Hmm, yang jelas, kita harus terus meningkatkan kualitas dan pemasaran kita, agar durian beku kita bisa menjadi favorit di China 🎉!
