@@ -45,22 +45,28 @@ Wisnu berharap kasus ini bisa menjadi peringatan bagi masyarakat untuk tetap was
  
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Seorang pria bernama Rudiantoro, warga Pulau Sebatik, Nunukan, Kalimantan Utara, melaporkan dirinya sebagai korban begal setelah menyabet uang milik atasannya sebesar Rp 152 juta.
+Berikut adalah ringkasan berita dalam satu paragraf: Seorang pria bernama Rudiantoro dari Pulau Sebatik, Nunukan, Kalimantan Utara, melakukan aksi nekat dengan melukai dirinya sendiri dan membuat laporan palsu sebagai korban begal untuk menggelapkan uang milik atasannya sebesar Rp 152 juta.
 
- Namun, penyelidikan polisi mengungkap bahwa laporan tersebut palsu dan Rudiantoro hanya beraksi untuk menggelapkan uang tersebut.
+ Ia menyilet bajunya sendiri, menyayat kulit tubuhnya dengan duri sawit, dan membuat luka di kepala untuk merekayasa insiden begal.
 
- Ia bahkan melukai dirinya sendiri dengan menyilet baju dan menyayat kulit tubuhnya dengan duri sawit untuk merekayasa insiden begal.
+ Namun, penyelidikan polisi menemukan kejanggalan dan Rudiantoro akhirnya mengakui bahwa seluruh peristiwa tersebut hanya rekayasa.
 
- Motif di balik tindakan Rudiantoro adalah karena terlilit hutang, dan kini ia ditetapkan sebagai tersangka kasus laporan palsu dengan ancaman hukuman 1 tahun 4 bulan penjara.
+ Ia kini ditetapkan sebagai tersangka kasus laporan palsu dan dijerat Pasal 220 KUHP dengan ancaman hukuman 1 tahun 4 bulan penjara.
 
 
 
 Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Di sisi positif, kita bisa melihat bahwa polisi kita masih sangat efektif dalam menyelesaikan kasus-kasus yang rumit, bahkan ketika pelaku mencoba untuk merekayasa bukti.
+ Di satu sisi, kita harus mengapresiasi kreativitas Rudiantoro dalam membuat cerita fiktif yang cukup detal untuk merekayasa insiden begal.
 
- Namun, di sisi negatif, kita harus bertanya-tanya tentang kondisi masyarakat kita yang bisa membuat seseorang melakukan tindakan yang begitu ekstrem hanya untuk menggelapkan uang.
+ Namun, di sisi lain, kita harus menyayangkan ketololan atasannya yang mempercayakan uang sebesar Rp 152 juta kepada orang yang bisa melakukan aksi nekat seperti ini.
 
- Apakah kita sudah kehilangan marabahaya dan kesadaran akan konsekuensi tindakan kita? Atau apakah kita hanya terlalu malas untuk mencari pekerjaan yang lebih baik dan memilih untuk mengandalkan kecerdasan kita yang terbatas untuk melakukan kejahatan? Satu hal yang pasti, Rudiantoro harus menjadi contoh bagi kita semua tentang apa yang tidak boleh dilakukan ketika kita terlilit hutang, yaitu tidak membuat laporan palsu dan melukai diri sendiri.
+ Lalu, kita juga harus menertawakan kebodohan Rudiantoro yang tidak bisa membuat rencana yang lebih cerdas untuk menggelapkan uang, sehingga harus melakukan aksi yang begitu kasar dan berisiko.
 
- Mungkin kita bisa mempertimbangkan untuk membuat sebuah kampanye nasional untuk mencegah tindakan-tindakan seperti ini, misalnya dengan slogan "Jangan Lakui Diri Sendiri, Bayar Hutangmu dengan Cermat!" atau "Membuat Laporan Palsu? Tidak, Terima Kasih!".
+ Tapi, yang paling penting adalah kita harus belajar dari kesalahan Rudiantoro dan tidak pernah bermain-main dengan hukum, karena pada akhirnya, hukum akan menangkap kita seperti Rudiantoro yang kini harus menghadapi ancaman hukuman penjara.
+
+ Jadi, mari kita tetap waspada dan tidak melakukan aksi yang sama seperti Rudiantoro, karena seperti kata polisi, "harus tetap waspada, apalagi kalau membawa uang dalam jumlah besar.
+
+ Kalau bisa jangan sendirian, bila perlu minta pengawalan aparat untuk menghindari hal yang tidak diinginkan.
+
+"
