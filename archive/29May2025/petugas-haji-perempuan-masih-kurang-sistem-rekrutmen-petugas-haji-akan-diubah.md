@@ -10,6 +10,8 @@ BP Haji akan ubah sistem rekrutmen petugas haji 2026 agar jumlah petugas perempu
 | author      | Firda Janati |
 | editor      | Ardito Ramadhan |
 
+![Wakil Kepala Badan Penyelenggara Haji (BP Haji) Dahnil Anzar saat wawancara khusus bersama Kompas.com, Selasa (6/5/2025).](https://asset.kompas.com/crops/uqKSHsMk-ayh2KICQHFc2tpfLvc=/0x0:0x0/750x500/data/photo/2025/05/27/683536732773f.jpeg)
+
 **JAKARTA, KOMPAS.com -** Wakil Kepala Badan Penyelenggara Haji (BP Haji) Dahnil Anzar menyampaikan bahwa pihaknya akan mengubah sistem rekrutmen petugas haji pada penyelenggaraan ibadah haji 1447 Hijriah.
 
 Perubahan sistem ini dilakukan untuk menambah proporsi petugas haji perempuan karena jemaah haji Indonesia kebanyakan adalah perempuan.
@@ -39,22 +41,16 @@ Setelah itu, petugas haji diwajibkan untuk ikut Badan Pendidikan dan Pelatihan (
 \[video.1\]  
 
 ---
-Berita terbaru dari Jakarta, Kompas.
+Berikut adalah ringkasan singkat berita tersebut: Wakil Kepala Badan Penyelenggara Haji (BP Haji) Dahnil Anzar mengumumkan bahwa sistem rekrutmen petugas haji akan diubah untuk meningkatkan proporsi petugas haji perempuan, karena jemaah haji Indonesia mayoritas adalah perempuan, dengan perbandingan laki-laki dan perempuan sekitar 40:60.
 
-com melaporkan bahwa Badan Penyelenggara Haji (BP Haji) akan mengubah sistem rekrutmen petugas haji untuk tahun 1447 Hijriah.
-
- Perubahan ini dilakukan untuk menambah proporsi petugas haji perempuan karena mayoritas jemaah haji Indonesia adalah perempuan, dengan perbandingan 40:60 antara laki-laki dan perempuan.
-
- Wakil Kepala BP Haji, Dahnil Anzar, mengatakan bahwa rekrutmen petugas haji perempuan akan ditingkatkan untuk memastikan jemaah haji perempuan dapat mendapatkan bimbingan yang maksimal, terutama saat ibadah di Raudhah.
+ BP Haji berencana merekrut lebih banyak petugas haji perempuan untuk memastikan jemaah haji perempuan dapat mendapatkan bimbingan yang maksimal, terutama saat ibadah di Raudhah.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, kita harus mengakui bahwa perubahan sistem rekrutmen ini adalah langkah yang tepat, karena kita tidak bisa membiarkan jemaah haji perempuan tidak terbimbing dengan baik, apalagi saat ibadah di Raudhah.
+ Jadi, BP Haji akhirnya menyadari bahwa jemaah haji perempuan membutuhkan bimbingan yang lebih banyak, dan itu adalah kabar baik! Tapi, pertanyaannya adalah, mengapa baru sekarang mereka menyadari hal ini? Apakah mereka harus menunggu jemaah haji perempuan meminta bantuan kepada paranormal untuk mendapatkan bimbingan yang tepat? Di sisi lain, rencana untuk merekrut lebih banyak petugas haji perempuan adalah langkah yang positif, karena itu menunjukkan bahwa BP Haji peduli dengan kebutuhan jemaah haji perempuan.
 
- Tapi, sungguh ironis, kita harus menunggu sampai tahun depan untuk melihat perubahan ini terjadi.
+ Tapi, kita harus menunggu dan lihat apakah rencana ini akan diimplementasikan dengan baik, atau hanya akan menjadi janji manis yang tidak terpenuhi.
 
- Dan, apa yang terjadi dengan petugas haji yang sudah ada sekarang? Apakah mereka tidak cukup baik? Atau, apakah mereka tidak bisa membimbing jemaah haji perempuan dengan baik? Mari kita jujur, kita semua tahu bahwa ini adalah masalah yang sudah lama, dan sekarang baru kita ingin mengubahnya.
-
- Jadi, saya bertanya, apa yang telah kita lakukan selama ini? Tidur saja? Atau, hanya berpura-pura bahwa semuanya baik-baik saja? Saya tidak tahu, tapi yang jelas, kita harus melakukan sesuatu untuk memperbaiki keadaan ini, dan saya berharap bahwa perubahan ini akan membawa hasil yang positif untuk jemaah haji perempuan di Indonesia.
+ Jika tidak, maka kita bisa menyimpulkan bahwa BP Haji hanya melakukan "haji-hajian" saja, alias hanya bicara tanpa aksi nyata.
