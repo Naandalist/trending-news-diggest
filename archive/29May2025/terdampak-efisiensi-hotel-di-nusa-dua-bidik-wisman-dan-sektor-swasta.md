@@ -10,6 +10,8 @@ Hotel di Nusa Dua menghadapi penurunan okupansi yang signifikan akibat efisiensi
 | author      | Ni Ketut Sudiani |
 | editor      | Krisiandi |
 
+![Kondisi di kawasan Nusa Dua, Kabupaten Badung, Bali. ](https://asset.kompas.com/crops/1GUrlObDFTSgt64sVer146xfEAU=/0x0:0x0/750x500/data/photo/2025/05/28/6836c65b712ed.jpg)
+
 **DENPASAR, KOMPAS.com** - Penurunan okupansi di kawasan Nusa Dua, Kabupaten Badung, menjadi yang paling signifikan di Bali, mencapai 12 persen.
 
 Hotel-hotel di area selatan Bali selama ini sangat bergantung pada kegiatan Meeting, Incentive, Convention, and Exhibition (MICE) yang diadakan oleh pemerintah.
@@ -40,24 +42,22 @@ Sebelumnya, sempat diberitakan bahwa okupansi dan kinerja industri perhotelan di
 PHRI Jakarta mengumumkan bahwa dampak dari situasi ini dapat menyebabkan kemungkinan terjadinya Pemutusan Hubungan Kerja (PHK) secara besar-besaran.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Terjadi penurunan okupansi di kawasan Nusa Dua, Kabupaten Badung, Bali, yang mencapai 12 persen.
+Berikut adalah ringkasan berita dalam satu paragraf: Penurunan okupansi di kawasan Nusa Dua, Kabupaten Badung, menjadi yang paling signifikan di Bali, mencapai 12 persen.
 
  Hal ini disebabkan oleh berkurangnya kegiatan Meeting, Incentive, Convention, and Exhibition (MICE) yang diadakan oleh pemerintah, sehingga tingkat hunian hotel pun ikut menurun.
 
  Kebijakan efisiensi anggaran dari pemerintah berdampak langsung terhadap pendapatan hotel-hotel di kawasan tersebut.
 
- Selain itu, terdapat empat penyebab utama penurunan okupansi hotel di Pulau Dewata, termasuk wisatawan yang menjadikan Bali sebagai hub, perbaikan Pelabuhan Benoa, munculnya vila-vila ilegal, dan kebijakan efisiensi anggaran dari pemerintah pusat.
+ Selain itu, terdapat empat penyebab utama penurunan okupansi hotel di Pulau Dewata, yaitu wisatawan yang menjadikan Bali sebagai hub, perbaikan Pelabuhan Benoa, munculnya vila-vila ilegal, dan kebijakan efisiensi anggaran dari pemerintah pusat.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit roast yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, sisi negatifnya adalah bahwa hotel-hotel di Nusa Dua sangat bergantung pada kegiatan MICE, sehingga ketika kegiatan tersebut berkurang, mereka langsung terjungkir.
+ Sisi positifnya, mungkin pemerintah akan mulai menyadari bahwa kebijakan efisiensi anggaran yang terlalu keras dapat berdampak pada industri pariwisata, dan mungkin akan mempertimbangkan untuk mengalokasikan anggaran yang lebih tepat untuk mendukung industri ini.
 
- Itu seperti memiliki pacar yang hanya mencintai kita karena kita memiliki uang, bukan karena kita memiliki hati yang tulus.
+ Namun, sisi negatifnya, kita bisa melihat bahwa pemerintah masih belum memahami cara mengembangkan industri pariwisata yang berkelanjutan, dan lebih memilih untuk mengandalkan kegiatan MICE yang tidak stabil.
 
- Sisi positifnya adalah bahwa pemerintah sedang berusaha untuk melakukan efisiensi anggaran, yang berarti mereka sedang mencoba untuk menjadi lebih bijak dalam mengeluarkan uang.
+ Dan, tentu saja, kita tidak bisa melupakan vila-vila ilegal yang tumbuh di Bali, yang mungkin akan menjadi simbol kegagalan pemerintah dalam mengatur dan mengawasi industri pariwisata.
 
- Tapi, efek sampingannya adalah bahwa banyak orang yang mungkin akan kehilangan pekerjaan, seperti pemilik usaha tour and travel yang pernah menangani MICE di Nusa Dua.
-
- Jadi, saya ingin bertanya, apakah pemerintah sudah siap untuk memberikan bantuan kepada mereka yang terkena dampak? Ataukah mereka hanya akan meninggalkan mereka seperti vila-vila ilegal yang tumbuh di Bali?
+ Jadi, mari kita tunggu dan lihat apa yang akan terjadi selanjutnya, dan mungkin kita akan melihat beberapa PHK besar-besaran di industri perhotelan, yang akan menjadi "hadiah" untuk kita semua.
