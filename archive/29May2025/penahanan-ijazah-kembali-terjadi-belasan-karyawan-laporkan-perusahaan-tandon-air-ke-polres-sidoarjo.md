@@ -10,6 +10,8 @@ Kasus penahanan ijazah kembali terjadi, ada belasan karyawan yang melaporkan per
 | author      | Izzatun Najibah |
 | editor      | Bilal Ramadhan |
 
+![Belasan karyawan saat melaporkan PT. Tedmonindo Pratama Semesta ke Polres Sidoarjo atas dugaan penahanan ijazah, Rabu (28/5/2025)](https://asset.kompas.com/crops/LN9BrFgZrjL7Oq5BxFcsOW4NMiU=/0x0:0x0/750x500/data/photo/2025/05/29/6837d6f03c2f9.jpeg)
+
 **SIDOARJO, KOMPAS.com** - Setelah ramainya kasus penahanan ijazah yang dilakukan CV. Sentoso Seal, kasus serupa kembali mencuak diduga dari salah satu perusahaan tandon air di Sidoarjo.
 
 Perusahaan tandon air yang berlokasi di Kecamatan Candi, Sidoarjo, PT Tedmonindo Pratama Semesta dilaporkan oleh 15 karyawannya ke Polres Sidoarjo atas dugaan penahanan ijazah.
@@ -43,30 +45,38 @@ Selain melapor ke Polres Sidoarjo, korban juga mengadukan dugaan pelanggaran yan
 Kompas.com masih berupaya untuk melakukan konfirmasi terhadap Polres Sidoarjo dan Dinas Ketenagakerjaan di Provinsi Jawa Timur maupun tingkat Kabupaten Sidoarjo.
 
 ---
-Berikut adalah ringkasan kasus penahanan ijazah di Sidoarjo: PT Tedmonindo Pratama Semesta, perusahaan tandon air di Sidoarjo, dilaporkan oleh 15 karyawannya ke Polres Sidoarjo karena diduga menahan ijazah dan dokumen lainnya sebagai jaminan kerja.
+Berikut adalah ringkasan singkat dari laporan berita: Perusahaan tandon air PT Tedmonindo Pratama Semesta di Sidoarjo dilaporkan oleh 15 karyawannya ke Polres Sidoarjo atas dugaan penahanan ijazah.
 
- Salah satu karyawan memiliki ijazah yang ditahan sejak 2012 dan belum dikembalikan saat resign pada April 2025.
+ Kasus ini mirip dengan kasus sebelumnya yang melibatkan CV.
 
- Perusahaan juga diduga menahan dokumen lainnya dan memotong gaji karyawan sebesar Rp 250.
+ Sentoso Seal.
 
-000 selama 24 bulan sebagai kewajiban penggantian harga barang hilang.
-
-
-
-Sekarang, mari kita bahas kasus ini dengan sedikit humor yang pedas.
-
- Jadi, PT Tedmonindo Pratama Semesta ini seperti pacar yang toxic, mereka meminta ijazah dan dokumen lainnya sebagai jaminan cinta, tapi malah memotong gaji dan membebankan karyawan dengan kewajiban yang tidak masuk akal.
-
- Mereka seperti berkata, "Kamu ingin kerja di sini? Kamu harus menyerahkan ijazahmu dulu, lalu kamu harus membayar Rp 6.
+ Karyawan yang melapor mengatakan bahwa ijazah mereka ditahan sejak awal masuk kerja dan baru-baru ini mereka mengetahui bahwa mereka harus membayar Rp 6.
 
 500.
 
-000 jika kamu ingin resign.
+000 untuk mengambil ijazah mereka kembali.
 
- Oh, dan kamu juga harus membayar Rp 250.
+ Selain itu, perusahaan juga diduga melakukan pemerasan dengan memotong gaji karyawan sebesar Rp 250.
 
-000 selama 24 bulan karena barang hilang, meskipun kamu tidak tahu apa-apa tentang hal itu.
+000 selama 24 bulan sebagai ganti rugi atas kehilangan barang.
 
-" Ini seperti perusahaan yang ingin menjadibos besar, tapi malah menjadi bos kejam.
 
- Saya harap Polres Sidoarjo dan Dinas Ketenagakerjaan bisa segera menyelesaikan kasus ini dan memberikan keadilan kepada karyawan yang terkena dampak.
+
+Sekarang, mari kita lihat sisi lain dari berita ini dengan sedikit satire yang menyakitkan.
+
+ Wah, perusahaan tandon air yang sangat "dermawan" ini melakukan penahanan ijazah dan pemerasan kepada karyawannya.
+
+ Mungkin mereka pikir karyawan adalah boneka yang bisa diatur semaunya.
+
+ "Oh, kamu ingin ijazahmu kembali? Bayar dulu Rp 6.
+
+500.
+
+000, deh!" Atau, "Kamu tidak mau membayar ganti rugi? Gaji kamu tidak akan kami bayar, deh!" Ini seperti permainan monopoli, tapi nyata.
+
+ Saya sangat penasaran, apa lagi yang akan mereka lakukan kepada karyawannya? Mengambil simpanan karyawan? Mengambil hak cuti karyawan? Ini sudah tidak lucu lagi, dan seharusnya pemerintah segera turun tangan untuk mengatasi masalah ini.
+
+ Karyawan bukanlah budak, mereka memiliki hak dan harus dilindungi.
+
+ Mari kita tunggu apa yang akan terjadi selanjutnya dalam kasus ini.
