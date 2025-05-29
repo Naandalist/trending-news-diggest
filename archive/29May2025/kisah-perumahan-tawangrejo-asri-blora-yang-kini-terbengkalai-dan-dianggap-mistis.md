@@ -2,13 +2,13 @@
 
 Perumahan Tawangrejo Asri di Blora mangkrak 15 tahun. Sepi, rusak, tak berpenghuni, bahkan disebut angker oleh warga sekitar. Ini kisahnya.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Kisah Perumahan Tawangrejo Asri Blora yang Kini Terbengkalai dan Dianggap Mistis |
-| description | Perumahan Tawangrejo Asri di Blora mangkrak 15 tahun. Sepi, rusak, tak berpenghuni, bahkan disebut angker oleh warga sekitar. Ini kisahnya. |
-| urlshort    | http://kmp.im/AGHp7p |
-| author      | Aria Rusta Yuli Pradana |
-| editor      | Ihsanuddin |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Kisah Perumahan Tawangrejo Asri Blora yang Kini Terbengkalai dan Dianggap Mistis |
+| 📝 Description | Perumahan Tawangrejo Asri di Blora mangkrak 15 tahun. Sepi, rusak, tak berpenghuni, bahkan disebut angker oleh warga sekitar. Ini kisahnya. |
+| 🔗 Short URL   | http://kmp.im/AGHp7p |
+| 👤 Author      | Aria Rusta Yuli Pradana |
+| ✏️ Editor      | Ihsanuddin |
 
 ![Kondisi perumahan yang mangkrak di Jalan Blora - Kunduran, tepatnya Desa Tawangrejo, Kecamatan Tunjungan, Kabupaten Blora, Jawa Tengah, Rabu (28/5/2025)](https://asset.kompas.com/crops/SaF6-f-If6OHtswqECiZC1R_cYI=/0x0:0x0/750x500/data/photo/2025/05/29/6837dc7009924.jpg)
 
@@ -55,20 +55,24 @@ Orang yang membayarkan pajak tersebut adalah Sujat, yang ditugaskan oleh pemilik
  
 
 ---
-Berikut adalah ringkasan singkat dari berita tersebut dalam satu paragraf: Di Kabupaten Blora, Jawa Tengah, terdapat sebuah perumahan yang terbengkalai dan tidak berpenghuni, yaitu Tawangrejo Asri.
+## Ringkasan
 
- Perumahan ini dibangun sekitar tahun 2010 dan diresmikan pada 2011, dengan 42 unit rumah di atas lahan seluas 3 hektar.
+Berikut adalah rangkuman dari laporan berita: Perumahan Tawangrejo Asri di Kabupaten Blora, Jawa Tengah, yang dibangun sekitar tahun 2010 dan diresmikan pada 2011, kini terbengkalai dan tidak dihuni.
 
- Namun, karena kendala infrastruktur seperti tidak adanya sumber air dan aura mistis, perumahan ini kini terlihat sepi dan terlantar, dengan dinding retak, plafon jebol, dan vegetasi liar menyelimuti rumah-rumah tersebut.
+ Perumahan ini memiliki 42 unit rumah di atas lahan seluas 3 hektar, namun kondisi bangunan kini tidak terawat dengan dinding retak, plafon jebol, dan vegetasi liar menyelimuti rumah-rumah tersebut.
+
+ Lokasinya yang strategis di tepi jalan provinsi tidak bisa menghindarkan perumahan ini dari kehilangan penghuni.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Hmm, jadi perumahan ini seperti pacar yang ditinggalkan 🚫💔, tidak dihuni dan terbengkalai 🌳😷.
 
- Sisi positifnya, perumahan Tawangrejo Asri masih membayar pajak bumi dan bangunan (PBB) sekitar Rp 1 juta per tahun, sehingga pemerintah masih mendapat pendapatan dari perumahan yang terbengkalai ini.
+ Saya pikir, ini adalah contoh kesalahan perencanaan 🤦‍♂️, karena tidak ada sumber air di wilayah tersebut 💧.
 
- Namun, sisi negatifnya, perumahan ini seperti sebuah "hantu" yang menghantui warga sekitar, dengan aura mistis yang membuat calon pembeli mundur.
+ Tapi, yang lebih parah adalah cerita mistis yang membuat calon pembeli mundur 🕷️😱, seperti rumor tentang penampakan misterius 👻.
 
- Dan, yang lebih parah, orang yang ditugaskan untuk menjaga perumahan ini malah lebih suka menjadi tukang pijat daripada menjaga perumahan yang terbengkalai.
+ Saya rasa, ini adalah kombinasi yang mematikan 💀, antara kekurangan infrastruktur dan cerita seram 🌃.
 
- Ini adalah contoh klasik dari "Janji Manis" yang tidak terpenuhi, seperti hadiah sepeda motor yang diberikan kepada pembeli pertama, namun tidak ada yang bisa menikmati "hadiah" tersebut karena perumahan ini sendiri yang tidak layak huni.
+ Tapi, yang paling lucu adalah orang yang membayarkan pajak masih ada, tapi sudah jarang menjaga perumahan karena sibuk menjadi tukang pijat 😂👍.
+
+ Ini adalah contoh bahwa, bahkan perumahan yang terbengkalai pun masih memiliki "kehidupan" yang unik 🤣! 😂
