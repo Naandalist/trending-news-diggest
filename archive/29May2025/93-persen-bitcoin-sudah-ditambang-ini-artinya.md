@@ -2,13 +2,13 @@
 
 Tidak seperti uang fiat seperti rupiah atau dolar yang bisa dicetak tanpa batas, jumlah Bitcoin sudah ditentukan sejak awal dan tidak bisa ditambah.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | 93 Persen Bitcoin Sudah Ditambang, Ini Artinya |
-| description | Tidak seperti uang fiat seperti rupiah atau dolar yang bisa dicetak tanpa batas, jumlah Bitcoin sudah ditentukan sejak awal dan tidak bisa ditambah. |
-| urlshort    | http://kmp.im/AGHp7o |
-| author      |  |
-| editor      | Erlangga Djumena |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | 93 Persen Bitcoin Sudah Ditambang, Ini Artinya |
+| 📝 Description | Tidak seperti uang fiat seperti rupiah atau dolar yang bisa dicetak tanpa batas, jumlah Bitcoin sudah ditentukan sejak awal dan tidak bisa ditambah. |
+| 🔗 Short URL   | http://kmp.im/AGHp7o |
+| 👤 Author      |  |
+| ✏️ Editor      | Erlangga Djumena |
 
 ![Ilustrasi bitcoin.](https://asset.kompas.com/crops/AASQWqeMuVMHSTL2xejlXL5n5Ek=/0x0:2400x1600/750x500/data/photo/2024/04/08/661395014af29.jpg)
 
@@ -85,26 +85,24 @@ Bagi investor atau masyarakat yang tertarik pada aset langka, fakta bahwa 93 per
 Di sisi lain, ini juga bisa memperkuat keyakinan bahwa Bitcoin memang dirancang untuk bertahan sebagai aset bernilai jangka panjang.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Bitcoin, mata uang kripto terbesar di dunia, memiliki pasokan yang terbatas, yaitu hanya 21 juta koin.
+## Ringkasan
 
- Saat ini, sekitar 93,3% dari total Bitcoin sudah ditambang, sehingga hanya tersisa sekitar 1,4 juta koin yang belum tercipta.
+Berikut adalah ringkasan dari laporan berita tersebut: Bitcoin, mata uang kripto terbesar di dunia, memiliki karakteristik unik yaitu total pasokannya dibatasi hanya 21 juta koin.
 
- Hal ini membuat Bitcoin semakin langka dan berpotensi meningkatkan nilainya seiring waktu.
+ Sekitar 93,3% dari total Bitcoin sudah berhasil ditambang, sehingga hanya tersisa sekitar 1,4 juta BTC yang belum tercipta.
 
- Dengan sistem penerbitan yang transparan dan pasokan yang terbatas, Bitcoin semakin menyerupai emas digital, namun dengan keunggulan bahwa pasokannya bisa dipastikan dan diaudit secara publik.
+ Ini berarti bahwa pasokan Bitcoin yang tersedia semakin terbatas, dan hal ini dapat mempengaruhi harga dan volatilitas pasar.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit bumbu humor 😂.
 
- Jadi, kita memiliki Bitcoin yang semakin langka, seperti emas digital yang sangat dicari.
+ Jadi, Bitcoin ini seperti "pacar yang langka" 🤩, semakin sulit didapatkan, semakin berharga 🤑.
 
- Tapi, apa yang terjadi ketika kita lupa kata sandi dompet digital kita? Ya, itu seperti kehilangan kunci rumah, tapi lebih parah, karena kita kehilangan akses ke aset digital yang sangat berharga.
+ Tapi, hal ini juga membuatnya semakin "lemah" 💔 karena pasokan yang terbatas dapat mempengaruhi likuiditas dan volatilitas pasar 📉.
 
- Dan, dengan sistem penerbitan yang transparan, kita bisa melihat bahwa pasokan Bitcoin semakin terbatas, sehingga membuatnya semakin berharga.
+ Bayangkan, 3-4 juta Bitcoin sudah "hilang" 🤯, seperti uang yang terjatuh di selokan 🚽.
 
- Tapi, ini juga berarti bahwa hanya orang-orang yang sudah memiliki Bitcoin yang akan menjadi semakin kaya, sementara orang-orang yang belum memiliki akan semakin sulit untuk mendapatkannya.
+ Ini membuat Bitcoin semakin "langka" dan "berharga" 💎, tapi juga membuatnya semakin "berisiko" 🚨.
 
- Jadi, ini seperti permainan monopoli, di mana mereka yang sudah kaya akan semakin kaya, dan mereka yang miskin akan semakin miskin.
-
- Tapi, hey, ini adalah kebebasan pasar, kan?
+ Jadi, bagi kamu yang ingin "mengejar" Bitcoin, siap-siap untuk "bertarung" 🥊, karena pasokan yang terbatas membuatnya semakin "kompetitif" 🏆! 😆
