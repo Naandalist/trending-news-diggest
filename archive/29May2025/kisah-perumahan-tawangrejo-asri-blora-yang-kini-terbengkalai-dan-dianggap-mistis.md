@@ -53,20 +53,24 @@ Orang yang membayarkan pajak tersebut adalah Sujat, yang ditugaskan oleh pemilik
  
 
 ---
-Berikut adalah rangkuman singkat dari berita tersebut: Perumahan Tawangrejo Asri di Kabupaten Blora yang dibangun sekitar tahun 2010 dan diresmikan pada 2011 kini terbengkalai dan tidak dihuni.
+Berikut adalah ringkasan berita dalam satu paragraf: Sebuah perumahan di Blora, Jawa Tengah, yang dikenal sebagai Tawangrejo Asri, kini terbengkalai dan tidak berpenghuni.
 
- Perumahan ini memiliki 42 unit rumah di atas lahan seluas 3 hektar, namun kondisi bangunan kini tidak terawat dan dikelilingi semak belukar.
+ Perumahan ini dibangun sekitar tahun 2010 dan diresmikan pada 2011, dengan 42 unit rumah di atas lahan seluas 3 hektar.
 
- Meskipun lokasinya strategis, perumahan ini mengalami kesulitan air dan dianggap angker oleh masyarakat setempat, sehingga calon pembeli mundur dan penghuni meninggalkan rumah.
+ Namun, kondisi bangunan kini tidak terawat, dengan dinding retak, plafon jebol, dan vegetasi liar menyelimuti rumah-rumah tersebut.
+
+ Perumahan ini memiliki lokasi yang strategis, tetapi mengalami kendala utama yaitu tidak adanya sumber air di wilayah tersebut, sertaAura mistis yang membuat calon pembeli mundur.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sindiran yang menyakitkan.
 
- Sisi positifnya, perumahan ini masih membayar pajak bumi dan bangunan (PBB) sekitar Rp 1 juta per tahun, yang berarti pemerintah masih bisa mendapatkan pendapatan dari perumahan yang terbengkalai ini.
+ Jadi, perumahan Tawangrejo Asri ini seperti pacar yang cantik tapi berhati batu - banyak yang tertarik, tapi tidak ada yang mau menjaganya.
 
- Namun, sisi negatifnya adalah bahwa perumahan ini sudah menjadi semacam "hantu" yang menghantui masyarakat setempat, dengan cerita mistis yang membuat calon pembeli mundur.
+ Mereka menjanjikan hadiah sepeda motor untuk pembeli pertama, tapi akhirnya perumahan ini jadi seperti kota hantu, dengan semak belukar dan bangunan yang rusak.
 
- Dan, yang paling menyakitkan, adalah bahwa orang yang ditugaskan untuk menjaga perumahan ini malah menggunakan "jimat" yang didapat dari situ untuk menjadi tukang pijat - ya, ini adalah contoh nyata dari "mencari uang dengan cara yang tidak biasa".
+ Dan,tentu saja, ada cerita mistis yang membuat calon pembeli lari terbirit-birit.
 
- Jadi, mari kita renungkan, apa yang sebenarnya terjadi di perumahan Tawangrejo Asri ini, dan apa yang bisa kita pelajari dari kesalahan-kesalahan yang telah terjadi.
+ Tapi, yang paling menyakitkan adalah, perumahan ini masih membayar pajak setiap tahun, seperti orang yang masih mencintai mantan pacar yang sudah tidak mencintainya lagi.
+
+ Sungguh, ini adalah contoh sempurna dari proyek yang gagal, dan saya harap pemiliknya bisa belajar dari kesalahan ini, atau mungkin mereka bisa menjadikan perumahan ini sebagai lokasi syuting film horor, karena sudah memiliki aura mistis yang cukup.
