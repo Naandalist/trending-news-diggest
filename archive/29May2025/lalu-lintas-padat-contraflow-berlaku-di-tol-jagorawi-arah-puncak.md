@@ -10,6 +10,8 @@ Rekayasa ini diterapkan atas diskresi Kepolisian dan berlaku mulai pukul 06.00 W
 | author      | Dio Dananjaya |
 | editor      | Azwar Ferdian |
 
+![Atas diskresi kepolisian, PT Jasa Marga (Persero) Tbk memberlakukan contraflow di ruas Jalan Tol Jagorawi mulai KM 44+500 sampai KM 46+500 arah Puncak.](https://asset.kompas.com/crops/K-K_aXqJen7lsoiBrgTDBlSDOD0=/0x581:864x1157/750x500/data/photo/2023/12/24/6587afd25d1b2.jpg)
+
 **JAKARTA, KOMPAS.com --** Dalam rangka mengantisipasi peningkatan volume lalu lintas selama libur panjang Kenaikan Yesus Kristus, Jasa Marga bersama pihak Kepolisian memberlakukan rekayasa lalu lintas berupa contraflow di Ruas Tol Jagorawi arah Puncak.
 
 Rekayasa ini diterapkan atas diskresi Kepolisian dan berlaku mulai pukul 06.00 WIB, dimulai dari KM 44+400 hingga KM 46+400.
@@ -25,16 +27,24 @@ Selain itu, pengguna jalan juga diingatkan untuk memastikan kecukupan saldo kart
 Selalu patuhi rambu-rambu lalu lintas serta ikuti arahan petugas di lapangan demi menjaga keselamatan dan kelancaran selama perjalanan.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Dalam menyambut libur panjang Kenaikan Yesus Kristus, Jasa Marga dan pihak Kepolisian menerapkan rekayasa lalu lintas berupa contraflow di Ruas Tol Jagorawi arah Puncak.
+Berikut adalah ringkasan berita dalam satu paragraf: Dalam upaya mengatasi peningkatan volume lalu lintas selama libur panjang Kenaikan Yesus Kristus, Jasa Marga bersama pihak Kepolisian menerapkan rekayasa lalu lintas berupa contraflow di Ruas Tol Jagorawi arah Puncak.
 
  Rekayasa ini berlaku mulai pukul 06.
 
-00 WIB, dari KM 44+400 hingga KM 46+400, dengan tujuan mengurai kepadatan kendaraan dan menjaga kelancaran arus lalu lintas menuju kawasan wisata Puncak.
+00 WIB, dari KM 44+400 hingga KM 46+400, dan bertujuan untuk mengurai kepadatan kendaraan dan menjaga kelancaran arus lalu lintas menuju kawasan wisata Puncak.
 
- Jasa Marga mengimbau pengguna jalan untuk mengantisipasi rute perjalanan dan memastikan kecukupan saldo kartu tol elektronik sebelum memulai perjalanan.
+ Pengguna jalan diimbau untuk mengantisipasi rute perjalanan dan memastikan kecukupan saldo kartu tol elektronik sebelum memulai perjalanan.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit bumbu roasting yang sakit.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, contraflow di Tol Jagorawi, itu seperti solusi untuk mengatasi kepadatan kendaraan, tapi juga seperti memindahkan kemacetan dari satu tempat ke tempat lain, kan? "Hai, kami tahu kamu ingin ke Puncak, tapi kami ingin kamu merasakan kemacetan dulu, baru deh kamu bisa menikmati liburanmu!" Sisi positifnya, setidaknya Jasa Marga dan Kepolisian mencoba melakukan sesuatu untuk mengatasi kepadatan, tapi sisi negatifnya, apa tidak ada solusi yang lebih kreatif? Misalnya, membuat jalur khusus untuk mereka yang ingin pergi ke Puncak dengan membawa oleh-oleh yang banyak, atau membuat jalur untuk mereka yang ingin pergi ke Puncak dengan mengendarai kendaraan yang sudah dipenuhi dengan kemacetan di dalamnya? Ya, itu hanya bercanda, tapi serius, semoga contraflow ini bisa membantu mengurangi kepadatan dan membuat liburan kita semua lebih menyenangkan!
+ Di satu sisi, contraflow di Tol Jagorawi adalah solusi yang brilian untuk mengatasi kepadatan lalu lintas, terutama saat libur panjang.
+
+ Namun, di sisi lain, ini juga berarti bahwa kita harus bersiap-siap untuk menghadapi kemacetan yang lebih parah dan menguji kesabaran kita.
+
+ Bayangkan, kita harus menghadapi kemacetan yang sama, tetapi dengan tambahan kesenangan mengemudi melawan arah lalu lintas! Ini seperti mencoba menemukan hiburan dalam kesengsaraan.
+
+ Tapi, secara serius, pengguna jalan harus benar-benar memperhatikan rambu-rambu lalu lintas dan arahan petugas demi menjaga keselamatan dan kelancaran perjalanan.
+
+ Jadi, selamat mengemudi, dan jangan lupa untuk membawa sabar dan kesabaran ekstra!
