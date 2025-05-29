@@ -10,6 +10,8 @@ Pria bertato Illuminati beserta 2 temannya mengeroyok korban dengan parang dan k
 | author      | Nur Zaidi |
 | editor      | Bilal Ramadhan |
 
+![Tiga pelaku pengeroyokan dengan senjata tajam dihadirkan dalam konferensi pers di Mapolres Demak, Rabu (28/5/2025).](https://asset.kompas.com/crops/GX9QfR8XOValCy7GE6xgaCOEDHU=/0x0:0x0/750x500/data/photo/2025/05/29/6837f01d88721.jpg)
+
 **DEMAK, KOMPAS.com** - MH (21), pria yang identik dengan tato Illuminati di leher belakang, sengaja melukai korban, DF (25), warga asal Kecamatan Demak, Kabupaten Demak, Jawa Tengah.
 
 Pelaku menyerang DF dengan menggunakan sebilah parang dengan alasan pacar diganggu.
@@ -49,22 +51,22 @@ Polisi berhasil meringkus 3 orang pelaku dan ditetapkan tersangka, yakni MH warg
 Para pelaku dijerat Pasal 170 KUHPidana atau Pasal 351 ayat (2) KUHPidana tentang tindak pidana pengeroyokan atau penganiayaan dengan hukuman 7 tahun penjara.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Seorang pria berusia 21 tahun, MH, yang memiliki tato Illuminati di leher belakang, telah menyerang seorang pria lain, DF, berusia 25 tahun, dengan menggunakan parang karena pacarnya, NV, merasa diganggu oleh DF.
+Berikut adalah rangkuman berita dalam satu paragraf: Di Demak, Jawa Tengah, seorang pria berusia 21 tahun bernama MH, yang memiliki tato Illuminati di leher belakang, telah menyerang korban DF (25) dengan menggunakan senjata tajam jenis parang dan kampak.
 
- MH dibantu oleh dua orang lainnya dalam melakukan serangan tersebut.
+ MH dibantu oleh dua orang lainnya dan melakukan serangan karena ponsel kekasihnya disembunyikan oleh DF, mantan pacar kekasihnya.
 
- Pelaku menyerang korban setelah mengetahui bahwa ponsel pacarnya disembunyikan oleh DF.
-
- Insiden ini mengakibatkan korban mengalami luka di beberapa bagian tubuh dan dilaporkan ke polisi, kemudian polisi berhasil meringkus tiga orang pelaku dan menetapkan mereka sebagai tersangka.
+ MH dan kedua temannya berhasil ditangkap polisi dan dijerat Pasal 170 KUHPidana atau Pasal 351 ayat (2) KUHPidana tentang tindak pidana pengeroyokan atau penganiayaan dengan hukuman 7 tahun penjara.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini, dengan sedikit sentuhan humor yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, sisi positifnya adalah polisi berhasil meringkus para pelaku dan membawa mereka ke tempat yang seharusnya, yaitu penjara.
+ Sisi positifnya, kita dapat melihat bahwa polisi masih bekerja dengan efektif dalam menangkap para pelaku kejahatan, meskipun kejahatan itu dilakukan oleh seseorang yang memiliki tato Illuminati yang membuatnya terlihat seperti anggota organisasi rahasia.
 
- Tapi, sisi negatifnya adalah kita masih memiliki orang-orang seperti MH yang berpikir bahwa menggunakan parang untuk menyelesaikan masalah adalah ide yang bagus.
+ Sisi negatifnya, kita dapat melihat bahwa masih banyak orang yang memiliki pemikiran yang sangat sempit dan tidak dewasa, seperti MH yang melakukan serangan karena ponsel kekasihnya disembunyikan.
 
- Apakah mereka tidak memiliki Netflix? Tidak ada yang bisa membuat mereka bosan sehingga mereka harus melakukan kekerasan? Dan yang lebih parah lagi, MH memiliki tato Illuminati, yang berarti dia mungkin telah membaca terlalu banyak teori konspirasi di internet.
+ Ini seperti anak kecil yang marah karena mainannya diambil.
 
- Jadi, pesan moralnya adalah, jangan percaya semua yang Anda baca di internet, dan jangan menggunakan parang untuk menyelesaikan masalah, kecuali jika Anda ingin menjadi bintang di acara "Most Wanted" di TV.
+ Dan yang paling menyakitkan, kita dapat melihat bahwa masih banyak orang yang belum memahami bahwa memiliki tato Illuminati tidak membuat seseorang menjadi lebih kuat atau lebih berwibawa, melainkan hanya membuat mereka terlihat seperti orang yang ingin menjadi anggota klub eksklusif, tapi tidak bisa dibedakan dari orang lain.
+
+ Jadi, mari kita semua belajar dari kesalahan MH dan tidak melakukan tindakan yang sama, kecuali jika kita ingin menjadi bahan lelucon di media sosial.
