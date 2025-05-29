@@ -2,13 +2,13 @@
 
 LSN ditangkap karena memeras seorang jaksa dan mengaku sebagai wartawan.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Peras Jaksa Rp 5 Juta, Wartawan Gadungan Ditangkap Kejati DKI |
-| description | LSN ditangkap karena memeras seorang jaksa dan mengaku sebagai wartawan. |
-| urlshort    | http://kmp.im/AGHp7a |
-| author      |  |
-| editor      | Akhdi Martin Pratama |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Peras Jaksa Rp 5 Juta, Wartawan Gadungan Ditangkap Kejati DKI |
+| 📝 Description | LSN ditangkap karena memeras seorang jaksa dan mengaku sebagai wartawan. |
+| 🔗 Short URL   | http://kmp.im/AGHp7a |
+| 👤 Author      |  |
+| ✏️ Editor      | Akhdi Martin Pratama |
 
 ![Ilustrasi pemerasan](https://asset.kompas.com/crops/m9v4S6KHVuecWvvtGiMXJNi9efY=/79x0:924x563/750x500/data/photo/2022/02/25/6218c81795c83.jpg)
 
@@ -35,20 +35,20 @@ Kemudian setelah dilakukan pemeriksaan awal terhadap LSN, ditemukan juga ponsel 
 Selanjutnya pelaku dan barang bukti telah diserahkan Polda Metro Jaya untuk ditindaklanjuti sesuai dengan hukum yang berlaku.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Kejaksaan Tinggi (Kejati) DKI Jakarta telah menangkap seorang pria berinisial LSN karena memeras seorang jaksa dengan mengaku sebagai wartawan.
+## Ringkasan
 
- LSN memeras jaksa tersebut dengan membuat tuduhan dan intimidasi melalui pesan WhatsApp, serta membuat berita di media massa dan menggerakkan aksi unjuk rasa.
+Berikut adalah ringkasan berita dalam satu paragraf: Kejaksaan Tinggi DKI Jakarta menangkap seorang pria berinisial LSN karena memeras seorang jaksa dengan mengaku sebagai wartawan.
 
- Setelah beberapa kali melakukan tindakan tersebut, LSN meminta pertemuan dengan pejabat struktural Kejati DKI dan meminta uang Rp5 juta sebagai imbalan untuk tidak memberitakan lagi tentang perkara Bea Cukai yang ditangani oleh jaksa tersebut.
+ LSN membuat tuduhan dan intimidasi melalui pesan WhatsApp dan berita di media massa, kemudian meminta uang Rp5 juta sebagai imbalan untuk tidak melanjutkan pemberitaan.
+
+ LSN ditangkap oleh tim intelijen Kejati DKI dan diserahkan kepada Polda Metro Jaya untuk ditindaklanjuti.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Oh tidak, ini adalah contoh yang sangat baik tentang "wartawan" abal-abal 😂! LSN memang pintar, bisa mengaku sebagai wartawan dan LSM, tapi sayangnya dia tidak pintar dalam menutupi jejaknya sendiri 🤣.
 
- Sisi positifnya adalah bahwa Kejati DKI Jakarta telah berhasil menangkap pelaku pemerasan, menunjukkan bahwa hukum masih berlaku dan tidak bisa dipermainkan oleh oknum-oknum yang tidak bertanggung jawab.
+ Saya rasa, ini adalah kasus yang sangat memalukan bagi pihak kejaksaan, karena ada oknum yang bisa dibuat takut oleh seorang "wartawan" palsu 😳.
 
- Namun, sisi negatifnya adalah bahwa masih ada orang-orang yang berani memeras pejabat negara dengan mengaku sebagai wartawan, menunjukkan bahwa integritas profesi wartawan masih perlu ditingkatkan.
+ Tapi, yang lebih memalukan adalah LSN meminta uang Rp5 juta, itu seperti harga sebuah motor bekas 🚗! Saya berharap, kasus ini bisa menjadi contoh bagi kita semua untuk tidak mudah percaya pada orang yang mengaku sebagai wartawan, dan bagi pihak kejaksaan untuk meningkatkan kewaspadaan mereka terhadap oknum-oknum yang seperti LSN ini 🙏.
 
- Dan yang paling menyakitkan adalah bahwa Rp5 juta sudah cukup untuk membuat seseorang berhenti memberitakan tentang kesalahan pejabat negara - ini menunjukkan bahwa harga kebenaran dan keadilan di Indonesia masih sangat murah.
-
- Tapi, hei, setidaknya kita masih memiliki Kejati DKI Jakarta yang berani mengambil tindakan tegas terhadap pelaku pemerasan, bukan?
+ Sekarang, saya ingin tahu, apa yang akan terjadi pada LSN ini? Apakah dia akan menjadi "wartawan" di penjara? 📰👮‍♂️😂
