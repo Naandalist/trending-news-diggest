@@ -2,13 +2,13 @@
 
 Google baru saja merilis model pembuatan video berbasis AI terbarunya, Veo 3. Bagaimana cara pakainya?
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Cara Pakai Veo 3, Model AI Google yang Bisa Bikin Video Pakai Perintah Teks |
-| description | Google baru saja merilis model pembuatan video berbasis AI terbarunya, Veo 3. Bagaimana cara pakainya? |
-| urlshort    | http://www.kompas.com/tren/read/2025/05/29/134500865/cara-pakai-veo-3-model-ai-google-yang-bisa-biki |
-| author      | Muhammad Zaenuddin |
-| editor      | Muhammad Zaenuddin |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Cara Pakai Veo 3, Model AI Google yang Bisa Bikin Video Pakai Perintah Teks |
+| 📝 Description | Google baru saja merilis model pembuatan video berbasis AI terbarunya, Veo 3. Bagaimana cara pakainya? |
+| 🔗 Short URL   | http://www.kompas.com/tren/read/2025/05/29/134500865/cara-pakai-veo-3-model-ai-google-yang-bisa-biki |
+| 👤 Author      | Muhammad Zaenuddin |
+| ✏️ Editor      | Muhammad Zaenuddin |
 
 ![Cara pakai Google Veo 3.](https://asset.kompas.com/crops/JzHorG8Un8KjBwJp6bo0fiuDAQU=/341x145:2486x1575/750x500/data/photo/2025/05/29/6837f7bcdaf23.png)
 
@@ -63,24 +63,18 @@ Durasi video yang dihasilkan lewat Veo 3 maksimal delapan detik dengan resolusi 
  
 
 ---
-Berikut ringkasan berita dalam satu paragraf: Google baru saja meluncurkan model pembuatan video AI terbarunya, Veo 3, di ajang Google I/O 2025.
+## Ringkasan
 
- Veo 3 merupakan penerus dari Veo 2 dan dapat menciptakan konten baru berbasis AI yang fokus di pembuatan video.
+Berikut adalah ringkasan singkat tentang berita tersebut: Google baru saja meluncurkan model pembuatan video AI terbarunya, Veo 3, di ajang tahunan Google I/O 2025.
 
- Model ini memiliki peningkatan respon terhadap prompt, serta dapat mengikuti serangkaian tindakan dan adegan dengan akurasi yang lebih baik.
+ Veo 3 merupakan penerus dari Veo 2 yang dapat menciptakan konten baru berbasis AI dengan fokus pada pembuatan video.
 
- Veo 3 juga dapat menghasilkan audio percakapan atau efek suara yang sesuai, sehingga video yang dihasilkan terasa lebih hidup.
-
- Model ini dapat diakses melalui alat pembuatan film AI Flow dan model AI generatif Gemini.
+ Veo 3 menghadirkan peningkatan respon terhadap prompt dan dapat mengikuti serangkaian tindakan dengan akurasi yang lebih baik.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
+Sekarang, mari kita bicara tentang sisi positif dan negatif dari Veo 3 ini 😂.
 
- Oh, betapa kita semua sangat berharap untuk memiliki teknologi yang dapat membuat video sinematik dengan kualitas yang lebih baik, tapi apa yang terjadi jika kita tidak memiliki kreativitas yang cukup untuk memanfaatkan teknologi ini? Maka, kita akan menjadi seperti robot yang hanya dapat mengikuti instruksi, tanpa memiliki sentuhan kreatif yang asli.
+ Jadi, Veo 3 ini seperti pacar idaman, pintar, cantik, dan bisa membuat video sinematik dengan kualitas yang lebih baik 🎥! Tapi, ada beberapa hal yang membuatku ingin menggelengkan kepala 🙄, seperti durasi video yang dihasilkan hanya maksimal delapan detik 🕰️, dan resolusi gambar maksimum 720 piksel 📊.
 
- Namun, di sisi lain, Veo 3 juga dapat membantu kita untuk membuat video yang lebih menarik dan interaktif, sehingga kita tidak perlu lagi menjadi "sutradara" yang buruk.
-
- Tapi, jangan lupa, teknologi ini masih memiliki keterbatasan, seperti durasi video yang maksimal delapan detik dan resolusi gambar yang maksimum 720 piksel.
-
- Jadi, jangan terlalu berharap untuk membuat film epic dengan Veo 3, ya!
+ Jadi, Veo 3 ini seperti makanan yang lezat, tapi porsinya terlalu kecil 🍴! Tapi, tetap saja, Veo 3 ini merupakan langkah besar dalam pengembangan teknologi AI, dan aku tidak sabar untuk melihat apa yang akan dilakukan oleh para kreator di Indonesia dengan menggunakan Veo 3 ini 🤩! 🇮🇩
