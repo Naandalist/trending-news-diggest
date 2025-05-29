@@ -2,13 +2,13 @@
 
 Mawar mengungkapkan bahwa Kevin adalah pria pertama yang ia kenalkan kepada anak-anaknya.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Kisah Cinta Mawar AFI, Kini Bersama Kevin Wazeng |
-| description | Mawar mengungkapkan bahwa Kevin adalah pria pertama yang ia kenalkan kepada anak-anaknya. |
-| urlshort    | http://kmp.im/AGHp8B |
-| author      | Ady Prawira Riandi |
-| editor      | Dian Maharani |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Kisah Cinta Mawar AFI, Kini Bersama Kevin Wazeng |
+| 📝 Description | Mawar mengungkapkan bahwa Kevin adalah pria pertama yang ia kenalkan kepada anak-anaknya. |
+| 🔗 Short URL   | http://kmp.im/AGHp8B |
+| 👤 Author      | Ady Prawira Riandi |
+| ✏️ Editor      | Dian Maharani |
 
 ![Kevin Wazeng dan Mawar AFI](https://asset.kompas.com/crops/gHTXfLOZ4SzfCW4rTpDbsFa0OYg=/0x85:413x361/750x500/data/photo/2025/05/27/683552b32473d.png)
 
@@ -55,18 +55,18 @@ Mawar mengungkapkan bahwa Kevin adalah pria pertama yang ia kenalkan kepada anak
 Kevin menunjukkan kedekatan dengan anak-anak Mawar, seperti mengantar jemput mereka ke sekolah dan bermain bersama.
 
 ---
-Berikut adalah ringkasan singkat dari berita tersebut: Penyanyi Mawar AFI baru saja dilamar oleh kekasihnya, Kevin Wazeng, saat makan malam bersama pada Minggu, 25 Mei 2025.
+## Ringkasan
 
- Mawar sebelumnya telah mengalami lika-liku percintaan yang berat, termasuk pernikahan pertama dengan Steno Ricardo yang berakhir dengan perceraian pada Desember 2021 dan memiliki tiga orang anak.
+Berita terbaru dari dunia hiburan Tanah Air, penyanyi Mawar Dhimas Febra Purwanti atau lebih dikenal dengan Mawar AFI baru saja dilamar oleh sang kekasih, Kevin Wazeng, saat sedang makan malam bersama pada Minggu, 25 Mei 2025.
 
- Setelah itu, Mawar menjadi ibu tunggal dan kemudian memulai hubungan baru dengan Kevin, yang bukan berasal dari kalangan selebritas dan bekerja sebagai perawat di Amerika Serikat.
+ Sebelumnya, Mawar telah mengalami lika-liku percintaan yang cukup berat, termasuk pernikahan pertama dengan Steno Ricardo yang berakhir dengan perceraian.
+
+ Kini, Mawar telah menemukan cinta barunya dengan Kevin Wazeng, seorang perawat yang bekerja di Amerika Serikat.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Wow, akhirnya Mawar menemukan cinta yang sejati 🙏, atau mungkin hanya menemukan seseorang yang tidak memiliki akun Instagram sehingga tidak tahu tentang masa lalunya 😂.
 
- Sisi positifnya, Mawar akhirnya menemukan cinta yang sejati dengan Kevin, yang sepertinya bukan hanya tampan tetapi juga baik hati dan bisa bermain bersama anak-anaknya.
+ Tapi serius, saya senang untuk Mawar, setelah semua yang dia lalui, dia akhirnya menemukan seseorang yang mencintainya dan anak-anaknya 🙌.
 
- Tapi, sisi negatifnya, kita harus bertanya-tanya apakah Mawar sudah benar-benar siap untuk menikah lagi setelah pernikahan pertamanya yang berakhir dengan perceraian yang dramatis.
-
- Dan apa yang akan terjadi jika Kevin ternyata hanya ingin mengoleksi istri seperti ia mengoleksi motor Harley Davidson? Mungkin kita harus menunggu sampai season selanjutnya dari sinetron "Mawar AFI" untuk mengetahui apa yang akan terjadi selanjutnya.
+ Kevin Wazeng, siapa kamu sebenarnya? Apakah kamu seorang penyelamat 🦸‍♂️ atau hanya seorang pria yang suka mengoleksi motor gede 🚴‍♂️? Bersyahadatlah, Kevin, kita semua ingin tahu apa rahasia kamu untuk membuat Mawar jatuh cinta 🤔! 😆
