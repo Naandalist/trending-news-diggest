@@ -10,6 +10,8 @@ Kejaksaan Agung memeriksa dua hakim terkait dugaan suap dalam perkara ekspor CPO
 | author      | Shela Octavia |
 | editor      | Danu Damarjati  |
 
+![Kepala Pusat Penerangan Hukum Kejagung Harli Siregar ditemui di Gedung Kejagung, Jakarta Selatan, Selasa (13/8/2024) sore.](https://asset.kompas.com/crops/aLH-itzwaLIxgsMqWYanbDrghF4=/0x0:0x0/750x500/data/photo/2024/08/13/66bb3d95ecbb7.jpeg)
+
 **JAKARTA, KOMPAS.com** - Kejaksaan Agung memeriksa dua orang hakim terkait kasus tindak pidana korupsi suap dan/atau gratifikasi dalam penanganan perkara vonis lepas (ontslag) terdakwa kasus ekspor minyak sawit mentah atau crude palm oil (CPO) di Pengadilan Negeri Jakarta Pusat, Selasa (27/5/2025).
 
 Dua hakim tersebut adalah Herdyanto Sutantyo (HS), yang merupakan hakim di Pengadilan Negeri Jakarta Pusat, dan Haris Munandar (HM), hakim di Pengadilan Tinggi DKI Jakarta.
@@ -53,24 +55,19 @@ Suap tersebut diberikan agar majelis hakim yang menangani kasus ekspor CPO divon
 Vonis lepas merupakan putusan hakim yang menyatakan bahwa terdakwa terbukti melakukan perbuatan yang didakwakan, tetapi perbuatan tersebut tidak termasuk dalam kategori tindak pidana.
 
 ---
-Berikut adalah ringkasan berita dalam Bahasa Indonesia: Kejaksaan Agung telah memeriksa dua orang hakim, Herdyanto Sutantyo dan Haris Munandar, terkait kasus tindak pidana korupsi suap dan/atau gratifikasi dalam penanganan perkara vonis lepas terdakwa kasus ekspor minyak sawit mentah di Pengadilan Negeri Jakarta Pusat.
+Berikut adalah rangkuman singkat dari laporan berita tersebut dalam bahasa Indonesia: 
+Kejaksaan Agung telah memeriksa dua hakim, yaitu Herdyanto Sutantyo dan Haris Munandar, terkait kasus tindak pidana korupsi suap dan/atau gratifikasi dalam penanganan perkara vonis lepas terdakwa kasus ekspor minyak sawit mentah (CPO) di Pengadilan Negeri Jakarta Pusat.
 
- Penyidik menemukan adanya putusan perdata yang digunakan sebagai landasan hukum untuk memberikan ontslag kepada pihak korporasi ekspor CPO, dan mereka sedang mendalami apakah putusan perdata ini berkolerasi dengan perkara pidana yang menghasilkan putusan ontslag tersebut.
+ Penyidik menemukan adanya putusan perdata antara PT Permata Hijau Palm Oleo melawan Kementerian Perdagangan yang digunakan sebagai landasan hukum untuk memberikan ontslag kepada pihak korporasi ekspor CPO.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang sakit.
 
- Sisi positifnya adalah bahwa Kejaksaan Agung telah melakukan tindakan yang tepat dengan memeriksa dua hakim yang terkait dalam kasus korupsi ini.
+ Sisi positifnya adalah bahwa Kejaksaan Agung akhirnya mengambil tindakan serius dalam mengatasi korupsi di pengadilan, yang merupakan langkah besar dalam memulihkan kepercayaan masyarakat terhadap sistem hukum.
 
- Ini menunjukkan bahwa pemerintah serius dalam menangani kasus korupsi dan tidak ragu-ragu untuk menyelidiki dan menindak mereka yang terlibat.
+ Namun, sisi negatifnya adalah bahwa kasus ini menunjukkan bahwa korupsi masih sangat merajalela di Indonesia, bahkan di kalangan pejabat hukum yang seharusnya menjaga integritas sistem hukum.
 
- Namun, sisi negatifnya adalah bahwa kasus korupsi seperti ini masih terjadi di Indonesia, dan itu sangat memalukan.
+ Ini seperti sebuah ironi yang sangat sakit, di mana mereka yang seharusnya memerangi korupsi justru terlibat dalam korupsi itu sendiri.
 
- Bagaimana mungkin hakim yang seharusnya menjadi penjaga hukum dan keadilan malah terlibat dalam kasus korupsi? Ini adalah contoh klasik dari "ikan busuk dari kepala", di mana mereka yang seharusnya menjadi contoh baik malah menjadi contoh buruk.
-
- Dan yang paling menyakitkan adalah bahwa uang suap yang diberikan kepada hakim-hakim ini bisa digunakan untuk membiayai pendidikan atau kesehatan rakyat, tapi malah digunakan untuk memperkaya diri sendiri.
-
- Ini adalah bentuk kejahatan yang sangat keji dan harus dihukum seberat-beratnya.
-
- Jadi, mari kita tunggu apakah hasil penyelidikan ini akan membawa keadilan kepada rakyat Indonesia atau tidak.
+ Mari kita tunggu apakah penindakan ini akan membawa perubahan nyata atau hanya sekedar tindakan simbolis untuk menyenangkan masyarakat.
