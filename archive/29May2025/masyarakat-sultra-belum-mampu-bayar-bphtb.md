@@ -10,6 +10,8 @@ Nusron menduga karena masyarakat belum mampu membayar Bea Perolehan Hak atas Tan
 | author      | Suhaiela Bahfein |
 | editor      | Hilda B Alexander |
 
+![Menteri ATR/Kepala BPN Nusron Wahid dalam Rakor Pertanahan dan Penataan Ruang bersama Pemerintah Provinsi dan Kabupaten/Kota se-Sulawesi Tenggara yang digelar di Ruang Pola Bahteramas Kantor Gubernur Sulawesi Tenggara, Rabu (28/05/2025).](https://asset.kompas.com/crops/SBqI-YgYBmHHhadOrtjalY1-kR4=/0x0:4160x2773/750x500/data/photo/2025/05/29/6837c094211c1.jpeg)
+
 **JAKARTA, KOMPAS.com** - Menteri Agraria dan Tata Ruang/Kepala Badan Pertanahan Nasional (ATR/BPN) Nusron Wahid menduga masyarakat Sulawesi Tenggara (Sultra) belum mampu membayar Bea Perolehan Hak atas Tanah dan Bangunan (BPHTB).
 
 Hal ini menyusul data baru 1,4 juta bidang tanah di Provinsi Sultra yang telah bersertifikat. Ini srtinya, 78,55 persen dari total bidang tanah di provinsi tersebut sejumlah 1,8 juta bidang tanah.
@@ -41,20 +43,20 @@ Tahun lalu, nilai Hak Tanggungan yang dijadikan jaminan pinjaman bank di Sulawes
  
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Menteri Agraria dan Tata Ruang/Kepala Badan Pertanahan Nasional (ATR/BPN) Nusron Wahid menyatakan bahwa masyarakat Sulawesi Tenggara (Sultra) belum mampu membayar Bea Perolehan Hak atas Tanah dan Bangunan (BPHTB) karena masih ada sekitar 21,45 persen bidang tanah yang belum bersertifikat di provinsi tersebut.
+Berikut ringkasan berita dari **JAKARTA, KOMPAS.
 
- Meskipun 78,55 persen dari total bidang tanah telah bersertifikat, Nusron menyarankan agar kepala daerah di Sulawesi Tenggara mengeluarkan kebijakan pembebasan BPHTB bagi masyarakat miskin, seperti yang telah dilakukan oleh Gubernur Jawa Timur dan Jawa Tengah.
+com**: Menteri Agraria dan Tata Ruang/Kepala Badan Pertanahan Nasional (ATR/BPN) Nusron Wahid menyatakan bahwa masyarakat Sulawesi Tenggara (Sultra) belum mampu membayar Bea Perolehan Hak atas Tanah dan Bangunan (BPHTB) berdasarkan data baru yang menunjukkan 1,4 juta bidang tanah di Provinsi Sultra telah bersertifikat, yang berarti 78,55% dari total bidang tanah di provinsi tersebut.
 
- Sertifikasi tanah diharapkan dapat meningkatkan penerimaan BPHTB dan membuka akses perbankan bagi masyarakat.
+ Ia menyarankan agar kepala daerah di Sulawesi Tenggara mengikuti langkah Gubernur Jawa Timur dan Jawa Tengah dengan mengeluarkan surat edaran pembebasan BPHTB bagi peserta Pendaftaran Tanah Sistematis Lengkap (PTSL) dari keluarga miskin ekstrem.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sindiran yang menyakitkan.
+Sekarang mari kita lihat sisi lain dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, positifnya adalah bahwa sertifikasi tanah dapat meningkatkan penerimaan BPHTB dan membuka akses perbankan bagi masyarakat, sehingga mereka bisa mengembangkan usaha dan meningkatkan ekonomi.
+ Jadi, Menteri Nusron Wahid menyatakan bahwa masyarakat Sulawesi Tenggara belum mampu membayar BPHTB, dan itu seperti mengatakan bahwa orang-orang di sana masih hidup di bawah batu.
 
- Tapi, negatifnya adalah bahwa masih ada banyak masyarakat yang belum mampu membayar BPHTB, dan itu menunjukkan bahwa pemerintah belum melakukan yang cukup untuk membantu masyarakat miskin.
+ Tapi, serius saja, saya rasa itu adalah masalah serius yang perlu diselesaikan, karena tanpa sertifikat tanah, masyarakat rentan terhadap penipuan dan konflik lahan.
 
- Dan, kalau saya boleh berkata, Menteri Nusron Wahid itu seperti seorang ayah yang selalu mengingatkan anaknya untuk membayar utang, tapi lupa bahwa anaknya masih belum memiliki uang untuk membayar.
+ Namun, di sisi lain, kita bisa melihat bahwa sertifikasi tanah juga membuka akses perbankan bagi masyarakat, yang berarti mereka bisa meminjam uang untuk usaha, bukan hanya untuk nikah lagi, seperti yang dikatakan oleh Menteri Nusron Wahid dengan cara yang agak lucu.
 
- Jadi, mari kita tunggu apakah kebijakan pembebasan BPHTB bagi masyarakat miskin akan benar-benar dilaksanakan, atau hanya sekedar janji manis yang tidak akan terpenuhi.
+ Jadi, mari kita dukung upaya pemerintah untuk meningkatkan kesadaran masyarakat tentang pentingnya sertifikasi tanah dan membantu mereka mengakses layanan perbankan yang lebih baik.
