@@ -2,13 +2,13 @@
 
 Gudeg Bonggol Gedhang dari Gunungkidul resmi jadi Warisan Budaya Tak Benda Nasional 2024. Temukan keunikan dan proses pembuatannya!
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Mengenal Gudeg Bonggol Gedhang, Warisan Budaya Tak Benda Gunungkidul |
-| description | Gudeg Bonggol Gedhang dari Gunungkidul resmi jadi Warisan Budaya Tak Benda Nasional 2024. Temukan keunikan dan proses pembuatannya! |
-| urlshort    | http://kmp.im/AGHp73 |
-| author      | Markus Yuwono |
-| editor      | Sari Hardiyanto |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Mengenal Gudeg Bonggol Gedhang, Warisan Budaya Tak Benda Gunungkidul |
+| 📝 Description | Gudeg Bonggol Gedhang dari Gunungkidul resmi jadi Warisan Budaya Tak Benda Nasional 2024. Temukan keunikan dan proses pembuatannya! |
+| 🔗 Short URL   | http://kmp.im/AGHp73 |
+| 👤 Author      | Markus Yuwono |
+| ✏️ Editor      | Sari Hardiyanto |
 
 ![Gudeg Bonggol Gedhang di Wonosari, Gunungkidul](https://asset.kompas.com/crops/48qlBiiDTT7p_qr8KJuFG5AiAGA=/0x0:0x0/750x500/data/photo/2025/05/28/6836d37c99d8e.jpg)
 
@@ -57,24 +57,20 @@ Penyerahan sertifikat tersebut berlangsung pada Senin (26/5/2025) di Gedhong Pra
 Kabupaten Gunungkidul menerima sertifikat atas empat karya budaya, termasuk gudeg *bonggol gedhang*.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pemerintah telah menetapkan gudeg bonggol gedhang, sebuah kuliner khas dari Gunungkidul, Daerah Istimewa Yogyakarta, sebagai Warisan Budaya Tak Benda (WBTb) Nasional 2024.
+## Ringkasan
 
- Mei Widiastuti, seorang warga Padukuhan Karanggumuk 2, adalah salah satu pelestari tradisi ini.
+Berikut adalah ringkasan berita tersebut: Gudeg bonggol gedhang, sebuah kuliner khas dari Gunungkidul, Daerah Istimewa Yogyakarta, telah ditetapkan sebagai Warisan Budaya Tak Benda (WBTb) Nasional 2024.
 
- Gudeg bonggol gedhang terbuat dari pohon pisang kepok dan memiliki rasa serta tekstur yang unik.
+ Mei Widiastuti, seorang pelestari tradisi ini, menjelaskan bahwa gudeg bonggol gedhang terbuat dari pohon pisang kepok dan memiliki rasa serta tekstur yang unik.
 
- Proses pembuatannya melibatkan mencuci, merajang, dan merebus bonggol pisang sebelum dimasak dengan bumbu khas.
-
- Gudeg ini biasanya disajikan dengan nasi, sayur lombok, dan opor ayam kampung, serta sering dibuat saat acara pernikahan atau syukuran.
+ Proses pembuatan gudeg ini melibatkan pencucian, perajangan, perebusan, dan pengolahan dengan bumbu-bumbu khas.
 
 
 
-Sekarang, mari kita bahas tentang sisi positif dan negatif dari berita ini, dengan sedikit tambahan satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini 🤣.
 
- Positifnya, gudeg bonggol gedhang telah diakui sebagai Warisan Budaya Tak Benda Nasional, yang berarti akan ada upaya untuk melestarikan dan mempromosikan kuliner ini.
+ Jadi, gudeg bonggol gedhang ini telah diakui sebagai warisan budaya, yang berarti kita harus bangga dengan kuliner khas kita sendiri 🎉! Tapi, saya juga penasaran, apa yang membuat gudeg ini begitu spesial? Apakah karena rasa pisang kepok yang unik atau karena proses pembuatan yang rumit? 🤔.
 
- Tapi, negatifnya, apakah ini berarti harga gudeg bonggol gedhang akan melambung tinggi seperti harga nasi goreng di restoran bintang lima? Atau apakah kita harus siap-siap untuk melihat gudeg bonggol gedhang dijual dengan harga yang tidak masuk akal, seperti Rp 50.
+ Saya juga berharap, dengan pengakuan ini, gudeg bonggol gedhang dapat lebih dikenal dan disukai oleh masyarakat luas, sehingga Mei Widiastuti dapat menjual lebih banyak porsi gudeg dan menjadi kaya raya 💸! Tapi, saya juga khawatir, apa jika gudeg ini menjadi terlalu komersial dan kehilangan nilai budayanya? 🙅‍♂️.
 
-000 per mangkuk? Tapi, hei, setidaknya kita bisa bersyukur bahwa gudeg bonggol gedhang masih bisa dibuat dengan bahan-bahan yang sederhana dan tidak memerlukan bumbu yang terlalu eksotis, seperti bumbu yang hanya bisa ditemukan di pasar malam.
-
- Jadi, mari kita nikmati gudeg bonggol gedhang ini sebelum hargaannya melambung tinggi, dan kita harus menjual ginjal kita untuk bisa membelinya.
+ Jadi, mari kita nikmati gudeg bonggol gedhang ini dengan bijak dan tidak lupa akan nilai budayanya yang sebenarnya 🙏! 🍴👌
