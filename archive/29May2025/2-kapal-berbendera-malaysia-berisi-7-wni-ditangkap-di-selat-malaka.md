@@ -37,18 +37,20 @@ Kepala Stasiun PSDKP Belawan, M Syamsu Rokman, menambahkan, kedua kapal itu mela
 \[video.1\]  
 
 ---
-Berita terbaru dari Medan mengungkapkan bahwa dua kapal asing dengan bendera Malaysia telah ditangkap oleh Kementerian Kelautan dan Perikanan (KKP) di perairan Selat Malaka karena melakukan penangkapan ikan ilegal.
+Berikut adalah ringkasan berita dalam satu paragraf: Dua kapal asing dengan bendera Malaysia telah ditangkap oleh Kementerian Kelautan dan Perikanan (KKP) di perairan Selat Malaka karena melakukan penangkapan ikan ilegal.
 
- Menurut Direktur Jenderal Pengawasan Sumber Daya Kelautan dan Perikanan (PSDKP) Pung Nugroho Saksono, kedua kapal tersebut tidak memiliki dokumen perizinan dari Pemerintah Indonesia dan menggunakan alat penangkapan ikan trawl.
+ Kapal-kapal tersebut tidak memiliki dokumen perizinan dari Pemerintah Indonesia dan menggunakan alat penangkapan ikan trawl, yang menyebabkan potensi kerugian negara sebesar Rp 19,9 miliar.
 
- Kerugian negara yang dapat diselamatkan dari aktivitas ilegal ini diperkirakan sebesar Rp 19,9 miliar.
+ Awak kapal yang terdiri dari 7 orang WNI bekerja di Malaysia dengan motivasi gaji yang tinggi, tetapi tidak mengikuti prosedur yang benar.
+
+ Kedua kapal tersebut sekarang sedang diproses lebih lanjut oleh Penyidik Pegawai Negeri Sipil (PPNS) Perikanan Stasiun PSDKP Belawan.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit roster yang menyakitkan.
 
- Di sisi positif, kita harus mengapresiasi upaya KKP dalam menangkap kapal-kapal ilegal dan melindungi sumber daya kelautan kita.
+ Sisi positifnya, kita harus berterima kasih kepada KKP yang telah menangkap kapal-kapal ilegal tersebut, sehingga kita bisa menyelamatkan sumber daya laut kita dari para perompak Malaysia.
 
- Namun, di sisi negatif, kita harus bertanya-tanya mengapa awak kapal WNI masih mau bekerja di kapal-kapal ilegal dengan gaji yang tinggi, padahal mereka tahu itu ilegal.
+ Tapi, sisi negatifnya, apa yang salah dengan orang Indonesia kita ini? Mengapa mereka rela bekerja ilegal di Malaysia hanya untuk gaji yang tinggi? Apakah mereka tidak tahu bahwa mereka sedang merugikan negara sendiri? Dan apa yang dilakukan oleh pemerintah kita untuk mencegah hal seperti ini terjadi lagi? Sepertinya, kita masih perlu melakukan banyak hal untuk menjaga sumber daya laut kita dan meningkatkan kesadaran masyarakat tentang pentingnya melestarikan lingkungan laut.
 
- Apakah mereka tidak memiliki rasa nasionalisme atau hanya terlalu sibuk menghitung uang? Lalu, kita juga harus mempertanyakan efektifitas hukuman yang diberikan, apakah pidana penjara paling lama 8 tahun dan denda paling banyak Rp1,5 miliar sudah cukup untuk menjerat para pelaku? Atau kita hanya sekedar menghangatkan tempat untuk para koruptor lainnya? Ah, Indonesia, negeri yang penuh dengan ironi dan paradoks.
+ Jadi, mari kita tunggu apa yang akan terjadi selanjutnya, dan semoga saja kita bisa belajar dari kesalahan-kesalahan ini.
