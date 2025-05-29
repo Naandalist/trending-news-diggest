@@ -10,6 +10,8 @@ Runtuhnya gletser di Swiss pada Rabu (28/5/2025) menyebabkan longsor yang mengha
 | author      | Fatimah Az Zahra |
 | editor      | Resa Eka Ayu Sartika |
 
+![Runtuhnya Gletser di Desa Blatten, Swiss.](https://asset.kompas.com/crops/t2WCoNx0iPnyYJpSTyUZPSCIzFo=/0x0:704x352/780x390/data/photo/2025/05/29/6837de6cb53f8.png)
+
 **KOMPAS.com - **Bongkahan besar dari gletser jatuh dan menghancurkan sebagian wilayah Desa Blatten, Swiss pada hari Rabu (28/5/2025) waktu setempat.
 
 Sekitar 300 penduduk di Desa Blatten telah dievakuasi sejak beberapa hari sebelumnya karena kekhawatiran kekhawatiran pemerintah akan keruntuhan Gletser Birch.
@@ -67,22 +69,30 @@ Laporan terkini menunjukkan bahwa gletser-gletser di Swiss bisa saja menghilang 
 Namun, banyak ilmuwan iklim berpendapat bahwa target tersebut sudah terlewati. Artinya, pencairan gletser akan terus bertambah cepat, yang pada akhirnya meningkatkan risiko banjir, tanah longsor, dan mengancam lebih banyak komunitas di wilayah Pegunungan Alpen.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pada hari Rabu (28/5/2025), sebuah bongkahan besar dari gletser Birch jatuh dan menghancurkan sebagian wilayah Desa Blatten di Swiss, menyebabkan sekitar 300 penduduk dievakuasi sejak beberapa hari sebelumnya karena kekhawatiran akan keruntuhan gletser.
+Berikut adalah ringkasan singkat berita tersebut dalam satu paragraf: Pada hari Rabu (28/5/2025), sebuah bongkahan besar dari gletser jatuh dan menghancurkan sebagian wilayah Desa Blatten, Swiss.
 
- Satu orang dilaporkan hilang akibat peristiwa ini, dan banyak rumah hancur total.
+ Sekitar 300 penduduk telah dievakuasi beberapa hari sebelumnya karena kekhawatiran akan keruntuhan Gletser Birch.
 
- Pemerintah Swiss telah menjanjikan bantuan dan pendanaan untuk penduduk yang terdampak, serta memperingatkan bahwa evakuasi lanjutan mungkin masih diperlukan di daerah sekitar Blatten.
+ Akibat peristiwa ini, satu orang dilaporkan hilang, dan banyak rumah hancur total.
+
+ Pemerintah setempat telah menutup jalan utama menuju lembah dan meminta bantuan dari unit bantuan bencana milik tentara Swiss.
+
+ Peristiwa ini menyoroti dampak perubahan iklim yang semakin parah, dengan gletser mencair dengan kecepatan yang belum pernah terjadi sebelumnya.
 
 
 
-Sekarang, mari kita bahas dengan cara yang lebih santai dan menyakitkan.
+Sekarang, mari kita bahas tentang sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, gletser Birch di Swiss runtuh dan menghancurkan desa, apa yang tidak baru di sini? Ya, perubahan iklim lagi-lagi menjadi kambing hitam.
+ Sisi positifnya adalah bahwa pemerintah Swiss telah cepat dalam menanggapi bencana ini dan telah menjanjikan pendanaan untuk membantu penduduk yang terkena dampak.
 
- Tapi serius, kita harus mulai mengambil tindakan nyata untuk mengatasi masalah ini, bukan hanya berbicara tentangnya.
+ Namun, sisi negatifnya adalah bahwa peristiwa ini adalah bukti bahwa perubahan iklim sudah terlalu jauh dan sulit untuk dihentikan.
 
- Pemerintah Swiss sudah melakukan yang terbaik dengan mengevakuasi penduduk dan menjanjikan bantuan, tapi apa yang kita lakukan di Indonesia? Apakah kita hanya akan menunggu sampai gletser di Jayawijaya runtuh juga? Mari kita jadi lebih bijak dan bertindak sebelum terlambat.
+ Gletser-gletser di Swiss bisa saja menghilang seluruhnya dalam waktu satu abad, dan itu adalah hal yang sangat mengerikan.
 
- Oh, dan kepada penduduk Desa Blatten, saya turut berduka cita atas kehilangan desa mereka, tapi seperti yang dikatakan oleh Wali Kota Blatten, "Kami telah kehilangan desa kami, tetapi bukan hati kami.
+ Dan, tentu saja, kita tidak bisa lupa bahwa peristiwa ini juga menunjukkan bahwa manusia masih belum cukup serius dalam mengatasi perubahan iklim.
 
-" Mari kita jaga hati kita dan bumi kita, sebelum terlambat!
+ Jadi, mari kita semua berdoa agar pemerintah dan masyarakat dapat bekerja sama untuk mengatasi bencana ini dan mencegah bencana serupa di masa depan.
+
+ Tapi, hei, siapa tahu, mungkin kita semua sudah terlambat, dan gletser-gletser sudah tidak bisa diselamatkan lagi.
+
+ Ah, ya, itu adalah hal yang sangat menyenangkan untuk dipikirkan, bukan?
