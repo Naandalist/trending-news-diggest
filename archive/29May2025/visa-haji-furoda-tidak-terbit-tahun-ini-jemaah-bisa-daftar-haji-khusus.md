@@ -10,6 +10,8 @@ Visa haji Furoda atau perorangan tidak terbit tahun ini, sehingga jemaah bisa me
 | author      | Suci Wulandari Putri Chaniago |
 | editor      | Anggara Wikan Prasetya |
 
+![Ilustrasi haji dan umrah.](https://asset.kompas.com/crops/ZiSzS5zNqcWkId7dZ9KlEos3F7o=/557x36:2210x1138/750x500/data/photo/2024/01/10/659e82e223a9c.jpg)
+
 **KOMPAS.com** - Visa haji Furoda atau perorangan tidak terbit tahun ini, alternatifnya jemaah disarankan untuk beralih mendaftar haji khusus.
 
 \"PIHK (Penyelenggara Ibadah Haji Khusus) sebaiknya menyarankan kepada jemaah untuk beralih mendaftar haji khusus,\" dikutip dari surat edaran resmi Asosiasi Muslim Penyelenggara Haji dan Umrah Republik Indonesia (AMPHURI), yang *Kompas.com* konfirmasi melalui Ketua Umum AMPHURI, Firman M Nur pada Kamis (29/5/2025).
@@ -39,24 +41,26 @@ Selain itu, keberangkatan jemaah juga baru dapat dipastikan setelah visa dan tik
 \"Terbit dan belum/tidak terbitnya visa haji Furoda merupakan otoritas penuh Pemerintah Arab Saudi dan benar-benar di luar kewenangan PIHK,\" terangnya.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pemerintah Arab Saudi telah mengumumkan bahwa visa haji Furoda atau perorangan tidak akan diterbitkan tahun ini.
+Berikut ringkasan berita dalam Bahasa Indonesia: Pemerintah Arab Saudi telah mengakhiri penerbitan visa haji Furoda atau perorangan untuk tahun ini, sehingga jemaah disarankan untuk beralih mendaftar haji khusus.
 
- Hal ini membuat jemaah haji yang telah mendaftar harus beralih mendaftar haji khusus.
+ Asosiasi Muslim Penyelenggara Haji dan Umrah Republik Indonesia (AMPHURI) telah mengkonfirmasi hal ini melalui surat edaran resmi dan berkoordinasi dengan Dirjen Penyelenggaraan Haji dan Umrah Kementerian Agama, serta Kantor Urusan Haji (KUH) di Jeddah.
 
- Asosiasi Muslim Penyelenggara Haji dan Umrah Republik Indonesia (AMPHURI) telah mengkonfirmasi informasi ini dan menyarankan kepada penyelenggara ibadah haji khusus untuk menginformasikan hal ini kepada jemaahnya.
-
- AMPHURI juga telah berkoordinasi dengan Dirjen Penyelenggaraan Haji dan Umrah Kementerian Agama, serta Kantor Urusan Haji (KUH) di Jeddah untuk mendapatkan informasi yang akurat.
+ Penyelenggara ibadah haji khusus diharapkan dapat mengkonfirmasi kabar ini kepada jemaahnya dan melakukan penyelesaian sesuai Perjanjian Pelayanan antara PIHK dan jemaah Haji Furoda.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini, dan saya akan memberikan sedikit "roasting" yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, sisi positifnya adalah bahwa pemerintah Arab Saudi telah mengambil keputusan yang tegas untuk tidak menerbitkan visa haji Furoda, sehingga jemaah haji dapat merencanakan alternatif lain.
+ Sisi positifnya, jemaah haji Furoda dapat beralih mendaftar haji khusus, sehingga mereka masih dapat melaksanakan ibadah haji, meskipun dengan biaya yang lebih mahal.
 
- Tapi, sisi negatifnya adalah bahwa ini berarti banyak jemaah haji yang telah mendaftar harus kecewa dan mencari opsi lain, yang bisa sangat merepotkan.
+ Namun, sisi negatifnya, pemerintah Arab Saudi telah mengakhiri penerbitan visa haji Furoda, sehingga jemaah harus rela mengeluarkan biaya lebih untuk haji khusus.
 
- Dan, saya harus bilang, bahwa ini juga menunjukkan bahwa sistem pelayanan haji di Indonesia masih belum efektif, karena jemaah haji harus bergantung pada visa yang tidak pasti.
+ Ini seperti membeli tiket pesawat, tetapi tidak ada jaminan bahwa kita akan sampai di tujuan.
 
- Jadi, kepada semua penyelenggara ibadah haji khusus, saya sarankan untuk memperbaiki sistem pelayanan Anda, agar jemaah haji tidak harus mengalami kesulitan seperti ini.
+ Sungguh, hanya Allah yang tahu apa yang terjadi di balik layar.
 
- Dan, kepada jemaah haji, saya sarankan untuk tidak terlalu bergantung pada visa haji Furoda, karena itu seperti bergantung pada keberuntungan, yang tidak ada dalam kamus haji.
+ Tapi, kita harus tetap berdoa dan berharap bahwa pemerintah Arab Saudi akan mempertimbangkan kembali keputusan mereka.
+
+ Atau, kita bisa saja meminta jemaah haji Furoda untuk melakukan protes damai, mengenakan kostum haji dan membawa spanduk yang bertuliskan "Visa Haji Furoda, di mana?" di depan Kedutaan Besar Arab Saudi.
+
+ Hmm, itu ide yang bagus, bukan?
