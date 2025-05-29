@@ -53,24 +53,20 @@ Orang yang membayarkan pajak tersebut adalah Sujat, yang ditugaskan oleh pemilik
  
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Di Kabupaten Blora, Jawa Tengah, terdapat sebuah perumahan yang terbengkalai dan tidak berpenghuni, bernama Tawangrejo Asri.
+Berikut adalah rangkuman singkat dari berita tersebut: Perumahan Tawangrejo Asri di Kabupaten Blora yang dibangun sekitar tahun 2010 dan diresmikan pada 2011 kini terbengkalai dan tidak dihuni.
 
- Perumahan ini dibangun sekitar tahun 2010 dan diresmikan pada 2011, dengan 42 unit rumah di atas lahan seluas 3 hektar.
+ Perumahan ini memiliki 42 unit rumah di atas lahan seluas 3 hektar, namun kondisi bangunan kini tidak terawat dan dikelilingi semak belukar.
 
- Meskipun lokasinya strategis, perumahan ini sekarang hanya dihuni semak belukar dan kendaraan roda dua yang bisa melintasi portal masuknya.
-
- Kondisi bangunan juga tidak terawat, dengan dinding retak, plafon jebol, dan vegetasi liar menyelimuti rumah-rumah tersebut.
+ Meskipun lokasinya strategis, perumahan ini mengalami kesulitan air dan dianggap angker oleh masyarakat setempat, sehingga calon pembeli mundur dan penghuni meninggalkan rumah.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini, dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Ya, perumahan Tawangrejo Asri adalah contoh nyata dari kegagalan proyek pengembangan perumahan.
+ Sisi positifnya, perumahan ini masih membayar pajak bumi dan bangunan (PBB) sekitar Rp 1 juta per tahun, yang berarti pemerintah masih bisa mendapatkan pendapatan dari perumahan yang terbengkalai ini.
 
- Di satu sisi, kita bisa melihat bahwa perumahan ini memiliki potensi besar, dengan lokasi strategis dan lahan yang luas.
+ Namun, sisi negatifnya adalah bahwa perumahan ini sudah menjadi semacam "hantu" yang menghantui masyarakat setempat, dengan cerita mistis yang membuat calon pembeli mundur.
 
- Namun, di sisi lain, kita juga bisa melihat bahwa perumahan ini telah menjadi "rumah hantu" yang ditinggalkan oleh penghuninya, dengan alasan yang sangat masuk akal: tidak ada sumber air dan aura mistis yang menyelimuti perumahan ini.
+ Dan, yang paling menyakitkan, adalah bahwa orang yang ditugaskan untuk menjaga perumahan ini malah menggunakan "jimat" yang didapat dari situ untuk menjadi tukang pijat - ya, ini adalah contoh nyata dari "mencari uang dengan cara yang tidak biasa".
 
- Ya, siapa tidak ingin tinggal di rumah yang dihantui penampakan misterius dan tanpa air untuk minum? Mungkin ini adalah contoh nyata dari "pembangunan yang tidak terencana" dan "kegagalan dalam mengembangkan infrastruktur".
-
- Tapi, hey, setidaknya perumahan ini masih membayar pajak bumi dan bangunan, jadi pemerintah masih bisa mendapatkan uang dari proyek yang gagal ini.
+ Jadi, mari kita renungkan, apa yang sebenarnya terjadi di perumahan Tawangrejo Asri ini, dan apa yang bisa kita pelajari dari kesalahan-kesalahan yang telah terjadi.
