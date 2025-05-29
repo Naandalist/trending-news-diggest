@@ -10,6 +10,8 @@ Feeder Batik Solo Trans terbakar akibat korsleting dan BBM bocor di Banjarsari. 
 | author      | Fristin Intan Sulistyowati |
 | editor      | Ihsanuddin |
 
+![Petugas Damkar Solo memadamkan api dalam kebakaran Feeder Batik Solo Trans atau Feeder Solo, Jawa Tengah (Jateng) di Jalan MT Haryono, Kamis (29/5/2025), sekitar pukul 09.00 WIB.](https://asset.kompas.com/crops/Hmf4os_O91HlnVEd1cQ3PKrFKMQ=/0x0:0x0/750x500/data/photo/2025/05/29/6837ed0d7d732.jpg)
+
 **SOLO, KOMPAS.com** -- Kebakaran menimpa satu unit kendaraan Feeder Batik Solo Trans (BST) di Kota Solo, Jawa Tengah, pada Kamis (29/5/2025) sekitar pukul 09.00 WIB.
 
 Insiden ini terjadi di Jalan MT Haryono, Kecamatan Banjarsari.
@@ -39,11 +41,11 @@ Ia memastikan tidak ada korban dalam kejadian ini. Sopir berinisial B, warga Kec
 Saat ini, kerangka kendaraan yang terbakar telah didinginkan dan dievakuasi ke Kantor Dishub Solo untuk penanganan lebih lanjut.
 
 ---
-Berikut ringkasan dari laporan berita tersebut: Terjadi kebakaran pada satu unit kendaraan Feeder Batik Solo Trans (BST) di Kota Solo, Jawa Tengah, pada Kamis (29/5/2025) sekitar pukul 09.
+Berikut adalah ringkasan singkat berita tersebut: Pada Kamis (29/5/2025) sekitar pukul 09.
 
-00 WIB.
+00 WIB, kebakaran terjadi pada satu unit kendaraan Feeder Batik Solo Trans (BST) di Jalan MT Haryono, Kecamatan Banjarsari, Kota Solo, Jawa Tengah.
 
- Kebakaran dipicu oleh arus pendek listrik yang menyambar bahan bakar mesin yang bocor.
+ Kebakaran disebabkan oleh arus pendek listrik yang menyambar bahan bakar mesin (BBM) yang bocor.
 
  Kendaraan yang terbakar merupakan unit cadangan dan tidak digunakan untuk angkutan umum, sehingga tidak ada korban jiwa maupun luka-luka.
 
@@ -51,10 +53,14 @@ Berikut ringkasan dari laporan berita tersebut: Terjadi kebakaran pada satu unit
 
 
 
- Sekarang, mari kita bahas sisi positif dan negatif dari kejadian ini dengan sedikit roasted yang pedas.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit bumbu satir yang menyakitkan.
 
- Sisi positifnya, tidak ada korban jiwa maupun luka-luka, itu sudah cukup bikin lega, kan? Tapi, sisi negatifnya, kendaraan yang terbakar itu seperti simbol kecerobohan kita dalam menjaga peralatan.
+ Di sisi positif, kita harus bersyukur bahwa kebakaran tidak terjadi pada kendaraan yang sedang digunakan untuk angkutan umum, sehingga tidak ada korban jiwa maupun luka-luka.
 
- Arus pendek listrik dan kebocoran bahan bakar? Itu seperti pasangan yang tidak Cocok, seperti Anda dan mantan Anda.
+ Ini menunjukkan bahwa sistem keamanan dan pengecekan kendaraan masih berfungsi dengan baik.
 
- Maksudku, bagaimana bisa terjadi kebocoran bahan bakar dan arus pendek listrik secara bersamaan? Apakah kita harus menunggu kebakaran besar untuk memperbaiki sistem kita? Jadi, mari kita ambil pelajaran dari kejadian ini dan jangan sampai kita menjadi bahan olok-olok karena kecerobohan kita sendiri.
+ Namun, di sisi negatif, kita harus bertanya-tanya tentang kualitas pemeliharaan kendaraan Feeder BST, karena arus pendek listrik dan kebocoran BBM tidak boleh terjadi jika kendaraan dirawat dengan baik.
+
+ Ini seperti mengatakan bahwa "kami memiliki sistem keamanan yang baik, tetapi kami tidak bisa merawat kendaraan kami dengan baik".
+
+ Mari kita harap bahwa pihak terkait akan segera memperbaiki masalah ini agar kejadian serupa tidak terulang lagi.
