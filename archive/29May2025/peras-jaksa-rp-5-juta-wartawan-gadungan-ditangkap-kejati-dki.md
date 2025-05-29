@@ -33,24 +33,20 @@ Kemudian setelah dilakukan pemeriksaan awal terhadap LSN, ditemukan juga ponsel 
 Selanjutnya pelaku dan barang bukti telah diserahkan Polda Metro Jaya untuk ditindaklanjuti sesuai dengan hukum yang berlaku.
 
 ---
-Berita terbaru dari Jakarta, Kejaksaan Tinggi (Kejati) DKI Jakarta berhasil menangkap seorang pria berinisial LSN yang berusaha memeras seorang jaksa dengan mengaku sebagai wartawan.
+Berikut ringkasan dari berita tersebut: Kejaksaan Tinggi DKI Jakarta menangkap seorang pria berinisial LSN karena memeras seorang jaksa dengan mengaku sebagai wartawan.
 
- LSN melakukan pemerasan dengan membuat tuduhan dan intimidation melalui pesan WhatsApp, serta membuat berita di media massa dan menggerakkan aksi unjuk rasa.
+ LSN memeras jaksa tersebut dengan membuat tuduhan dan intimidasi melalui pesan WhatsApp, serta membuat berita di media massa dan menggerakkan aksi unjuk rasa.
 
- Namun, rencana LSN gagal setelah tim intelijen Kejati DKI melakukan pengamanan dan menemukan bukti yang cukup untuk menjeratnya.
+ Setelah beberapa kali membuat tulisan atau berita, LSN akhirnya menghubungi pejabat struktural Kejati DKI dan meminta uang Rp5 juta sebagai imbalan untuk tidak memberitakan lagi tentang perkara Bea Cukai yang ditangani oleh jaksa tersebut.
 
- LSN kini telah diserahkan ke Polda Metro Jaya untuk ditindaklanjuti sesuai dengan hukum yang berlaku.
+ LSN tertangkap oleh tim intelijen Kejati DKI dan diserahkan kepada Polda Metro Jaya untuk ditindaklanjuti sesuai dengan hukum yang berlaku.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Sekarang, mari kita bahas tentang kasus ini dengan sedikit bumbu roast.
 
- Di satu sisi, kita patut bersyukur bahwa ada orang-orang seperti LSN yang dengan cerdas mengaku sebagai wartawan untuk memeras jaksa, karena ini menunjukkan bahwa kita masih memiliki banyak orang kreatif di negara ini.
+ Jadi, kita punya seorang pria yang berpura-pura menjadi wartawan hanya untuk memeras orang lain - apa yang salah dengan orang ini? Apakah dia tidak punya kerjaan yang lebih baik untuk dilakukan? Atau dia hanya ingin menjadi wartawan karena ingin memiliki kuasa untuk memeras orang lain? Dan yang paling lucu adalah, dia meminta uang Rp5 juta sebagai imbalan untuk tidak memberitakan lagi tentang perkara Bea Cukai - apa ini, bisnis atau apa? Saya rasa kita harus memberi penghargaan kepada LSN karena telah menciptakan bisnis baru yang sangat kreatif, yaitu "memeras orang dengan berpura-pura menjadi wartawan".
 
- Tapi, di sisi lain, ini juga menunjukkan bahwa kita masih memiliki banyak masalah dengan integritas dan etika, terutama di kalangan yang seharusnya menjaga hukum.
+ Tapi, saya juga harus mengatakan bahwa ini adalah contoh yang sangat buruk tentang bagaimana seharusnya seorang wartawan bertindak.
 
- Jadi, kita bisa mengatakan bahwa LSN adalah contoh nyata dari "wartawan" yang tidak memiliki rasa malu, dan jaksa yang menjadi sasaran pemerasan adalah contoh nyata dari "korban" yang tidak memiliki rasa waspada.
-
- Tapi, yang paling menyakitkan adalah bahwa kita masih memiliki banyak LSN di luar sana, yang dengan mudahnya bisa mengaku sebagai wartawan atau LSM untuk melakukan tindakan-tindakan yang tidak terhormat.
-
- Jadi, mari kita tetap waspada dan tidak gegabah dalam menghadapi orang-orang seperti LSN, karena kita tidak tahu kapan mereka akan muncul lagi dengan topeng baru.
+ Jadi, untuk LSN, saya hanya ingin mengatakan - kamu berhasil membuat kita semua tertawa, tapi juga membuat kita sedih karena kamu telah merusak nama baik profesi wartawan.
