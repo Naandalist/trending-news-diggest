@@ -83,22 +83,34 @@ Bagi investor atau masyarakat yang tertarik pada aset langka, fakta bahwa 93 per
 Di sisi lain, ini juga bisa memperkuat keyakinan bahwa Bitcoin memang dirancang untuk bertahan sebagai aset bernilai jangka panjang.
 
 ---
-Berikut ringkasan berita dalam satu paragraf: Bitcoin, mata uang kripto pertama dan terbesar di dunia, memiliki pasokan yang terbatas, hanya 21 juta koin.
+Berikut adalah ringkasan berita tersebut dalam satu paragraf: Bitcoin, mata uang kripto terbesar di dunia, hanya memiliki total pasokan 21 juta koin yang tidak bisa ditambah.
 
- Saat ini, sekitar 93,3 persen dari total Bitcoin sudah berhasil ditambang, meninggalkan hanya sekitar 1,4 juta BTC yang belum tercipta.
+ Saat ini, sekitar 93,3% dari total Bitcoin sudah ditambang, atau sekitar 19,6 juta BTC, dan hanya tersisa sekitar 1,4 juta BTC yang belum tercipta.
 
- Sistem Bitcoin dirancang untuk mengurangi jumlah Bitcoin baru yang muncul dari waktu ke waktu, sehingga proses penambangan akan sangat lambat dan diperkirakan membutuhkan lebih dari 100 tahun untuk menyelesaikan sisa 7 persen.
+ Proses penambangan Bitcoin dirancang untuk berkurang setiap empat tahun, sehingga membuat proses penambangan menjadi sangat lambat dan memakan waktu lebih dari 100 tahun untuk menambang sisa BTC yang tersedia.
 
- Banyak Bitcoin yang hilang secara permanen, sehingga jumlah Bitcoin yang benar-benar beredar dan bisa digunakan mungkin hanya sekitar 16 juta BTC.
+ Hal ini membuat Bitcoin menjadi semakin langka dan menyerupai emas digital.
 
 
 
-Sekarang, mari kita bahas fakta ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu roasting yang sakit.
 
- Jadi, 93% Bitcoin sudah ditambang, dan sisa 7% akan memakan waktu lebih dari satu abad untuk diselesaikan - wow, ini seperti menunggu kereta api di Indonesia, sangat lambat! Tapi serius, ini berarti bahwa nilai Bitcoin bisa naik seiring waktu karena pasokan yang terbatas dan permintaan yang meningkat.
+ Jadi, Anda pikir Anda pintar karena sudah membeli Bitcoin sejak awal? Tidak juga, karena sekitar 3-3,8 juta BTC sudah hilang selamanya karena pengguna lupa kata sandi dompet digital atau kehilangan akses.
 
- Namun, ini juga berarti bahwa volatilitas harga bisa meningkat, dan likuiditas menjadi faktor penting.
+ Itu seperti memiliki sebuah dompet yang penuh dengan uang, tetapi Anda tidak bisa membukanya karena lupa kombinasi kodenya.
 
- Jadi, bagi Anda yang ingin membeli Bitcoin, pastikan Anda memiliki kesabaran seperti orang yang menunggu kereta api di Indonesia.
+ Sungguh, itu adalah kesalahan yang sangat.
 
- Dan bagi Anda yang sudah memiliki Bitcoin, jangan lupa untuk menyimpan kata sandi dompet digital Anda, karena jika Anda lupa, Anda akan kehilangan akses ke Bitcoin Anda - seperti kehilangan uang di dalam sofa, tapi lebih parah.
+.
+
+.
+
+ manusiawi.
+
+ Di sisi lain, bagi mereka yang masih memiliki akses ke Bitcoin mereka, ini bisa menjadi kabar baik karena pasokan yang langka dan kehilangan yang permanen membuat Bitcoin semakin berharga.
+
+ Tapi, jangan terlalu bersemangat, karena proses penambangan yang lambat berarti Anda harus menunggu lama untuk mendapatkan BTC baru.
+
+ Ya, seperti menunggu kereta api yang selalu tertunda, tetapi dengan lebih banyak volatilitas dan risiko.
+
+ Jadi, siap-siap untuk merasakan sakit karena harga yang naik-turun, atau mungkin hanya merasakan sakit karena Anda tidak bisa mengakses BTC Anda karena lupa kata sandi.
