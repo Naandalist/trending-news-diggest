@@ -10,6 +10,8 @@ China secara resmi telah membuka akses ekspor durian beku asal Indonesia.
 | author      |  |
 | editor      | Erlangga Djumena |
 
+![Ilustrasi durian](https://asset.kompas.com/crops/iaU5JAVlIxm1McrAb-5fD5PM69c=/0x0:0x0/750x500/data/photo/2022/11/02/6362456d307aa.jpg)
+
 **JAKARTA, KOMPAS.com** - Kepala Badan Karantina Indonesia (Barantin) Sahat Manaor Panggabean menyatakan, China secara resmi telah membuka akses ekspor durian beku Indonesia.
 
 Sahat mengatakan, pihaknya bersama Menteri General Administration of Customs of the People\'s Republic of China (GACC) Sun Meijin telah bersepakat menandatangani naskah protokol ekspor durian beku asal Indonesia tujuan China
@@ -33,26 +35,18 @@ Lebih lanjut, dia mengatakan, dalam prosesnya ketertelusuran tersebut melibatkan
 \"Dengan terbukanya akses ekspor ini, diharapkan dapat menciptakan iklim investasi yang kondusif di bidang hortikultura dan sebagai sumber perolehan devisa negara untuk mensejahterakan kehidupan petani di Indonesia,\" kata Sahat.
 
 ---
-Berikut adalah rangkuman singkat berita tersebut dalam satu paragraf: Pemerintah China secara resmi telah membuka akses ekspor durian beku Indonesia, setelah Kepala Badan Karantina Indonesia Sahat Manaor Panggabean menandatangani naskah protokol ekspor dengan Menteri General Administration of Customs of the People's Republic of China.
+Berikut adalah ringkasan berita dalam satu paragraf: Kepala Badan Karantina Indonesia, Sahat Manaor Panggabean, mengumumkan bahwa China secara resmi telah membuka akses ekspor durian beku Indonesia.
 
- Protokol ini mempercayakan pengawasan kepada Badan Karantina Indonesia untuk memastikan keamanan pangan dan kesehatan produk asal tumbuhan.
+ Hal ini dilakukan setelah penandatanganan protokol ekspor durian beku antara Badan Karantina Indonesia dan Menteri General Administration of Customs of the People's Republic of China (GACC) Sun Meijin.
 
- Pelaku usaha dan pemerintah daerah menyambut gembira upaya ini, yang diharapkan dapat menciptakan iklim investasi yang kondusif di bidang hortikultura dan meningkatkan kesejahteraan petani di Indonesia.
+ Protokol ini menekankan pada konsep traceability, di mana proses produksi durian segar dapat terpantau dan tertelusur dari kebun hingga siap dikirimkan.
+
+ Dengan terbukanya akses ekspor ini, diharapkan dapat menciptakan iklim investasi yang kondusif di bidang hortikultura dan meningkatkan kesejahteraan petani di Indonesia.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu roasting yang pedas.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, positifnya, kita bisa ekspor durian beku ke China, yang berarti kita bisa mendapatkan devisa negara dan membuat petani durian kita bahagia.
+ Ya, kita dapat bersorak-sorak karena durian beku Indonesia akhirnya dapat diekspor ke China, tapi jangan lupa bahwa kita masih perlu memenuhi syarat-syarat yang rumit dan memastikan bahwa produk kita aman untuk dikonsumsi.
 
- Tapi, negatifnya, kita harus memenuhi syarat-syarat yang ketat dari China, seperti memiliki instalasi karantina tumbuhan yang memadai dan menerbitkan sertifikat kesehatan tumbuhan.
-
- Ih, kayaknya kita harus berlomba-lomba untuk memenuhi standar China, atau kita akan ketinggalan.
-
- Tapi, secara serius, ini adalah langkah yang baik untuk meningkatkan ekspor kita dan membuat Indonesia lebih kompetitif di pasar internasional.
-
- Sekarang, kepada petani durian kita, jangan lupa untuk menjaga kualitas durian kalian, atau kita akan malu di depan China.
-
- Dan kepada pemerintah, jangan lupa untuk memantau proses ekspor ini dengan baik, atau kita akan kena masalah lagi.
-
- Jadi, mari kita kerja sama untuk membuat ekspor durian beku kita sukses dan membuat Indonesia bangga!
+ Tapi, hei, setidaknya kita dapat meningkatkan kesejahteraan petani dan menciptakan iklim investasi yang kondusif, kan? Tapi, apakah kita sudah siap untuk menghadapi persaingan dengan produk durian beku lainnya di pasar internasional? Atau kita hanya akan menjadi penonton yang terlena oleh janji-janji manis dari pemerintah? Mari kita tunggu dan lihat, karena hanya waktu yang dapat menentukan apakah kita akan menjadi pemain utama di pasar durian beku internasional atau hanya sekedar penonton yang terpinggirkan.
