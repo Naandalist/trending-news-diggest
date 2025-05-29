@@ -10,6 +10,8 @@ SPBU di Maluku ganti kelebihan dana Pertamax akibat kelalaian harga. Simak selen
 | author      | Priska Birahy |
 | editor      | Andi Hartik |
 
+![Harga BBM Pertamina per 1 Maret 2025.](https://asset.kompas.com/crops/mexk7bB3bOy9eRKUkUauuy7rbQI=/496x385:3696x2519/750x500/data/photo/2024/10/30/67223554abc0a.jpg)
+
 **AMBON, KOMPAS.com** - Stasiun Pengisian Bahan Bakar Umum (SPBU) Saparua, Kabupaten Maluku Tengah, Maluku, terpaksa harus mengganti kelebihan dana konsumen lantaran lalai belum mengganti keterangan harga jual BBM jenis Pertamax pada displai totem.
 
 Kekeliruan pada displai totem itu berlangsung selama tiga pekan, mulai dari 1 Mei hingga 24 Mei 2025.
@@ -45,28 +47,22 @@ Mereka yang mengadu ke posko didata secara perinci, mulai dari nama, nomor kenda
 \[video.1\]  
 
 ---
-Berikut adalah ringkasan berita dalam Bahasa Indonesia: Stasiun Pengisian Bahan Bakar Umum (SPBU) Saparua di Kabupaten Maluku Tengah terpaksa mengganti kelebihan dana konsumen karena lalai belum mengganti keterangan harga jual BBM jenis Pertamax pada displai totem selama tiga pekan.
+Berikut adalah ringkasan berita dalam satu paragraf: Stasiun Pengisian Bahan Bakar Umum (SPBU) Saparua di Kabupaten Maluku Tengah, Maluku, terpaksa mengganti kelebihan dana konsumen karena kesalahan harga BBM jenis Pertamax yang tidak diperbarui pada displai totem selama tiga pekan, dari 1 Mei hingga 24 Mei 2025.
 
  Harga yang tertera pada displai totem adalah Rp 12.
 
-800 per liter, padahal harga yang berlaku adalah Rp 12.
+800 per liter, padahal harga yang sebenarnya adalah Rp 12.
 
 700 per liter.
 
- Pihak SPBU telah membuka posko layanan untuk mengembalikan kelebihan biaya yang dikeluarkan untuk membeli Pertamax dan memberikan sanksi berupa Surat Peringatan (SP) kepada pengelola SPBU.
+ SPBU telah membuka posko layanan untuk mengembalikan kelebihan biaya yang dikeluarkan oleh konsumen dan memberikan sanksi atas kelalaian tersebut.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan humor yang pedas.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, pihak SPBU Saparua terlalu sibuk mungkin karena terlalu banyak makan rujak yang terlalu pedas sehingga lupa mengganti harga BBM di displai totem mereka.
+ Sisi positifnya, SPBU Saparua telah menunjukkan iktikad baik dengan mengganti kelebihan dana konsumen dan membuka posko aduan untuk membantu warga yang terkena dampak kesalahan harga.
 
- Tapi, yang positif adalah mereka bertanggung jawab dan mengganti kelebihan dana konsumen, bahkan memberikan nominal yang lebih besar dari kelebihan yang sebenarnya.
+ Namun, sisi negatifnya, kesalahan ini menunjukkan bahwa SPBU masih belum efektif dalam mengelola harga dan informasi, yang dapat menyebabkan kerugian bagi konsumen.
 
- Tapi, yang negatif adalah mereka harus mendapat Surat Peringatan (SP) karena kelalaiannya, dan itu seperti sebuah "tamparan" bagi mereka.
-
- Mungkin mereka harus lebih teliti lagi, atau bahkan menggunakan aplikasi pengingat harga BBM agar tidak terjadi lagi kesalahan seperti ini.
-
- Dan bagi konsumen, jangan khawatir, karena pihak SPBU telah membuka posko layanan untuk mengembalikan kelebihan biaya, jadi Anda tidak akan kehilangan uang karena kesalahan mereka.
-
- Jadi, semua berakhir dengan bahagia, kecuali mungkin untuk pihak SPBU yang harus menerima Surat Peringatan (SP) tersebut.
+ Dan, tentu saja, kita harus bertanya-tanya, apa yang dilakukan oleh pengelola SPBU selama tiga pekan tersebut? Apakah mereka sibuk bermain game atau menonton Netflix? Atau mungkin mereka hanya lupa bahwa harga BBM telah berubah? Yang jelas, kesalahan ini tidak boleh terulang lagi, dan SPBU harus meningkatkan kualitas pelayanan mereka untuk menghindari kerugian bagi konsumen.
