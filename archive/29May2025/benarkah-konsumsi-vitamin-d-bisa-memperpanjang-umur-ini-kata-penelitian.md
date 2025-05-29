@@ -10,6 +10,8 @@ Menurut penelitian, peserta yang rutin mengonsumsi vitamin D mengalami penyusuta
 | author      | Retia Kartika Dewi |
 | editor      | Inten Esti Pratiwi |
 
+![ilustrasi konsumsi suplemen vitamin D disebut bisa menunda penuaan sel dan mengurangi peradangan.](https://asset.kompas.com/crops/1kngblTFNN-puDaUn4ALnMQdPr4=/159x699:1428x1546/750x500/data/photo/2025/05/27/6835b1335ca05.png)
+
 **KOMPAS.com** - Vitamin D tidak hanya dikenal karena perannya dalam menjaga kesehatan tulang, tetapi juga semakin mendapat perhatian atas kemampuannya dalam memperpanjang masa umur sel.
 
 Para ilmuwan terus mencari cara untuk membuktikan kemampuan tersebut.
@@ -75,22 +77,20 @@ Konsultasikan dengan dokter sebelum mengonsumsi vitamin D dosis tinggi.
 Sementara itu, orang yang cukup mendapat sinar Matahari atau rutin mengonsumsi makanan kaya vitamin D seperti ikan berlemak, telur, dan produk susu mungkin tidak perlu suplemen tambahan. 
 
 ---
-Berikut adalah ringkasan berita tentang vitamin D dan perannya dalam memperpanjang masa umur sel: Penelitian terbaru menunjukkan bahwa mengonsumsi suplemen vitamin D dapat membantu menjaga sel tetap utuh lebih lama dan memperpanjang masa umur sel.
+Berita terbaru dari **KOMPAS.
 
- Penelitian yang melibatkan ribuan lansia di Amerika Serikat menemukan bahwa peserta yang mengonsumsi vitamin D3 mengalami penyusutan telomer yang lebih lambat dibanding kelompok plasebo, yang berarti bahwa vitamin D dapat melindungi panjang telomer dan memperlambat penuaan sel.
+com** mengungkap bahwa vitamin D tidak hanya bermanfaat untuk menjaga kesehatan tulang, tetapi juga dapat memperpanjang masa umur sel.
 
- Selain itu, vitamin D juga dapat mengurangi peradangan, yang merupakan faktor yang umumnya mempercepat penuaan dan penyakit kronis.
+ Penelitian skala besar di Amerika Serikat yang melibatkan ribuan lansia menunjukkan bahwa mengonsumsi suplemen vitamin D dapat membantu menjaga sel tetap utuh lebih lama.
+
+ Penelitian ini menemukan bahwa peserta yang mengonsumsi vitamin D mengalami penyusutan telomer yang lebih lambat dibandingkan dengan kelompok plasebo, yang berarti perlambatan penuaan sel selama hampir tiga tahun.
 
 
 
-Sekarang, mari kita bahas tentang sisi positif dan negatif dari informasi ini dengan sedikit sindiran yang pedas.
+Tapi, jangan terlalu bersemangat dulu, kawan! Penelitian ini masih perlu dikaji lebih lanjut, dan para ahli menekankan bahwa vitamin D bukan obat ajaib.
 
- Jadi, kawan-kawan, jika kamu ingin hidup lebih lama dan terlihat lebih muda, maka vitamin D adalah jawabannya! Tapi, jangan salah, vitamin D bukanlah obat ajaib yang dapat menggantikan gaya hidup sehat secara keseluruhan.
+ Suplemen ini bisa bermanfaat bagi orang yang kekurangan vitamin D, tapi tidak menggantikan gaya hidup sehat secara keseluruhan.
 
- Kamu masih harus berolahraga, makan makanan seimbang, dan tidak merokok, tidak minum alkohol berlebihan, dan tidak begadang semalaman main game.
+ Jadi, jangan langsung meminum suplemen vitamin D tanpa konsultasi dengan dokter, apalagi jika Anda sudah cukup mendapat sinar Matahari atau mengonsumsi makanan kaya vitamin D seperti ikan berlemak, telur, dan produk susu.
 
- Vitamin D hanya dapat membantu memperlambat penuaan sel, tapi tidak dapat menghentikan proses penuaan secara keseluruhan.
-
- Jadi, jangan terlalu bergantung pada suplemen dan lupakan tentang gaya hidup sehat, karena itu adalah resep untuk bencana! Dan, perlu diingat, konsumsi vitamin D harus sesuai dengan dosis yang tepat, jangan berlebihan, karena itu dapat menyebabkan efek sampingan yang tidak diinginkan.
-
- Jadi, kawan-kawan, mari kita hidup sehat dan bijak, dengan vitamin D sebagai salah satu bagian dari gaya hidup sehat kita!
+ Tapi, jika Anda ingin tetap muda dan sehat, mungkin vitamin D bisa menjadi pilihan yang tepat, asal jangan lupa untuk tetap berolahraga dan makan makanan sehat, ya!
