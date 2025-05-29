@@ -10,6 +10,8 @@ Perumahan Tawangrejo Asri di Blora mangkrak 15 tahun. Sepi, rusak, tak berpenghu
 | author      | Aria Rusta Yuli Pradana |
 | editor      | Ihsanuddin |
 
+![Kondisi perumahan yang mangkrak di Jalan Blora - Kunduran, tepatnya Desa Tawangrejo, Kecamatan Tunjungan, Kabupaten Blora, Jawa Tengah, Rabu (28/5/2025)](https://asset.kompas.com/crops/SaF6-f-If6OHtswqECiZC1R_cYI=/0x0:0x0/750x500/data/photo/2025/05/29/6837dc7009924.jpg)
+
 **BLORA, KOMPAS.com** -- Sebuah perumahan di pinggir Jalan Blora -- Kunduran, tepatnya di kawasan Pos Ngancar, Tunjungan, Kabupaten Blora, tampak terbengkalai.
 
 Perumahan yang dulunya dikenal dengan nama Tawangrejo Asri kini sepi tanpa penghuni dan dikelilingi semak belukar.
@@ -53,24 +55,20 @@ Orang yang membayarkan pajak tersebut adalah Sujat, yang ditugaskan oleh pemilik
  
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Sebuah perumahan di Blora, Jawa Tengah, yang dikenal sebagai Tawangrejo Asri, kini terbengkalai dan tidak berpenghuni.
+Berikut adalah ringkasan singkat dari berita tersebut dalam satu paragraf: Di Kabupaten Blora, Jawa Tengah, terdapat sebuah perumahan yang terbengkalai dan tidak berpenghuni, yaitu Tawangrejo Asri.
 
  Perumahan ini dibangun sekitar tahun 2010 dan diresmikan pada 2011, dengan 42 unit rumah di atas lahan seluas 3 hektar.
 
- Namun, kondisi bangunan kini tidak terawat, dengan dinding retak, plafon jebol, dan vegetasi liar menyelimuti rumah-rumah tersebut.
-
- Perumahan ini memiliki lokasi yang strategis, tetapi mengalami kendala utama yaitu tidak adanya sumber air di wilayah tersebut, sertaAura mistis yang membuat calon pembeli mundur.
+ Namun, karena kendala infrastruktur seperti tidak adanya sumber air dan aura mistis, perumahan ini kini terlihat sepi dan terlantar, dengan dinding retak, plafon jebol, dan vegetasi liar menyelimuti rumah-rumah tersebut.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sindiran yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, perumahan Tawangrejo Asri ini seperti pacar yang cantik tapi berhati batu - banyak yang tertarik, tapi tidak ada yang mau menjaganya.
+ Sisi positifnya, perumahan Tawangrejo Asri masih membayar pajak bumi dan bangunan (PBB) sekitar Rp 1 juta per tahun, sehingga pemerintah masih mendapat pendapatan dari perumahan yang terbengkalai ini.
 
- Mereka menjanjikan hadiah sepeda motor untuk pembeli pertama, tapi akhirnya perumahan ini jadi seperti kota hantu, dengan semak belukar dan bangunan yang rusak.
+ Namun, sisi negatifnya, perumahan ini seperti sebuah "hantu" yang menghantui warga sekitar, dengan aura mistis yang membuat calon pembeli mundur.
 
- Dan,tentu saja, ada cerita mistis yang membuat calon pembeli lari terbirit-birit.
+ Dan, yang lebih parah, orang yang ditugaskan untuk menjaga perumahan ini malah lebih suka menjadi tukang pijat daripada menjaga perumahan yang terbengkalai.
 
- Tapi, yang paling menyakitkan adalah, perumahan ini masih membayar pajak setiap tahun, seperti orang yang masih mencintai mantan pacar yang sudah tidak mencintainya lagi.
-
- Sungguh, ini adalah contoh sempurna dari proyek yang gagal, dan saya harap pemiliknya bisa belajar dari kesalahan ini, atau mungkin mereka bisa menjadikan perumahan ini sebagai lokasi syuting film horor, karena sudah memiliki aura mistis yang cukup.
+ Ini adalah contoh klasik dari "Janji Manis" yang tidak terpenuhi, seperti hadiah sepeda motor yang diberikan kepada pembeli pertama, namun tidak ada yang bisa menikmati "hadiah" tersebut karena perumahan ini sendiri yang tidak layak huni.
