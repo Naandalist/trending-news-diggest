@@ -55,22 +55,32 @@ Penyerahan sertifikat tersebut berlangsung pada Senin (26/5/2025) di Gedhong Pra
 Kabupaten Gunungkidul menerima sertifikat atas empat karya budaya, termasuk gudeg *bonggol gedhang*.
 
 ---
-Berikut adalah rangkuman berita dalam satu paragraf: Gudeg bonggol gedhang, kuliner khas dari Gunungkidul, Daerah Istimewa Yogyakarta, telah ditetapkan sebagai Warisan Budaya Tak Benda (WBTb) Nasional 2024.
+Berikut ringkasan dari berita tersebut: Gudeg bonggol *gedhang*, kuliner khas dari Gunungkidul, Daerah Istimewa Yogyakarta, baru saja ditetapkan sebagai Warisan Budaya Tak Benda (WBTb) Nasional 2024.
 
- Mei Widiastuti, warga Padukuhan Karanggumuk 2, adalah salah satu pelestari tradisi ini.
+ Mei Widiastuti, warga Padukuhan Karanggumuk 2, Kalurahan Karangrejek, adalah salah satu pelestari tradisi ini.
 
- Gudeg bonggol gedhang terbuat dari pohon pisang kepok dan memiliki rasa serta tekstur yang lebih baik dibandingkan jenis pisang lainnya.
+ Proses pembuatan gudeg bonggol *gedhang* melibatkan penggunaan pohon pisang kepok yang memiliki rasa dan tekstur lebih baik dibandingkan jenis pisang lainnya, dan melalui proses pengolahan yang teliti untuk menghasilkan rasa yang khas.
 
- Proses pembuatan gudeg ini melibatkan mencuci, merajang, dan merebus bonggol pisang sebelum dimasak dengan bumbu khas.
-
- Gudeg ini biasanya disajikan dengan nasi, sayur lombok, dan opor ayam kampung, dan sering dibuat saat acara pernikahan atau syukuran.
+ Gudeg ini biasanya disajikan dengan nasi, sayur lombok, dan opor ayam kampung, dan memiliki nilai budaya yang signifikan dalam masyarakat setempat.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sindiran yang pedas.
 
- Ya, gudeg bonggol gedhang telah ditetapkan sebagai warisan budaya, tapi apa itu tandanya? Apakah itu berarti bahwa kita harus mulai memproduksi gudeg dalam skala masal dan menjualnya di seluruh negeri? Atau apakah itu berarti bahwa kita harus mulai menganggap gudeg sebagai simbol kebanggaan nasional, seperti nasi goreng atau gado-gado? Sisi positifnya adalah bahwa gudeg bonggol gedhang dapat membantu melestarikan tradisi kuliner lokal dan meningkatkan kesadaran masyarakat tentang pentingnya melestarikan warisan budaya.
+ Jadi, gudeg bonggol *gedhang* ini akhirnya diakui sebagai Warisan Budaya Tak Benda, dan itu memang sangat pantas.
 
- Tapi, sisi negatifnya adalah bahwa kita mungkin akan melihat gudeg bonggol gedhang di mana-mana, dari restoran cepat saji hingga kantong plastik di pasar tradisional, yang dapat merusak kesan autentik dari kuliner ini.
+ Karena, jika tidak, maka kita akan kehilangan salah satu kuliner yang paling lezat dan unik di negeri ini.
 
- Jadi, mari kita nikmati gudeg bonggol gedhang dengan bijak dan tidak berlebihan, agar kita tidak kehilangan kesan asli dari kuliner ini.
+ Tapi, ada beberapa hal yang perlu diperhatikan, seperti proses pembuatan yang cukup rumit dan penggunaan bahan-bahan yang harus tepat.
+
+ Jika tidak, maka hasilnya bisa jadi kurang memuaskan.
+
+ Dan, tentu saja, kita harus menghargai pelestari tradisi seperti Mei Widiastuti yang dengan gigih melestarikan warisan budaya ini.
+
+ Tapi, jangan lupa, kawan, jika Anda ingin mencoba gudeg bonggol *gedhang*, pastikan Anda memiliki cukup uang, karena harga Rp 5.
+
+000 per mangkuk dan Rp 20.
+
+000 per porsi untuk ukuran besek bisa membuat kantong Anda menangis.
+
+ Jadi, siap-siap untuk merasakan kelezatan gudeg bonggol *gedhang* dengan harga yang cukup terjangkau, dan jangan lupa untuk menghargai warisan budaya yang luar biasa ini!
