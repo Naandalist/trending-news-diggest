@@ -10,6 +10,8 @@ Macet parah di sejumlah ruas jalan Jakarta pada Rabu (28/5/2025) petang membuat 
 | author      | Ruby Rachmadina |
 | editor      | Fitria Chusna Farisa |
 
+![Kemacetan di depan Polda Metro Jaya, Jalan Jenderal Sudirman masih bertahan setelah akses jalan kembali dibuka, Rabu (28/5/2025) malam.](https://asset.kompas.com/crops/a98I1KV0L8QoDF_H9IcSHBgLrSA=/0x0:0x0/750x500/data/photo/2025/05/28/6836fb76eeab2.jpeg)
+
 **JAKARTA, KOMPAS.com** - Macet parah di sejumlah ruas jalan Jakarta pada Rabu (28/5/2025) petang membuat Jesica Gabriela (25), warga Jonggol, Kabupaten Bogor, gagal menikmati libur panjang bersama keluarga. 
 
 Jesica yang sehari-hari ngekos di Bendungan Hilir, Jakarta Pusat, awalnya berniat pulang ke Jonggol untuk menikmati libur panjang bersama keluarga.
@@ -53,24 +55,22 @@ Arus dari Basura ke underpass DI Panjaitan menuju Tebet nyaris lumpuh, dengan ke
 Sementara, di Jalan MT Haryono, antrean kendaraan dari Simpang Susun Cawang menuju Stasiun Cawang mengular hingga sepanjang 1,1 kilometer.
 
 ---
-Jakarta kembali menjadi saksi bisu kemacetan parah yang melanda sejumlah ruas jalan pada Rabu sore.
+Berikut adalah rangkuman berita dalam satu paragraf: Pada Rabu sore, kemacetan parah melanda beberapa ruas jalan di Jakarta, membuat Jesica Gabriela, warga Jonggol, Kabupaten Bogor, gagal menikmati libur panjang bersama keluarga.
 
- Jesica Gabriela, seorang warga Jonggol, gagal menikmati libur panjang bersama keluarga karena kemacetan total di kawasan Semanggi.
+ Ia awalnya berniat pulang ke Jonggol, tetapi macet total di kawasan Semanggi membuatnya membatalkan rencana.
 
- Ia yang awalnya berencana pulang ke Jonggol, akhirnya membatalkan rencana dan memilih kembali ke kos setelah menunggu kemacetan yang tak juga reda.
+ Setelah menunggu kemacetan reda, Jesica memutuskan untuk kembali ke kosannya di Bendungan Hilir, Jakarta Pusat, dengan berjalan kaki sejauh dua kilometer.
 
- Kemacetan ini disebabkan oleh pengalihan arus lalu lintas akibat kunjungan kenegaraan Presiden Perancis, Emmanuel Macron, serta meningkatnya volume kendaraan menjelang libur panjang.
+ Macet disebabkan oleh pengalihan arus lalu lintas akibat kunjungan kenegaraan Presiden Perancis, Emmanuel Macron, dan meningkatnya volume kendaraan menjelang libur panjang.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari kemacetan ini.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Sisi positifnya, kita bisa berolahraga jalan kaki karena terjebak di jalan, seperti yang dilakukan Jesica.
+ Ya, kemacetan parah di Jakarta, kapan lagi kita bisa menikmati pemandangan mobil-mobil yang berhenti total dan udara yang terasa 'kacau'? Ini adalah kesempatan emas untuk kita semua bermeditasi dan menenangkan diri di tengah kemacetan.
 
- Tapi, sisi negatifnya, kita bisa kehilangan kesempatan untuk menikmati libur panjang bersama keluarga, seperti yang dialami Jesica.
+ Namun, sisi negatifnya adalah kita harus berhadapan dengan kenyataan bahwa pemerintah masih belum bisa mengatasi masalah kemacetan, bahkan dengan adanya pengalihan arus lalu lintas yang bisa diprediksi.
 
- Dan, saya harus berkata, pemerintah kita sepertinya butuh sedikit "jalan kaki" ke arah yang benar, karena mereka sepertinya tidak cukup "aware" tentang kemacetan ini.
+ Mungkin sudah waktunya kita semua membawa bekal dan tikar untuk berpicnic di jalan, karena kita tidak tahu kapan kita akan sampai di tujuan.
 
- Mungkin mereka terlalu sibuk menyiapkan jalur khusus untuk Presiden Macron, sampai-sampai lupa tentang rakyatnya yang terjebak di jalan.
-
- Tapi, hei, setidaknya kita bisa bersyukur bahwa kemacetan ini membuat kita lebih dekat dengan lingkungan sekitar, kan? Iya, kalau tidak terjebak di jalan, mungkin kita tidak akan pernah menikmati pemandangan kemacetan yang indah ini.
+ Jadi, selamat menikmati libur panjang di tengah kemacetan, dan jangan lupa untuk membawa sabar dan pasien ekstra!
