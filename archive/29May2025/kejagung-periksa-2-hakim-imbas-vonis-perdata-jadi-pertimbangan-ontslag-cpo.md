@@ -2,13 +2,13 @@
 
 Kejaksaan Agung memeriksa dua hakim terkait dugaan suap dalam perkara ekspor CPO. Siapa saja yang terlibat?
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Kejagung Periksa 2 Hakim Imbas Vonis Perdata Jadi Pertimbangan Ontslag CPO |
-| description | Kejaksaan Agung memeriksa dua hakim terkait dugaan suap dalam perkara ekspor CPO. Siapa saja yang terlibat? |
-| urlshort    | http://kmp.im/AGHp7b |
-| author      | Shela Octavia |
-| editor      | Danu Damarjati  |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Kejagung Periksa 2 Hakim Imbas Vonis Perdata Jadi Pertimbangan Ontslag CPO |
+| 📝 Description | Kejaksaan Agung memeriksa dua hakim terkait dugaan suap dalam perkara ekspor CPO. Siapa saja yang terlibat? |
+| 🔗 Short URL   | http://kmp.im/AGHp7b |
+| 👤 Author      | Shela Octavia |
+| ✏️ Editor      | Danu Damarjati  |
 
 ![Kepala Pusat Penerangan Hukum Kejagung Harli Siregar ditemui di Gedung Kejagung, Jakarta Selatan, Selasa (13/8/2024) sore.](https://asset.kompas.com/crops/aLH-itzwaLIxgsMqWYanbDrghF4=/0x0:0x0/750x500/data/photo/2024/08/13/66bb3d95ecbb7.jpeg)
 
@@ -55,19 +55,32 @@ Suap tersebut diberikan agar majelis hakim yang menangani kasus ekspor CPO divon
 Vonis lepas merupakan putusan hakim yang menyatakan bahwa terdakwa terbukti melakukan perbuatan yang didakwakan, tetapi perbuatan tersebut tidak termasuk dalam kategori tindak pidana.
 
 ---
-Berikut adalah rangkuman singkat dari laporan berita tersebut dalam bahasa Indonesia: 
-Kejaksaan Agung telah memeriksa dua hakim, yaitu Herdyanto Sutantyo dan Haris Munandar, terkait kasus tindak pidana korupsi suap dan/atau gratifikasi dalam penanganan perkara vonis lepas terdakwa kasus ekspor minyak sawit mentah (CPO) di Pengadilan Negeri Jakarta Pusat.
+## Ringkasan
 
- Penyidik menemukan adanya putusan perdata antara PT Permata Hijau Palm Oleo melawan Kementerian Perdagangan yang digunakan sebagai landasan hukum untuk memberikan ontslag kepada pihak korporasi ekspor CPO.
+Berikut adalah ringkasan berita dalam satu paragraf: Kejaksaan Agung sedang memeriksa dua hakim, Herdyanto Sutantyo dan Haris Munandar, terkait kasus korupsi suap dan gratifikasi dalam penanganan perkara vonis lepas terdakwa kasus ekspor minyak sawit mentah di Pengadilan Negeri Jakarta Pusat.
+
+ Dua hakim ini diduga terlibat dalam putusan perdata yang digunakan sebagai landasan hukum untuk memberikan vonis lepas kepada korporasi ekspor CPO.
+
+ Penyidik masih mendalami keterkaitan antara putusan perdata dan perkara pidana yang menghasilkan putusan ontslag tersebut.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang sakit.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit humor 🤣.
 
- Sisi positifnya adalah bahwa Kejaksaan Agung akhirnya mengambil tindakan serius dalam mengatasi korupsi di pengadilan, yang merupakan langkah besar dalam memulihkan kepercayaan masyarakat terhadap sistem hukum.
+ Jadi, sisi positifnya adalah bahwa Kejaksaan Agung sedang berusaha membersihkan penegakan hukum di Indonesia dengan memeriksa hakim-hakim yang diduga korup 🙏.
 
- Namun, sisi negatifnya adalah bahwa kasus ini menunjukkan bahwa korupsi masih sangat merajalela di Indonesia, bahkan di kalangan pejabat hukum yang seharusnya menjaga integritas sistem hukum.
+ Tapi, sisi negatifnya adalah bahwa kita masih memiliki hakim-hakim yang bisa dibeli dengan uang suap 🤑 - seperti, apa yang terjadi di sini? Apakah mereka pikir bahwa hukum itu seperti barang di pasar yang bisa dibeli dan dijual? 🤦‍♂️.
 
- Ini seperti sebuah ironi yang sangat sakit, di mana mereka yang seharusnya memerangi korupsi justru terlibat dalam korupsi itu sendiri.
+ Dan yang paling menyakitkan adalah bahwa korporasi-korporasi besar seperti Wilmar Group dan Permata Hijau Group bisa dengan mudah mempengaruhi putusan hakim dengan uang suap 🤑.
 
- Mari kita tunggu apakah penindakan ini akan membawa perubahan nyata atau hanya sekedar tindakan simbolis untuk menyenangkan masyarakat.
+ Jadi, kita harus bertanya, apa yang terjadi dengan negara hukum kita? 🤔.
+
+ Harusnya kita memiliki hakim-hakim yang adil dan tidak bisa dibeli, bukan? 🙏.
+
+ Mari kita tunggu dan lihat bagaimana perkembangan kasus ini, tapi untuk sekarang, saya hanya bisa menggelengkan kepala dan berkata "Wah, Indonesia.
+
+.
+
+.
+
+ 🤦‍♂️" 🙄.
