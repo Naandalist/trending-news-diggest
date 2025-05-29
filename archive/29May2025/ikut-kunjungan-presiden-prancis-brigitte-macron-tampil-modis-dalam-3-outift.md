@@ -10,6 +10,8 @@ Ibu Negara Prancis Brigitte Macron tampil modis menggunakan tiga outfit elegan s
 | author      | Nabilla Ramadhian |
 | editor      | Bestari Kumala Dewi |
 
+![Istri Presiden Prancis, Brigitte Macron, setibanya di Bandara Halim Perdanakusuma, Jakarta Timur, Selasa (27/5/2025) malam.](https://asset.kompas.com/crops/32stCrrqRKHi81bgOrc1H7IVbqA=/0x0:3443x2295/750x500/data/photo/2025/05/29/6837e44e21c27.jpeg)
+
 **KOMPAS.com** -- Ibu Negara Prancis Brigitte Macron turut mendampingi sang suami, Presiden Prancis Emmanuel Macron, dalam kunjungannya ke Indonesia pada Selasa (27/5/2025) malam.
 
 Dalam kunjungan kenegaraan ini, perempuan kelahiran tahun 1953 tersebut menampilkan tiga *outfit* yang elegan.
@@ -46,36 +48,20 @@ Dalam jamuan makan malam kenegaraan pada Rabu malam, Brigitte mengenakan *dress*
 Ibu Negara Prancis ini terlihat semakin modis dengan syal biru gelap pada lehernya, anting silver, gaya rambut formal bun, dan *high heels* hitam. Gaya *makeup*-nya sama dengan hari pertama ia tiba di Indonesia.
 
 ---
-Berikut adalah rangkuman berita dalam satu paragraf: Ibu Negara Prancis, Brigitte Macron, mengunjungi Indonesia bersama suaminya, Presiden Prancis Emmanuel Macron, pada Selasa malam (27/5/2025).
+Berikut adalah rangkuman berita dalam satu paragraf: Ibu Negara Prancis Brigitte Macron mengunjungi Indonesia bersama suaminya, Presiden Emmanuel Macron, dan menampilkan tiga gaya pakaian yang elegan selama kunjungannya.
 
- Selama kunjungan, Brigitte menampilkan tiga gaya pakaian yang elegan, mulai dari kemeja putih dengan blazer dan celana kuning pastel, kemudian *dress* ¾ berlengan panjang berwarna putih bermotif garis-garis hitam, dan terakhir *dress* panjang berwarna biru gelap dengan ikat pinggang gelap.
+ Pada hari pertama, ia mengenakan kemeja putih dengan blazer dan celana kuning pastel, dilengkapi dengan sepatu hak tinggi putih gading dan rambut pirang bermodel medium shaggy.
 
- Gaya rambut dan *makeup*-nya juga terlihat stylish, dengan gaya rambut pirang bermodel medium *shaggy* dan *makeup* yang simpel namun elegan.
+ Pada hari kedua, ia menggunakan dress putih bermotif garis-garis hitam dan dress panjang biru gelap dengan ikat pinggang gelap, menampilkan gaya yang lebih bergaya dan modis.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini, dengan sedikit bumbu roasting yang pedas.
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
 
- Jadi, Brigitte Macron ini benar-benar bisa membuat kita iri dengan gaya fashionnya yang keren.
+ Oh, Brigitte Macron, wanita yang membuat kita semua merasa tidak cukup modis dan muda.
 
- Ia bisa membuat kita merasa seperti orang yang belum mandi seharian dengan penampilannya yang selalu rapi dan stylish.
+ Sisi positifnya, ia menunjukkan bahwa usia 70-an tidak harus berarti menjadi tidak stylish, dan kita semua bisa belajar dari gaya pakaian yang elegan dan bergaya.
 
- Tapi, serius saja, kita harus mengakui bahwa ia memiliki selera yang sangat baik dalam memilih pakaian, dan itu patut diacungi jempol.
+ Namun, sisi negatifnya, ia membuat kita semua merasa tidak cukup kaya dan berpengaruh, karena siapa yang bisa membeli pakaian designer dan melakukan perjalanan ke luar negeri dengan gaya seperti itu? Tapi, hei, setidaknya kita bisa menikmati pemandangan Brigitte yang modis dan berharap bahwa suatu hari nanti kita bisa menjadi setengahnya modis dan berpengaruh seperti dia.
 
- Namun, di sisi lain, kita juga bisa melihat bahwa gaya hidup mewah dan glamour ini bisa membuat kita merasa sedikit.
-
-.
-
-.
-
- ngilu.
-
- I mean, siapa yang bisa membeli pakaian sekeren itu? Tapi, hei, kita tidak bisa menyangkal bahwa Brigitte Macron adalah seorang ikon fashion yang layak diidolakan, dan kita bisa belajar dari selera dan gaya hidupnya yang elegan.
-
- Jadi, mari kita semua belajar dari Brigitte Macron, dan mungkin kita bisa menjadi sedikit lebih stylish dan elegan.
-
-.
-
-.
-
- atau setidaknya, tidak terlalu ketinggalan zaman!
+ Dan, tentu saja, kita tidak bisa melupakan sang suami, Presiden Emmanuel Macron, yang terlihat seperti pasangan yang sempurna dengan gaya pakaian yang lebih konservatif dan tidak terlalu mencolok, membuat kita semua merasa bahwa kita juga bisa menjadi pasangan yang sempurna jika kita hanya memiliki cukup uang dan pengaruh.
