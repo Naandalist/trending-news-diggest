@@ -71,18 +71,18 @@ Melakukan aktivitas sederhana seperti meditasi, menulis jurnal, atau menikmati h
  
 
 ---
-Berikut adalah rangkuman singkat dari berita tersebut: Kita sering merasa lelah secara mental meskipun tidak melakukan banyak aktivitas fisik, dan ini bisa disebabkan oleh rutinitas sehari-hari yang tampak sepele tetapi berdampak besar pada kesehatan mental.
+Berikut adalah ringkasan berita dalam satu paragraf: Kita sering merasa lelah secara mental meskipun tidak melakukan banyak aktivitas fisik, dan ini bisa disebabkan oleh rutinitas harian yang tampak sepele namun berdampak besar pada kesehatan mental.
 
- Beberapa contoh kebiasaan yang bisa membuat kita lelah secara mental adalah menggulir media sosial sebelum tidur, kurangnya aktivitas fisik, melewatkan istirahat saat bekerja, belanja impulsif, tidak menetapkan batasan, waktu layar berlebihan, dan mengabaikan perawatan diri.
+ Beberapa kebiasaan kecil seperti menggulir media sosial sebelum tidur, terus-menerus berkata "ya" pada permintaan orang lain, dan tidak melakukan aktivitas fisik bisa menguras energi emosional.
 
- Dengan menyadari kebiasaan-kebiasaan ini, kita bisa membuat perubahan untuk meningkatkan kesehatan mental kita.
+ Selain itu, kebiasaan lain seperti belanja impulsif, tidak menetapkan batasan, dan mengabaikan perawatan diri juga bisa menyebabkan kelelahan mental.
+
+ Oleh karena itu, penting untuk menyadari kebiasaan-kebiasaan ini dan mengubahnya dengan melakukan aktivitas yang menenangkan, seperti membaca, meditasi, atau yoga, serta menetapkan batasan yang sehat untuk menjaga keseimbangan hidup.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas tentang sisi positif dan negatif dari informasi ini, dengan sedikit bumbu roast yang pedas! Jadi, kamu tahu bahwa menggulir media sosial sebelum tidur itu seperti membaca buku tentang kehidupan orang lain, tapi tidak membaca buku tentang kehidupan kamu sendiri, kan? Dan kamu juga tahu bahwa terus-menerus berkata "ya" pada permintaan orang lain itu seperti menjadi budak, bukan? Tapi, serius saja, informasi ini membantu kita menyadari bahwa kebiasaan kecil bisa memiliki dampak besar pada kesehatan mental.
 
- Jadi, kita harus berhenti menggulir media sosial sebelum tidur, tapi bagaimana kita bisa tahu apa yang sedang viral jika tidak menggulir media sosial? Ini seperti meminta kita untuk berhenti bernapas, kan? Dan tentang kurangnya aktivitas fisik, saya rasa itu sudah jelas, kita semua tahu bahwa duduk di sofa dan menonton TV adalah olahraga yang paling berat.
+ Jadi, mari kita mulai mengubah kebiasaan kita, seperti berhenti menggunakan perangkat elektronik sebelum tidur, melakukan aktivitas fisik ringan, dan menetapkan batasan yang sehat.
 
- Lalu, tentang belanja impulsif, saya pikir itu adalah hak asasi manusia untuk membeli barang-barang yang tidak perlu, kan? Tapi serius, informasi ini sebenarnya sangat bermanfaat, kita harus menyadari kebiasaan-kebiasaan kita yang bisa membuat kita lelah secara mental dan membuat perubahan untuk meningkatkan kesehatan mental kita.
-
- Jadi, mari kita mulai dengan menghapus aplikasi media sosial dan menggantinya dengan aplikasi meditasi, atau mungkin tidak, karena kita semua tahu bahwa itu tidak akan bertahan lama.
+ Tapi, jangan lupa, perubahan kebiasaan itu seperti berhenti merokok, itu tidak mudah, bro! Tapi, kalau kamu berhasil, kamu akan merasa seperti orang baru, dan itu worth it, kan?
