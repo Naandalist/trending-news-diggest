@@ -10,6 +10,8 @@ Ahli gizi mengatakan minum minuman probiotik bisa membantu meredakan diare, teru
 | author      | Shintaloka Pradita Sicca |
 | editor      | Shintaloka Pradita Sicca |
 
+![Ahli gizi mengatakan minum minuman probiotik bisa membantu meredakan diare, terutama yang masih ringan atau dalam masa pemulihan.](https://asset.kompas.com/crops/LSl5EP4YHHBHMmWIBa6iG75rIWg=/100x67:900x600/750x500/data/photo/2021/02/16/602bd5edca326.jpg)
+
 **KOMPAS.com -** Minuman probiotik yang terkenal memiliki rasa asam bisa menjadi cara alami untuk membantu meredakan diare secara efektif.
 
 Ahli Gizi Olivia Gresya, S.Gz mengatakan bahwa minuman probiotik bisa membantu mengembalikan kadar bakteri baik yang mungkin menurun akibat infeksi atau penyebab diare lainnya.
@@ -64,26 +66,24 @@ Selain tingkat keasamannya, ia juga mengingatkan untuk memperhatikan kandungan g
  
 
 ---
-Berikut adalah ringkasan dari berita tersebut: Minuman probiotik yang terkenal memiliki rasa asam dapat membantu meredakan diare secara efektif, menurut Ahli Gizi Olivia Gresya.
+Berikut adalah ringkasan singkat dari laporan berita tersebut: Minuman probiotik yang terkenal dengan rasa asamnya dapat menjadi salah satu cara alami untuk meredakan diare secara efektif.
 
- Minuman ini dapat membantu mengembalikan kadar bakteri baik yang menurun akibat infeksi atau penyebab diare lainnya.
+ Ahli Gizi Olivia Gresya menjelaskan bahwa minuman probiotik dapat membantu mengembalikan kadar bakteri baik yang menurun akibat infeksi atau penyebab diare lainnya, sehingga mempercepat pemulihan fungsi usus.
 
- Probiotik seperti Lactobacillus dan Bifidobacterium membantu mengisi kembali bakteri baik, sehingga mempercepat pemulihan fungsi usus.
+ Minuman probiotik juga dapat membantu menghambat pertumbuhan patogen, memperbaiki fungsi lapisan usus, dan meningkatkan sistem imun di area usus.
 
  Namun, efektivitasnya tergantung pada strain bakteri, dosis, dan penyebab diare.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, kamu tahu bahwa diare itu sangat menyebalkan, dan kadang-kadang kita tidak tahu apa yang harus dilakukan.
+ Jadi, kamu memiliki diare dan tidak tahu apa yang harus dilakukan? Tidak perlu khawatir, minuman probiotik adalah jawabannya! Tapi, perlu diingat bahwa tidak semua jenis diare bisa diredakan dengan minum minuman probiotik, jadi jangan terlalu berharap.
 
- Tapi, dengan minuman probiotik, kita bisa meredakan diare secara alami.
+ Efektivitasnya tergantung pada strain bakteri, dosis, dan penyebab diare, sehingga kamu perlu menjadi ahli mikrobiologi untuk memahami semua itu.
 
- Tapi, jangan lupa bahwa tidak semua jenis diare bisa diredakan dengan minum minuman probiotik, guys! Jadi, jangan langsung minum probiotik tanpa tahu penyebab diare kamu.
+ Namun, jika kamu memiliki diare akibat antibiotik, infeksi, atau sindrom iritasi usus besar, minuman probiotik bisa menjadi pilihan yang baik.
 
- Dan, perlu diingat bahwa minuman probiotik bisa memiliki kandungan gula atau laktosa yang tinggi, jadi kamu harus hati-hati jika kamu lactose intolerant.
+ Jangan lupa untuk memilih minuman probiotik yang tidak terlalu asam, rendah gula, dan bebas laktosa, atau kamu akan merasa seperti sedang meminum racun.
 
- Jadi, mari kita konsumsi minuman probiotik dengan bijak, dan jangan lupa untuk memilih yang tidak terlalu asam dan rendah laktosa.
-
- Kalau tidak, kamu bisa jadi "korban" diare yang semakin parah!
+ Jadi, silakan mencoba minuman probiotik, tapi jangan salahkan saya jika kamu masih merasa tidak enak setelah meminumnya!
