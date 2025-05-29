@@ -10,6 +10,8 @@ Rutinitas harian yang tampak biasa tapi bisa melelahkan mental, perlu diwaspadai
 | author      | Nuril Laili Azizah |
 | editor      | Nuril Laili Azizah |
 
+![Ilustrasi kesepian. Anak muda di China mengalami kesepian hingga pilih layanan ngobrol berbayar.](https://asset.kompas.com/crops/H0eumUY1pBWtz-lHKKQBzUO19Gc=/0x0:1280x853/750x500/data/photo/2021/09/20/61480502b922d.jpg)
+
 **KOMPAS.com - **Pernahkah kamu merasa lelah secara mental meski secara fisik tidak melakukan banyak aktivitas?
 
 Bisa jadi penyebabnya bukan pekerjaan berat, melainkan rutinitas harian yang tampak sepele namun berdampak besar pada kesehatan mental.
@@ -71,18 +73,20 @@ Melakukan aktivitas sederhana seperti meditasi, menulis jurnal, atau menikmati h
  
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Kita sering merasa lelah secara mental meskipun tidak melakukan banyak aktivitas fisik, dan ini bisa disebabkan oleh rutinitas harian yang tampak sepele namun berdampak besar pada kesehatan mental.
+Berikut adalah ringkasan singkat dari laporan berita tersebut: Banyak dari kita merasa lelah secara mental meskipun tidak melakukan aktivitas fisik yang berat, dan ini bisa disebabkan oleh rutinitas harian yang tampak sepele namun memiliki dampak besar pada kesehatan mental.
 
- Beberapa kebiasaan kecil seperti menggulir media sosial sebelum tidur, terus-menerus berkata "ya" pada permintaan orang lain, dan tidak melakukan aktivitas fisik bisa menguras energi emosional.
+ Beberapa contoh rutinitas tersebut adalah menggulir media sosial sebelum tidur, kurangnya aktivitas fisik, melewatkan istirahat saat bekerja, belanja impulsif, tidak menetapkan batasan, waktu layar berlebihan, dan mengabaikan perawatan diri.
 
- Selain itu, kebiasaan lain seperti belanja impulsif, tidak menetapkan batasan, dan mengabaikan perawatan diri juga bisa menyebabkan kelelahan mental.
-
- Oleh karena itu, penting untuk menyadari kebiasaan-kebiasaan ini dan mengubahnya dengan melakukan aktivitas yang menenangkan, seperti membaca, meditasi, atau yoga, serta menetapkan batasan yang sehat untuk menjaga keseimbangan hidup.
+ Dengan mengenali dan mengubah kebiasaan-kebiasaan ini, kita dapat meningkatkan kesejahteraan mental dan mengurangi kelelahan.
 
 
 
-Sekarang, mari kita bahas tentang sisi positif dan negatif dari informasi ini, dengan sedikit bumbu roast yang pedas! Jadi, kamu tahu bahwa menggulir media sosial sebelum tidur itu seperti membaca buku tentang kehidupan orang lain, tapi tidak membaca buku tentang kehidupan kamu sendiri, kan? Dan kamu juga tahu bahwa terus-menerus berkata "ya" pada permintaan orang lain itu seperti menjadi budak, bukan? Tapi, serius saja, informasi ini membantu kita menyadari bahwa kebiasaan kecil bisa memiliki dampak besar pada kesehatan mental.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
 
- Jadi, mari kita mulai mengubah kebiasaan kita, seperti berhenti menggunakan perangkat elektronik sebelum tidur, melakukan aktivitas fisik ringan, dan menetapkan batasan yang sehat.
+ Jadi, kamu merasa lelah secara mental? Ah, tidak mengherankan, mengingat kamu masih menghabiskan waktu berjam-jam untuk menggulir media sosial sebelum tidur, lalu bangun pagi dan langsung mengeluh tentang betapa lelahnya kamu.
 
- Tapi, jangan lupa, perubahan kebiasaan itu seperti berhenti merokok, itu tidak mudah, bro! Tapi, kalau kamu berhasil, kamu akan merasa seperti orang baru, dan itu worth it, kan?
+ Ya, itu membuat sense, karena apa yang lebih melelahkan daripada melihat orang lain hidup bahagia di media sosial? Tapi serius, informasi ini sebenarnya cukup berguna, karena kita bisa belajar untuk mengatur waktu dan kebiasaan kita dengan lebih baik.
+
+ Tapi, jangan berharap kamu bisa langsung mengubah kebiasaan burukmu hanya karena membaca artikel ini - itu seperti berharap kamu bisa langsung menjadi marathon runner hanya karena membeli sepatu lari baru.
+
+ Yang penting adalah kita harus mulai membuat perubahan kecil dan konsisten untuk meningkatkan kesejahteraan mental kita, dan tidak hanya mengeluh tentang betapa lelahnya kita.
