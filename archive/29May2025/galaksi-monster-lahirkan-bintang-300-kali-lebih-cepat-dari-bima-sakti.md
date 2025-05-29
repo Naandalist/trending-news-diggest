@@ -10,6 +10,8 @@ Para astronom menemukan sebuah galaksi yang membentuk bintang-bintang dengan kec
 | author      | Wisnubrata |
 | editor      | Wisnubrata |
 
+![Kiri: Citra inframerah dekat dari galaksi terdekat VV114 dan galaksi spiral berpalang monster latar belakang J0107a pada z=2,433 yang ditangkap oleh Teleskop Luar Angkasa James Webb. Kanan: Distribusi gas bintang dan molekuler J0107a.](https://asset.kompas.com/crops/7aqDuc9GMl4VS6By8XrmaCRSwmk=/110x0:1043x622/750x500/data/photo/2025/05/29/6837f2b43f260.jpg)
+
 **KOMPAS.com** - Di tengah kekosongan luar angkasa, sekitar 11,1 miliar tahun cahaya dari Bumi, para astronom menemukan sebuah galaksi yang sangat mengejutkan. Galaksi ini, yang dinamai J0107a, membentuk bintang-bintang dengan kecepatan luar biasa---300 kali lebih cepat dari galaksi kita, Bima Sakti. 
 
 Yang lebih mengejutkan lagi, galaksi ini memiliki bentuk spiral berpalang (*barred spiral*) yang sangat teratur dan nyaris sempurna, bukan bentuk kacau seperti yang biasanya ditemukan pada galaksi muda yang sedang "meledak" dengan pembentukan bintang.
@@ -55,22 +57,24 @@ Temuan ini membuka babak baru dalam studi galaksi. Jika satu galaksi monster sep
  
 
 ---
-Berikut adalah ringkasan satu paragraf dari berita tersebut dalam Bahasa Indonesia: Penemuan galaksi J0107a, yang terletak sekitar 11,1 miliar tahun cahaya dari Bumi, mengejutkan para astronom karena kemampuan pembentukannya yang luar biasa - 300 kali lebih cepat dari galaksi kita, Bima Sakti.
+Berikut adalah ringkasan berita dalam Bahasa Indonesia: Para astronom telah menemukan galaksi yang sangat mengejutkan, J0107a, yang terletak sekitar 11,1 miliar tahun cahaya dari Bumi.
 
- Galaksi ini juga memiliki bentuk spiral berpalang yang teratur dan nyaris sempurna, bukan bentuk kacau seperti yang biasanya ditemukan pada galaksi muda.
+ Galaksi ini membentuk bintang-bintang dengan kecepatan luar biasa, 300 kali lebih cepat dari galaksi kita, Bima Sakti, dan memiliki bentuk spiral yang sangat teratur dan nyaris sempurna.
 
- Penemuan ini mengguncang pemahaman klasik tentang bagaimana galaksi besar terbentuk di awal sejarah alam semesta, dan teknologi teleskop seperti James Webb Space Telescope (JWST) dan ALMA membantu membuka tirai kosmik dan mengungkap rahasia di balik pembentukan bintang yang ekstrem ini.
+ Penemuan ini mengguncang pemahaman klasik tentang bagaimana galaksi besar terbentuk di awal sejarah alam semesta.
+
+ Dengan teknologi teleskop seperti James Webb Space Telescope (JWST) dan ALMA, para ilmuwan dapat melihat struktur dalam galaksi-galaksi ini dan menemukan bahwa J0107a memiliki struktur bar yang sangat mirip dengan galaksi spiral modern, yang mengandung gas dalam jumlah besar dan memicu ledakan pembentukan bintang.
 
 
 
-Sekarang, mari kita bahas tentang penemuan ini dengan sedikit bumbu roasting yang pedas.
+Sekarang, mari kita bicara tentang sisi positif dan negatif dari penemuan ini, dengan sedikit satire yang menyakitkan.
 
- Jadi, galaksi J0107a ini seperti pacar yang sangat perfeksionis, memiliki bentuk spiral yang sangat rapi dan teratur, tidak seperti kita yang masih berantakan di pagi hari.
+ Jadi, di satu sisi, penemuan ini sangat mengagumkan, karena kita dapat melihat bagaimana galaksi besar terbentuk di awal sejarah alam semesta.
 
- Tapi, di balik keperfeksian itu, galaksi ini memiliki kecepatan pembentukan bintang yang luar biasa, seperti kita yang memiliki kecepatan makan nasi goreng di pagi hari.
+ Ini seperti menemukan resep rahasia untuk membuat galaksi yang sempurna, dengan bintang-bintang yang terbentuk dengan kecepatan luar biasa dan struktur spiral yang sangat teratur.
 
- Penemuan ini juga membantah teori lama bahwa galaksi besar terbentuk dari tabrakan atau ketidakstabilan gravitasi, seperti kita yang selalu menyalahkan orang lain untuk kesalahan kita sendiri.
+ Tapi, di sisi lain, penemuan ini juga membuat kita merasa sangat kecil dan tidak penting, karena kita baru saja menemukan bahwa ada galaksi lain di luar sana yang lebih besar dan lebih kompleks dari yang kita bayangkan.
 
- Jadi, galaksi J0107a ini seperti kita yang selalu mencari alasan untuk membenarkan kesalahan kita, tapi pada akhirnya, kita tetap saja salah.
+ Ini seperti menemukan bahwa ada tetangga yang lebih kaya dan lebih sukses dari kita, dan itu membuat kita merasa tidak enak.
 
- Tapi, penemuan ini juga membuka babak baru dalam studi galaksi, seperti kita yang selalu mencari jalan baru untuk membenarkan kesalahan kita, dan mungkin, justu mungkin, kita akan menemukan jawaban yang kita cari.
+ Tapi, hey, setidaknya kita dapat belajar dari penemuan ini dan mencoba untuk meningkatkan diri kita sendiri, kan? Atau, kita bisa saja hanya duduk diam dan menikmati keindahan alam semesta, karena itu sudah cukup untuk membuat kita merasa bahagia.
