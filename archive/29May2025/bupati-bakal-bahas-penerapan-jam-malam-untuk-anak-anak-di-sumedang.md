@@ -31,28 +31,18 @@ Namun, terkait kapan dan bagaimana teknisnya, Dony mengatakan pemerintahannya ma
 Artikel ini telah tayang di TribunJabar.id dengan judul Sumedang Bakal Ikut Terapkan Jam Malam untuk Pelajar, Dony Ahmad Munir Masih Godok Pelaksanaannya.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pemerintah Jawa Barat melalui Gubernur Dedi Mulyadi mengumumkan kebijakan pembatasan jam malam bagi semua pelajar di Jawa Barat, mulai pukul 21.
+Berikut adalah rangkuman singkat berita tersebut: Pemerintah Jawa Barat melalui Gubernur Dedi Mulyadi telah mengumumkan kebijakan baru yang melarang semua pelajar di Jawa Barat untuk keluar rumah pada malam hari, yaitu mulai pukul 21.
 
 00 WIB hingga 04.
 
-00 WIB.
+00 WIB, kecuali jika mereka didampingi oleh orangtua.
 
- Pelajar yang harus keluar rumah di waktu malam harus didampingi oleh orangtua.
-
- Kebijakan ini akan diterapkan di semua kabupaten/kota di Jawa Barat, termasuk Sumedang, dengan Bupati Dony Ahmad Munir menyatakan dukungan atas program tersebut.
-
- Pemerintah Sumedang masih akan membahas teknis pelaksanaan kebijakan ini secara detail sebelum diimplementasikan.
+ Kebijakan ini akan diterapkan di semua kabupaten dan kota di Jawa Barat, termasuk Sumedang, yang telah menyatakan dukungan atas program Jam Malam untuk pelajar.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari kebijakan ini dengan sedikit tambahan satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari kebijakan ini, dengan sedikit bumbu roasting yang pedas.
 
- Sisi positifnya, mungkin para pelajar akan lebih fokus pada belajar dan tidak terjebak dalam kegiatan malam yang tidak bermanfaat.
+ Sisi positifnya, mungkin anak-anak bisa lebih fokus pada pelajaran dan tidak terlalu banyak main game atau nonton video sampai pagi, tapi sisi negatifnya, ini seperti kita kembali ke zaman Orde Baru, di mana anak-anak harus pulang ke rumah sebelum malam, atau mereka akan dianggap nakal.
 
- Tapi, sisi negatifnya, kebijakan ini bisa dianggap sebagai bentuk pengawasan yang terlalu ketat dan tidak memberikan kebebasan pada para pelajar untuk menentukan sendiri kegiatan mereka di waktu malam.
-
- Bayangkan saja, para pelajar harus didampingi oleh orangtua seperti anak kecil yang tidak bisa berjalan sendiri.
-
- Ini seperti mengembalikan kita ke zaman kolonial, di mana para pemuda harus menghadap yang lebih tua untuk meminta izin keluar rumah.
-
- Dedi Mulyadi dan Dony Ahmad Munir, apakah Anda berdua ingin mengubah Jawa Barat menjadi negara yang paling "aman" di dunia, tetapi juga paling "membosankan"?
+ Apa ini karena pemerintah kurang kepercayaan dengan anak-anak kita? Atau karena mereka ingin membuat anak-anak kita menjadi lebih penurut, tapi tidak bisa berpikir kritis? Wah, saya rasa ini perlu dipikirkan ulang, Pak Gubernur, jangan sampai kita membuat generasi yang hanya bisa mengikuti perintah, tapi tidak bisa berinovasi.
