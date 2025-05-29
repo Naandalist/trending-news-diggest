@@ -2,13 +2,13 @@
 
 Rutinitas harian yang tampak biasa tapi bisa melelahkan mental, perlu diwaspadai dan ubah sekarang demi kesehatan jiwa lebih baik.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Inilah 7 Rutinitas yang Membuat Lelah Secara Mental |
-| description | Rutinitas harian yang tampak biasa tapi bisa melelahkan mental, perlu diwaspadai dan ubah sekarang demi kesehatan jiwa lebih baik. |
-| urlshort    | http://lifestyle.kompas.com/read/2025/05/29/133000420/inilah-7-rutinitas-yang-membuat-lelah-secara-m |
-| author      | Nuril Laili Azizah |
-| editor      | Nuril Laili Azizah |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Inilah 7 Rutinitas yang Membuat Lelah Secara Mental |
+| 📝 Description | Rutinitas harian yang tampak biasa tapi bisa melelahkan mental, perlu diwaspadai dan ubah sekarang demi kesehatan jiwa lebih baik. |
+| 🔗 Short URL   | http://lifestyle.kompas.com/read/2025/05/29/133000420/inilah-7-rutinitas-yang-membuat-lelah-secara-m |
+| 👤 Author      | Nuril Laili Azizah |
+| ✏️ Editor      | Nuril Laili Azizah |
 
 ![Ilustrasi kesepian. Anak muda di China mengalami kesepian hingga pilih layanan ngobrol berbayar.](https://asset.kompas.com/crops/H0eumUY1pBWtz-lHKKQBzUO19Gc=/0x0:1280x853/750x500/data/photo/2021/09/20/61480502b922d.jpg)
 
@@ -73,20 +73,22 @@ Melakukan aktivitas sederhana seperti meditasi, menulis jurnal, atau menikmati h
  
 
 ---
-Berikut adalah ringkasan singkat dari laporan berita tersebut: Banyak dari kita merasa lelah secara mental meskipun tidak melakukan aktivitas fisik yang berat, dan ini bisa disebabkan oleh rutinitas harian yang tampak sepele namun memiliki dampak besar pada kesehatan mental.
+## Ringkasan
 
- Beberapa contoh rutinitas tersebut adalah menggulir media sosial sebelum tidur, kurangnya aktivitas fisik, melewatkan istirahat saat bekerja, belanja impulsif, tidak menetapkan batasan, waktu layar berlebihan, dan mengabaikan perawatan diri.
+Berikut adalah ringkasan singkat dari berita tersebut: Kita sering merasa lelah secara mental meskipun tidak melakukan banyak aktivitas fisik, dan penyebabnya bisa jadi karena rutinitas harian yang tampak sepele namun berdampak besar pada kesehatan mental.
 
- Dengan mengenali dan mengubah kebiasaan-kebiasaan ini, kita dapat meningkatkan kesejahteraan mental dan mengurangi kelelahan.
+ Kebiasaan kecil seperti menggulir media sosial sebelum tidur atau terus-menerus berkata "ya" pada permintaan orang lain bisa menguras energi emosional.
+
+ Dengan menyadari dan mengubah kebiasaan-kebiasaan tersebut, kita dapat menjaga kesehatan mental dan meningkatkan kualitas hidup.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit bumbu humor 😂.
 
- Jadi, kamu merasa lelah secara mental? Ah, tidak mengherankan, mengingat kamu masih menghabiskan waktu berjam-jam untuk menggulir media sosial sebelum tidur, lalu bangun pagi dan langsung mengeluh tentang betapa lelahnya kamu.
+ Jadi, kita harus berhenti menggulir media sosial sebelum tidur, karena itu seperti meminta pikiran kita untuk tetap terjaga dan berkata "ayo, mari kita pikirkan semua masalah dunia!" 🌎.
 
- Ya, itu membuat sense, karena apa yang lebih melelahkan daripada melihat orang lain hidup bahagia di media sosial? Tapi serius, informasi ini sebenarnya cukup berguna, karena kita bisa belajar untuk mengatur waktu dan kebiasaan kita dengan lebih baik.
+ Dan, kita juga harus mulai menetapkan batasan, karena terlalu sering mengatakan "ya" dapat membuat kita menjadi seperti boneka yang dikendalikan oleh keinginan orang lain 🤡.
 
- Tapi, jangan berharap kamu bisa langsung mengubah kebiasaan burukmu hanya karena membaca artikel ini - itu seperti berharap kamu bisa langsung menjadi marathon runner hanya karena membeli sepatu lari baru.
+ Tapi, jangan khawatir, karena dengan mengubah kebiasaan-kebiasaan tersebut, kita dapat menjadi lebih sehat, lebih bahagia, dan lebih siap untuk menghadapi tantangan hidup 🎉.
 
- Yang penting adalah kita harus mulai membuat perubahan kecil dan konsisten untuk meningkatkan kesejahteraan mental kita, dan tidak hanya mengeluh tentang betapa lelahnya kita.
+ Jadi, ayo kita mulai dari sekarang, dan jangan lupa untuk menghapus aplikasi belanja dan berhenti mengikuti akun yang mendorong konsumsi berlebihan, karena kita tidak ingin menjadi seperti hamster yang terjebak dalam roda 🐹😂!
