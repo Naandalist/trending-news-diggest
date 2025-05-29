@@ -83,24 +83,22 @@ Bagi investor atau masyarakat yang tertarik pada aset langka, fakta bahwa 93 per
 Di sisi lain, ini juga bisa memperkuat keyakinan bahwa Bitcoin memang dirancang untuk bertahan sebagai aset bernilai jangka panjang.
 
 ---
-Berikut adalah ringkasan singkat dari berita tersebut dalam satu paragraf: Bitcoin, mata uang kripto pertama dan terbesar di dunia, memiliki total pasokan yang dibatasi hanya 21 juta koin, dan sekitar 93,3 persen dari total Bitcoin sudah berhasil ditambang, artinya hanya tersisa sekitar 1,4 juta BTC yang belum tercipta.
+Berikut ringkasan berita dalam satu paragraf: Bitcoin, mata uang kripto pertama dan terbesar di dunia, memiliki pasokan yang terbatas, hanya 21 juta koin.
 
- Karakteristik unik ini membuat banyak orang melihat Bitcoin sebagai aset langka, mirip dengan emas, bahkan disebut-sebut sebagai emas digital.
+ Saat ini, sekitar 93,3 persen dari total Bitcoin sudah berhasil ditambang, meninggalkan hanya sekitar 1,4 juta BTC yang belum tercipta.
 
- Dengan batas pasokan tetap, Bitcoin dimaksudkan agar nilainya cenderung naik seiring waktu, karena permintaan meningkat sementara pasokan tetap.
+ Sistem Bitcoin dirancang untuk mengurangi jumlah Bitcoin baru yang muncul dari waktu ke waktu, sehingga proses penambangan akan sangat lambat dan diperkirakan membutuhkan lebih dari 100 tahun untuk menyelesaikan sisa 7 persen.
 
- 
+ Banyak Bitcoin yang hilang secara permanen, sehingga jumlah Bitcoin yang benar-benar beredar dan bisa digunakan mungkin hanya sekitar 16 juta BTC.
 
-Sekarang, mari kita simak bagaimana saya sebagai komentator tajam dan penuh humor melihat sisi positif dan negatif dari informasi ini dengan sindiran yang menyakitkan.
 
- Jadi, dengan hanya 1,4 juta BTC yang belum tercipta, kita bisa melihat bahwa proses penambangan Bitcoin akan semakin lambat, dan butuh lebih dari 100 tahun untuk menyelesaikan sisa 7 persen.
 
- Ini membuat Bitcoin semakin langka, dan nilai yang langka ini bisa meningkatkan harga dan volatilitasnya di pasar.
+Sekarang, mari kita bahas fakta ini dengan sedikit satire yang menyakitkan.
 
- Tapi, dengan banyaknya Bitcoin yang hilang secara permanen, kita bisa berkata bahwa jumlah Bitcoin yang benar-benar beredar dan bisa digunakan mungkin hanya sekitar 16 juta BTC, bukan 21 juta seperti yang sering disebut-sebut.
+ Jadi, 93% Bitcoin sudah ditambang, dan sisa 7% akan memakan waktu lebih dari satu abad untuk diselesaikan - wow, ini seperti menunggu kereta api di Indonesia, sangat lambat! Tapi serius, ini berarti bahwa nilai Bitcoin bisa naik seiring waktu karena pasokan yang terbatas dan permintaan yang meningkat.
 
- Ini membuat Bitcoin semakin menyerupai emas digital, namun dengan satu keunggulan: pasokannya bisa dipastikan dan diaudit secara publik.
+ Namun, ini juga berarti bahwa volatilitas harga bisa meningkat, dan likuiditas menjadi faktor penting.
 
- Jadi, bagi investor atau masyarakat yang tertarik pada aset langka, fakta bahwa 93 persen Bitcoin sudah ditambang bisa menjadi pengingat: waktu terus berjalan, dan kesempatan untuk mendapatkan Bitcoin baru lewat penambangan semakin terbatas.
+ Jadi, bagi Anda yang ingin membeli Bitcoin, pastikan Anda memiliki kesabaran seperti orang yang menunggu kereta api di Indonesia.
 
- Tapi, jangan lupa, ini juga bisa membuat harga Bitcoin semakin fluktuatif, jadi, beli dengan bijak, atau jangan beli sama sekali, karena saya tidak bertanggung jawab atas kerugian Anda.
+ Dan bagi Anda yang sudah memiliki Bitcoin, jangan lupa untuk menyimpan kata sandi dompet digital Anda, karena jika Anda lupa, Anda akan kehilangan akses ke Bitcoin Anda - seperti kehilangan uang di dalam sofa, tapi lebih parah.
