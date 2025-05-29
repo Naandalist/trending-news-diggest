@@ -10,6 +10,8 @@ Mahasiswa Universitas Indonesia berinisial YP tertangkap basah sedang merekam ma
 | author      | Lidia Pratama Febrian |
 | editor      | Akhdi Martin Pratama |
 
+![Ilustrasi pelecehan seksual](https://asset.kompas.com/crops/HqCuuaI6iYSiYrpEVRnN2g2RO1E=/0x0:780x390/780x390/data/photo/2014/04/14/1842092shutterstock-175158260780x390.jpg)
+
 **DEPOK, KOMPAS.com** -- Seorang mahasiswa Universitas Indonesia (UI) berinisial YP tertangkap basah sedang merekam mahasiswa lain yang sedang mandi di asrama UI, Rabu (28/5/2025) dini hari.
 
 Kejadian ini pertama kali diketahui setelah sejumlah penghuni asrama menemukan ponsel yang digunakan untuk merekam di kamar mandi bersama.
@@ -47,24 +49,22 @@ Pihak asrama juga telah mengeluarkan pelaku dari lingkungan asrama. Sementara sa
 "Kondisi korban mengalami trauma, begitu pula penghuni asrama lainnya. Mereka berharap kejadian ini tidak terulang kembali," kata Emir.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Seorang mahasiswa Universitas Indonesia (UI) yang berinisial YP tertangkap basah sedang merekam mahasiswa lain yang sedang mandi di asrama UI.
+Berikut ringkasan berita dalam satu paragraf: Seorang mahasiswa Universitas Indonesia (UI) berinisial YP tertangkap basah merekam mahasiswa lain yang sedang mandi di asrama UI.
 
- Kejadian ini terjadi pada Rabu dini hari dan pertama kali diketahui setelah penghuni asrama menemukan ponsel yang digunakan untuk merekam di kamar mandi bersama.
+ Kejadian ini diketahui setelah penghuni asrama menemukan ponsel yang digunakan untuk merekam di kamar mandi bersama.
 
- Pelaku mengaku melakukan perbuatan tersebut untuk memenuhi hasrat seksualnya dan sudah dikeluarkan dari lingkungan asrama, sementara sanksi akademik atau administratif lainnya masih menunggu hasil proses dari Satgas Pencegahan dan Penanganan Kekerasan Seksual (PPKS) UI.
+ Pelaku mengaku melakukan perbuatan tersebut untuk memenuhi hasrat seksualnya dan telah merekam korban berulang kali.
+
+ Universitas Indonesia telah mengeluarkan pelaku dari lingkungan asrama dan saat ini Satgas Pencegahan dan Penanganan Kekerasan Seksual (PPKS) UI tengah menangani laporan tersebut.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari kejadian ini dengan sedikit bumbu roasting.
+Sekarang, mari kita bahas sisi positif dan negatif dari kejadian ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, sisi positifnya adalah korban dan penghuni asrama lainnya memiliki kesadaran yang tinggi untuk segera melaporkan kejadian ini dan menuntut keadilan.
+ Di sisi positif, kita dapat melihat bahwa korban dan penghuni asrama lainnya dengan cepat mengambil tindakan dan melaporkan kejadian ini, menunjukkan bahwa kesadaran akan pentingnya privasi dan keamanan sangat tinggi di kalangan mahasiswa UI.
 
- Tapi, sisi negatifnya adalah ada orang seperti YP yang masih berpikiran bahwa merekam orang lain tanpa izin itu halal.
+ Namun, di sisi negatif, kita harus menghadapi kenyataan bahwa masih ada individu seperti YP yang menggunakan teknologi untuk memuaskan hasrat seksualnya dengan cara yang sangat tidak etis dan melanggar privasi orang lain.
 
- Kita harus bersuara dan menyatakan bahwa perbuatan seperti ini tidak bisa diterima.
+ Ini adalah refleksi yang sangat buruk tentang kondisi sosial kita, di mana beberapa orang masih berpikir bahwa merekam orang lain tanpa izin adalah hal yang dapat diterima.
 
- Dan, YP, kamu harus tahu bahwa hasrat seksual tidak bisa dipenuhi dengan merekam orang lain tanpa izin, itu seperti mencoba memuaskan lapar dengan memandang foto makanan.
-
- Kamu butuh bantuan, bro.
-
- Dan, UI, kita berharap kejadian ini tidak terulang kembali, jadi kita harus meningkatkan kesadaran dan mengambil tindakan yang lebih tegas terhadap pelaku kejahatan seperti ini.
+ Mari kita berharap bahwa kasus ini menjadi pelajaran berharga bagi kita semua untuk lebih menghargai privasi dan keamanan, serta mengambil tindakan yang lebih efektif untuk mencegah kejadian serupa di masa depan.
