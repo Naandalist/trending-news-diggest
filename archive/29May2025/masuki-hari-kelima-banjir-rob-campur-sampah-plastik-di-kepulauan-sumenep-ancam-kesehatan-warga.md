@@ -2,13 +2,13 @@
 
 Banjir rob di Sumenep bercampur sampah plastik, mengancam kesehatan warga. Apa langkah yang diambil?
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Masuki Hari Kelima, Banjir Rob Campur Sampah Plastik di Kepulauan Sumenep Ancam Kesehatan Warga |
-| description | Banjir rob di Sumenep bercampur sampah plastik, mengancam kesehatan warga. Apa langkah yang diambil? |
-| urlshort    | http://kmp.im/AGHp7j |
-| author      | Nur Khalis |
-| editor      | Krisiandi |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Masuki Hari Kelima, Banjir Rob Campur Sampah Plastik di Kepulauan Sumenep Ancam Kesehatan Warga |
+| 📝 Description | Banjir rob di Sumenep bercampur sampah plastik, mengancam kesehatan warga. Apa langkah yang diambil? |
+| 🔗 Short URL   | http://kmp.im/AGHp7j |
+| 👤 Author      | Nur Khalis |
+| ✏️ Editor      | Krisiandi |
 
 ![Genangan air bercampur sampah di Desa Saobi akibat banjir rob. ](https://asset.kompas.com/crops/WQH2JGN96feWiyqHvi1sSAsJOkA=/0x0:0x0/750x500/data/photo/2025/05/29/6837e75a711e0.jpg)
 
@@ -49,24 +49,20 @@ Ia mengingatkan bahwa genangan air yang bercampur dengan sampah sangat rentan me
 Hingga hari kelima banjir rob terjadi, Samsuri mengeklaim belum ada informasi mengenai warga yang jatuh sakit akibat banjir tahunan tersebut. \"Nanti saya tanya ke nakes di sana. Kalau ada, nanti bisa dirawat di pustu desa, kalau perlu bisa dirujuk ke Puskesmas,\" jelasnya.
 
 ---
-Banjir rob yang melanda tiga pulau di Desa Saobi, Kecamatan Kangayan, Kabupaten Sumenep, Jawa Timur, telah memasuki hari kelima dan mulai mengancam kesehatan warga yang terdampak.
+## Ringkasan
 
- Banjir rob yang terjadi setiap tahun ini bercampur dengan sampah plastik milik warga karena tidak adanya tempat pemrosesan akhir (TPA) sampah yang memadai di tiga pulau tersebut.
+Berikut adalah ringkasan singkat dari laporan berita: Banjir rob yang melanda tiga pulau di Desa Saobi, Kecamatan Kangayan, Kabupaten Sumenep, Jawa Timur, telah memasuki hari kelima dan mulai mengancam kesehatan warga yang terdampak.
 
- Genangan air yang keruh dan berwarna kehitam-hitaman masih merupakan ancaman kesehatan bagi warga, meskipun belum ada laporan warga yang jatuh sakit akibat banjir rob.
+ Banjir rob ini bercampur dengan sampah plastik milik warga dan menggenangi beberapa area dengan ketinggian hingga 60 sentimeter.
 
- Aparat desa terus melakukan monitoring dan pemerintah desa telah memberitahukan forum pimpinan kecamatan (Forpimka) melalui grup pesan elektronik, namun belum ada respons.
+ Pemerintah desa telah melakukan monitoring dan memberitahukan forum pimpinan kecamatan, namun belum ada respons.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Wah, apa lagi ini 🤦‍♂️, banjir rob di Sumenep sudah masuk hari kelima dan masih belum surut 🌊! Sampah plastik bercampur dengan air banjir, jadi warga harus berjalan di antara genangan air yang keruh dan berwarna kehitam-hitaman 🤢.
 
- Di satu sisi, banjir rob ini membuktikan bahwa warga Desa Saobi sangat kreatif dalam menghasilkan sampah plastik yang dapat menghiasi genangan air dengan warna-warna cantik.
+ Ini seperti menu spesial "Sup Banjir" dengan tambahan "Sampah Plastik" 🍲😂.
 
- Namun, di sisi lain, ini juga menunjukkan bahwa pemerintah setempat belum melakukan tindakan efektif dalam mengatasi masalah sampah dan banjir rob yang terjadi setiap tahun.
+ Tapi serius, ini sangat berisiko bagi kesehatan warga, bisa menyebabkan penyakit diare dan infeksi perut 😷.
 
- Bahkan, pemerintah desa masihbergantung pada forum pimpinan kecamatan (Forpimka) yang sepertinya tidak terlalu peduli dengan masalah ini.
-
- Jadi, kita dapat menyimpulkan bahwa banjir rob ini tidak hanya membawa dampak negatif bagi kesehatan warga, tetapi juga membuka mata kita tentang kemampuan pemerintah dalam menangani masalah lingkungan yang serius.
-
- Mari kita tunggu respons dari pemerintah dan berharap bahwa mereka akan segera melakukan tindakan nyata untuk mengatasi masalah ini, bukan hanya berjanji untuk melakukan sesuatu yang belum pernah mereka lakukan sebelumnya.
+ Pemerintah desa harus segera bergerak dan menangani masalah ini, jangan hanya berpangku tangan 🙅‍♂️! 💪
