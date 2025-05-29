@@ -71,26 +71,18 @@ Melakukan aktivitas sederhana seperti meditasi, menulis jurnal, atau menikmati h
  
 
 ---
-Berikut adalah rangkuman singkat dari berita tersebut: Kita sering merasa lelah secara mental meskipun tidak melakukan aktivitas fisik yang berat, dan penyebabnya bisa jadi adalah rutinitas harian yang tampak sepele seperti menggulir media sosial sebelum tidur, kurangnya aktivitas fisik, melewatkan istirahat saat bekerja, belanja impulsif, tidak menetapkan batasan, waktu layar berlebihan, dan mengabaikan perawatan diri.
+Berikut adalah rangkuman singkat dari berita tersebut: Kita sering merasa lelah secara mental meskipun tidak melakukan banyak aktivitas fisik, dan ini bisa disebabkan oleh rutinitas sehari-hari yang tampak sepele tetapi berdampak besar pada kesehatan mental.
 
- Maka dari itu, penting untuk melakukan "digital sunset", menyisipkan aktivitas fisik ringan, mengambil istirahat singkat, menerapkan "aturan 24 jam" sebelum membeli barang non-esensial, menetapkan batasan yang sehat, mengikuti aturan "20-20-20", dan melakukan aktivitas sederhana untuk menjaga kesejahteraan mental.
+ Beberapa contoh kebiasaan yang bisa membuat kita lelah secara mental adalah menggulir media sosial sebelum tidur, kurangnya aktivitas fisik, melewatkan istirahat saat bekerja, belanja impulsif, tidak menetapkan batasan, waktu layar berlebihan, dan mengabaikan perawatan diri.
+
+ Dengan menyadari kebiasaan-kebiasaan ini, kita bisa membuat perubahan untuk meningkatkan kesehatan mental kita.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit bumbu satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
 
- Jadi, kita harus berhenti menggulir media sosial sebelum tidur? Berarti kita harus meninggalkan kebiasaan mengoceh dengan teman-teman virtual dan fokus pada kehidupan nyata yang membosankan.
+ Jadi, kita harus berhenti menggulir media sosial sebelum tidur, tapi bagaimana kita bisa tahu apa yang sedang viral jika tidak menggulir media sosial? Ini seperti meminta kita untuk berhenti bernapas, kan? Dan tentang kurangnya aktivitas fisik, saya rasa itu sudah jelas, kita semua tahu bahwa duduk di sofa dan menonton TV adalah olahraga yang paling berat.
 
- Dan, kita harus berhenti belanja impulsif? Berarti kita harus mengucapkan selamat tinggal pada kesenangan membeli barang yang tidak perlu dan menghemat uang untuk hal-hal yang lebih penting.
+ Lalu, tentang belanja impulsif, saya pikir itu adalah hak asasi manusia untuk membeli barang-barang yang tidak perlu, kan? Tapi serius, informasi ini sebenarnya sangat bermanfaat, kita harus menyadari kebiasaan-kebiasaan kita yang bisa membuat kita lelah secara mental dan membuat perubahan untuk meningkatkan kesehatan mental kita.
 
-.
-
-.
-
- seperti membayar tagihan.
-
- Tapi, serius saja, informasi ini sebenarnya sangat berguna, karena kita bisa mengenali kebiasaan-kebiasaan yang membuat kita lelah secara mental dan mengambil langkah untuk mengubahnya.
-
- Jadi, ayo kita mulai melakukan "digital sunset", berjalan kaki, dan menerapkan "aturan 24 jam" sebelum membeli barang non-esensial.
-
- Kita bisa melakukannya, kan? Atau, kita akan terus menggulir media sosial sebelum tidur dan membeli barang yang tidak perlu? Pilihan ada di tangan kita.
+ Jadi, mari kita mulai dengan menghapus aplikasi media sosial dan menggantinya dengan aplikasi meditasi, atau mungkin tidak, karena kita semua tahu bahwa itu tidak akan bertahan lama.
