@@ -10,6 +10,8 @@ Komisi X DPR mendorong pemerintah untuk menyusun klasifikasi terhadap sekolah sw
 | author      | Nawir Arsyad Akbar |
 | editor      | Nawir Arsyad Akbar |
 
+![Ilustrasi Pendidikan](https://asset.kompas.com/crops/f2brM2GfxRZCQ9I6Vy0Nv3eG1XI=/0x0:1000x667/750x500/data/photo/2024/06/23/6677f73431e32.jpg)
+
 **JAKARTA, KOMPAS.com** - Wakil Ketua Komisi X DPR My Esti Wijayanti mengatakan, terdapat banyak sekolah swasta yang memiliki fasilitas lengkap dengan tenaga pengajar yang mahal di Indonesia.
 
 Hal tersebut disampaikannya dalam menanggapi putusan Mahkamah Konstitusi (MK) yang menegaskan, negara harus membiayai pendidikan dasar untuk sekolah negeri dan swasta.
@@ -49,22 +51,20 @@ Karenanya, untuk menjamin hak atas pendidikan bagi seluruh warga, negara wajib m
 \"Berdasarkan uraian pertimbangan hukum tersebut di atas menurut Mahkamah, dalil para Pemohon yang mempersoalkan konstitusionalitas frasa 'wajib belajar minimal pada jenjang pendidikan dasar tanpa memungut biaya' dalam norma Pasal 34 ayat (2) UU 20/2003, yang menurut para Pemohon menimbulkan multitafsir dan diskriminasi karena hanya berlaku untuk sekolah/madrasah negeri adalah beralasan menurut hukum,\" ujar Enny.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Wakil Ketua Komisi X DPR, My Esti Wijayanti, menyatakan bahwa banyak sekolah swasta di Indonesia memiliki fasilitas lengkap dan tenaga pengajar yang mahal.
+Berikut adalah ringkasan berita dalam Bahasa Indonesia: Wakil Ketua Komisi X DPR, My Esti Wijayanti, menyatakan bahwa banyak sekolah swasta di Indonesia memiliki fasilitas lengkap dan tenaga pengajar yang mahal.
 
  Hal ini disampaikan dalam menanggapi putusan Mahkamah Konstitusi (MK) yang menegaskan bahwa negara harus membiayai pendidikan dasar untuk sekolah negeri dan swasta.
 
- Esti mendorong pemerintah untuk menyusun klasifikasi terhadap sekolah swasta mana saja yang akan dibiayai negara, agar kebijakan pendidikan yang akan diterapkan tepat sasaran.
+ Esti mendorong pemerintah untuk menyusun klasifikasi terhadap sekolah swasta mana saja yang akan dibiayai negara, agar kebijakan pendidikan yang diterapkan tepat sasaran.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jujur saja, ini adalah kabar baik bagi anak-anak dari keluarga tidak mampu yang terpaksa bersekolah di sekolah swasta karena keterbatasan daya tampung sekolah negeri.
+ Jadi, pemerintah harus membiayai pendidikan dasar untuk sekolah swasta juga? Wow, itu berarti orang kaya bisa tetap kaya dan orang miskin bisa tetap miskin, tapi semua anak bisa bersekolah dengan sama-sama mahalnya.
 
- Tapi, di sisi lain, ini juga berarti bahwa pemerintah harus mengeluarkan dana lebih untuk membiayai pendidikan dasar di sekolah swasta, yang bisa jadi tidak effisien jika tidak diatur dengan baik.
+ Namun, serius saja, ini adalah langkah yang baik untuk memastikan bahwa anak-anak dari keluarga tidak mampu bisa mengakses pendidikan yang sama dengan anak-anak dari keluarga kaya.
 
- Dan, saya harus bilang, ini juga bisa menjadi kesempatan bagi sekolah swasta untuk menaikkan biaya pendidikan mereka, karena mereka tahu bahwa pemerintah akan membiayai pendidikan dasar.
+ Tapi, tentu saja, pemerintah harus membuat klasifikasi yang jelas untuk sekolah swasta mana saja yang akan dibiayai, agar tidak ada sekolah swasta yang hanya menjual nama dan fasilitas mewah tanpa memperhatikan kualitas pendidikan.
 
- Jadi, pemerintah harus benar-benar memantau dan mengatur ini dengan baik, agar tidak terjadi penyelewengan dana dan agar pendidikan dasar bisa benar-benar dirasakan oleh seluruh warga Indonesia.
-
- Dan, kepada sekolah swasta yang hanya memikirkan keuntungan, saya punya pesan: "Jika anda hanya memikirkan uang, maka anda tidak layak menjadi sekolah!"
+ Jadi, mari kita tunggu dan lihat bagaimana pemerintah akan melaksanakan keputusan ini, dan apakah pendidikan di Indonesia akan menjadi lebih adil dan merata untuk semua.
