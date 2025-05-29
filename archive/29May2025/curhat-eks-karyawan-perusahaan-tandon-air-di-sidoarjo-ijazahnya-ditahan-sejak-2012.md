@@ -2,13 +2,13 @@
 
 Salah satu eks karyawan perusahaan tendon air, PT Tedmonindo Pratama Semesta mengaku ijazahnya sudah ditahan perusahaan sejak 2012.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Curhat Eks Karyawan Perusahaan Tandon Air di Sidoarjo, Ijazahnya Ditahan Sejak 2012 |
-| description | Salah satu eks karyawan perusahaan tendon air, PT Tedmonindo Pratama Semesta mengaku ijazahnya sudah ditahan perusahaan sejak 2012. |
-| urlshort    | http://kmp.im/AGHp7m |
-| author      | Izzatun Najibah |
-| editor      | Bilal Ramadhan |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Curhat Eks Karyawan Perusahaan Tandon Air di Sidoarjo, Ijazahnya Ditahan Sejak 2012 |
+| 📝 Description | Salah satu eks karyawan perusahaan tendon air, PT Tedmonindo Pratama Semesta mengaku ijazahnya sudah ditahan perusahaan sejak 2012. |
+| 🔗 Short URL   | http://kmp.im/AGHp7m |
+| 👤 Author      | Izzatun Najibah |
+| ✏️ Editor      | Bilal Ramadhan |
 
 ![Belasan karyawan saat melaporkan PT. Tedmonindo Pratama Semesta ke Polres Sidoarjo atas dugaan penahanan ijazah, Rabu (28/5/2025)](https://asset.kompas.com/crops/LN9BrFgZrjL7Oq5BxFcsOW4NMiU=/0x0:0x0/750x500/data/photo/2025/05/29/6837d6f03c2f9.jpeg)
 
@@ -55,26 +55,18 @@ Karena ijazahnya yang masih tertahan di perusahaan, Surasa dan sejumlah eks kary
 "Sampai sekarang belum dapat pekerjaan baru. Kita kan juga rugi. Setelah di-off kan sekarang saya (hidup) bergantung dengan anak," pungkasnya.
 
 ---
-Berikut adalah ringkasan singkat dari laporan berita tersebut: Salah satu eks karyawan PT Tedmonindo Pratama Semesta di Sidoarjo, Surasa, mengaku bahwa ijazahnya telah ditahan oleh perusahaan sejak tahun 2012 dan belum dikembalikan hingga saat ini, meskipun telah dipecat.
+## Ringkasan
 
- Surasa bekerja sebagai sekuriti di perusahaan tersebut dan diminta menyerahkan ijazah sebagai jaminan untuk bekerja.
+Berikut adalah ringkasan singkat dari laporan berita: PT Tedmonindo Pratama Semesta di Sidoarjo diduga menahan ijazah salah satu eks karyawannya, Surasa, sejak tahun 2012 hingga 13 tahun lebih tanpa dikembalikan meskipun sudah dipecat.
 
- Setelah dipecat, Surasa meminta ijazahnya dikembalikan, tetapi perusahaan memintanya menunggu hingga barang yang hilang ditemukan.
+ Surasa mengaku pernah bekerja di perusahaan tersebut sebagai sekuriti dan diminta menyerahkan ijazah sebagai jaminan.
 
- Surasa dan eks karyawan lainnya kemudian mengadukan perusahaan ke Dinas Ketenagakerjaan dan Polres Sidoarjo.
+ Perusahaan tersebut diduga menahan dokumen karyawan lain seperti SKCK dan BPJS.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
+Wah, PT Tedmonindo Pratama Semesta ini benar-benar "raja" ya 😂, bisa menahan ijazah karyawan selama 13 tahun lebih, itu seperti menahan nyawa orang 🙅‍♂️! Bayangkan,Surasa sudah dipecat tapi ijazahnya masih ditahan, padahal tidak ada bukti bahwa dia telah melakukan kesalahan 🤔.
 
- Sisi positifnya, perusahaan PT Tedmonindo Pratama Semesta memiliki cara unik untuk mengelola karyawan, yaitu dengan menahan ijazah mereka sebagai jaminan.
+ Ini seperti permainan "teka-teki" 🎉, di mana perusahaan mengatakan bahwa ijazah akan dikembalikan jika barang yang hilang ditemukan, tapi tidak ada kepastian kapan itu akan terjadi 🕰️.
 
- Ini seperti memiliki "sandera" yang membuat karyawan tidak berani meninggalkan perusahaan.
-
- Tapi, sisi negatifnya, perusahaan ini tampaknya memiliki kebiasaan buruk dalam mengelola dokumen karyawan, seperti menahan ijazah dan SKCK.
-
- Ini seperti memiliki "koleksi" dokumen pribadi karyawan yang tidak pernah dikembalikan.
-
- Sungguh, perusahaan ini memiliki cara yang sangat "kreatif" dalam mengelola sumber daya manusia.
-
- Mungkin mereka perlu mendapatkan penghargaan untuk "Perusahaan yang Paling Kreatif dalam Mengelola Karyawan" atau "Perusahaan yang Paling Baik dalam Menahan Dokumen Pribadi".
+ Saya rasa, perusahaan ini perlu belajar tentang etika dan kesadaran hukum 📚, karena menahan dokumen karyawan itu seperti menahan hak asasi manusia 🚫! 🤣
