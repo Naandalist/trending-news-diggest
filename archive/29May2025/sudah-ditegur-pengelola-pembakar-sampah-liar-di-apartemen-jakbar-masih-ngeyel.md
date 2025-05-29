@@ -10,6 +10,8 @@ Pihak pengelola apartemen Sentraland, Cengkareng, Jakarta Barat mengaku telah be
 | author      | Hafizh Wahyu Darmawan |
 | editor      | Fitria Chusna Farisa |
 
+![Cerita penghuni apartemen di Cengkareng, Jakarta Barat alami ISPA akibat paparan asap pembakaran sampah ilegal](https://asset.kompas.com/crops/ioaXInE0UWG1YLPXvv4Q2OPFTVg=/6x820:3060x2856/750x500/data/photo/2025/05/28/6836d5c38c2b9.jpg)
+
 **JAKARTA, KOMPAS.com **- Pihak pengelola apartemen Sentraland, Cengkareng, Jakarta Barat mengaku telah berulang kali menegur pelaku pembakaran sampah liar di wilayah tersebut.
 
 Namun, teguran pengelola maupun pihak kelurahan disebut tak digubris. Pelaku tetap membakar sampah di dekat apartemen selama bertahun-tahun.
@@ -45,24 +47,22 @@ Hendrika menjelaskan, aktivitas pembakaran sampah dilakukan secara acak oleh par
 Ia menyebutkan, paparan asap tersebut berdampak langsung terhadap kualitas hidup dan kesehatan warga. Hendrika bahkan mengaku mengalami gangguan pernapasan sejak tinggal di apartemen tersebut.
 
 ---
-Berikut adalah rangkuman berita dalam satu paragraf: Pihak pengelola apartemen Sentraland di Cengkareng, Jakarta Barat, mengaku telah berulang kali menegur pelaku pembakaran sampah liar di wilayah tersebut, namun teguran tersebut tidak digubris.
+Berikut adalah ringkasan dari laporan berita dalam satu paragraf: Pihak pengelola apartemen Sentraland di Cengkareng, Jakarta Barat, mencoba menegur pelaku pembakaran sampah liar di sekitar apartemen, namun upaya tersebut tidak berhasil karena pelaku tetap membakar sampah meskipun sudah ditegur berkali-kali.
 
- Pelaku, yang merupakan warga asli dan tokoh setempat, terus membakar sampah di dekat apartemen selama bertahun-tahun, meskipun telah diberikan solusi oleh pihak kelurahan dan Dinas Lingkungan Hidup, seperti penyediaan truk untuk mengangkut sisa sampah dan mesin pencacah sampah.
+ Menurut pengelola apartemen, pelaku adalah warga asli yang dikenal sebagai tokoh setempat dan diduga melakukan pembakaran sampah sebagai bagian dari praktik penyortiran sampah.
 
- Aktivitas pembakaran sampah ini berdampak langsung terhadap kualitas hidup dan kesehatan warga apartemen, yang mengalami gangguan pernapasan dan terpapar asap menyengat.
+ Meskipun pihak kelurahan dan Dinas Lingkungan Hidup telah mencoba menawarkan solusi, seperti penyediaan truk untuk mengangkut sisa sampah ke Tempat Pembuangan Akhir (TPA) Bantargebang dan mesin pencacah sampah, upaya tersebut tidak membuahkan hasil.
 
 
 
-Sekarang, mari kita bicara tentang sisi positif dan negatif dari berita ini.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Sisi positifnya, pihak pengelola apartemen dan pihak kelurahan telah berusaha untuk menyelesaikan masalah ini, meskipun tidak berhasil.
+ Sisi positifnya adalah bahwa kita masih memiliki warga yang sangat kreatif dan inovatif dalam mencari cara untuk menghasilkan uang, seperti membakar sampah dan menjualnya sebagai "aroma" khas Jakarta.
 
- Tapi, sisi negatifnya, pelaku pembakaran sampah liar ini sepertinya tidak memiliki hati nurani, karena terus membakar sampah di dekat apartemen, tanpa peduli dengan kesehatan dan kualitas hidup warga.
+ Namun, sisi negatifnya adalah bahwa kita masih memiliki pemerintah yang tidak efektif dalam menangani masalah lingkungan dan kesehatan masyarakat.
 
- Mereka seperti vampire, hidup dari sampah dan asap, dan tidak peduli dengan lingkungan sekitar.
+ Mereka lebih sibuk dengan proyek-proyek besar dan megah daripada menyelesaikan masalah-masalah kecil seperti pembakaran sampah liar.
 
- Dan, yang paling parah, mereka bahkan menolak mesin pencacah sampah yang diberikan oleh pihak Dinas Lingkungan Hidup, karena mereka lebih suka membakar sampah daripada mengolahnya dengan baik.
+ Dan tentu saja, kita tidak bisa lupa dengan pelaku yang sangat "patriotis" dalam menjaga tradisi membakar sampah, meskipun itu berdampak buruk pada kesehatan dan lingkungan.
 
- Jadi, kita bisa katakan bahwa pelaku ini adalah "raja sampah" yang tidak memiliki rasa hormat terhadap lingkungan dan masyarakat.
-
- Mungkin, mereka perlu diasingkan ke sebuah pulau sampah, supaya mereka bisa hidup dengan sampah mereka sendiri.
+ Mari kita semua bersatu untuk merayakan "Hari Pembakaran Sampah Liar" dan membuat Jakarta menjadi kota dengan udara paling beraroma di dunia!
