@@ -10,6 +10,8 @@ Harapan Indonesia di ajang Singapore Open 2025 kandas lebih cepat setelah dua wa
 | author      | Firzie A. Idris |
 | editor      | Firzie A. Idris |
 
+![Rehan Naufal Kusharjanto/Gloria Emanuelle Widjaja saat melakoni laga Grup D Sudirman Cup 2025 Indonesia vs India di Xiamen Olympic Sports Center Fenghuang Gymnasium, Xiamen, China, pada Selasa (29/4/2025).](https://asset.kompas.com/crops/IO_cQbedXmuOHLrwX3FgJhZARHY=/0x0:2559x1706/750x500/data/photo/2025/04/29/6810e6ec22277.jpeg)
+
 KOMPAS.com -- Harapan Indonesia di ajang Singapore Open 2025 kandas lebih cepat setelah dua wakil andalan terhenti di babak kedua turnamen level BWF World Tour Super 750 yang berlangsung di Singapore Indoor Stadium, Kamis (29/5/2025).
 
 Ganda campuran independen, Rehan Naufal Kusharjanto/Gloria Emanuelle Widjaja, menjadi wakil pertama Indonesia yang gagal melaju ke perempat final.
@@ -37,22 +39,20 @@ Namun, juara Asian Games 2022 dari India mampu membalikkan keadaan pada dua gim 
 Meskipun memberikan perlawanan alot dan menunjukkan pertahanan solid, inkonsistensi pada poin-poin kritis kembali menjadi kelemahan utama pasangan Indonesia ini.
 
 ---
-Berikut adalah ringkasan berita dalam Bahasa Indonesia: Harapan Indonesia di ajang Singapore Open 2025 đã kandas lebih cepat setelah dua wakil andalan, Rehan Naufal Kusharjanto/Gloria Emanuelle Widjaja dan Sabar Karyaman Gutama/Moh Reza Pahlevi Isfahani, terhenti di babak kedua turnamen level BWF World Tour Super 750.
+Berikut adalah rangkuman singkat dari berita tersebut: Indonesia gagal melaju ke perempat final turnamen Singapore Open 2025 setelah dua wakil andalannya, Rehan Naufal Kusharjanto/Gloria Emanuelle Widjaja dan Sabar Karyaman Gutama/Moh Reza Pahlevi Isfahani, terhenti di babak kedua.
 
- Pasangan ganda campuran Rehan/Gloria kalah dari unggulan keempat asal China, Guo Xin Wa/Chen Fang Hui, dengan skor 16-21 dan 20-22, sedangkan pasangan ganda putra Sabar/Reza kalah dari unggulan India, Satwiksairaj Rankireddy/Chirag Shetty, dalam pertarungan tiga gim berdurasi 74 menit.
+ Pasangan ganda campuran independen Rehan/Gloria kalah dari unggulan keempat asal China, Guo Xin Wa/Chen Fang Hui, dengan skor 16-21 dan 20-22, sedangkan pasangan ganda putra Sabar/Reza dikalahkan oleh unggulan India, Satwiksairaj Rankireddy/Chirag Shetty, dalam pertarungan tiga gim berdurasi 74 menit dengan skor 21-19, 16-21, dan 19-21.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini, dan saya akan membuatnya sedikit "pedas" karena itu adalah tugas saya sebagai komedian.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Sisi positifnya adalah bahwa kita masih memiliki atlet-atlet yang berani dan gigih, seperti Rehan/Gloria dan Sabar/Reza, yang tidak takut untuk menghadapi lawan-lawan tangguh dari China dan India.
+ Ya, kita bisa bilang bahwa Indonesia masih memiliki harapan, tapi harapan itu kandas lebih cepat dari kecepatan replikasi virus Covid-19.
 
- Namun, sisi negatifnya adalah bahwa kita masih belum bisa mengatasi kelemahan kita pada poin-poin kritis, yang membuat kita kalah dalam pertandingan-pertandingan yang sengit.
+ Sisi positifnya, kita masih memiliki atlet-atlet yang berjuang dengan gigih, seperti Rehan/Gloria dan Sabar/Reza, yang menunjukkan perlawanan sengit meskipun akhirnya kalah.
 
- Saya mean, apa yang terjadi dengan mental kita? Apakah kita butuh pelatih mental atau apa? Dan, saya harus bilang, bahwa kalau kita terus-menerus kalah, maka kita akan menjadi "juara" dalam hal.
+ Tapi, sisi negatifnya, kita masih belum bisa mengatasi kelemahan utama kita, yaitu inkonsistensi pada poin-poin kritis.
 
-.
+ Ini seperti kita memiliki mobil balap yang kencang, tapi kita lupa membawa bensin, jadi kita hanya bisa melaju beberapa meter sebelum berhenti.
 
-.
-
- kalah! Jadi, mari kita tingkatkan permainan kita dan jangan membuat saya harus membuat lelucon tentang kita lagi.
+ Jadi, kita harus terus berlatih dan meningkatkan kemampuan kita, atau kita akan terus menjadi "juara" dalam kalah.
