@@ -10,6 +10,8 @@ One way dari Jakarta ke Puncak diterapkan Kamis (29/5) sejak 08.45 WIB akibat lo
 | author      | Afdhalul Ikhsan |
 | editor      | Ihsanuddin |
 
+![Situasi arus lalu lintas saat diberlakukan one way atau satu arah menuju Puncak Bogor-Cianjur, Jawa Barat, Kamis (29/5/2025) yang bertepatan libur panjang Kenaikan Yesus Kristus 2025.](https://asset.kompas.com/crops/krmSXKdMY0SlQAVIh9Wf7ACAVPU=/0x0:0x0/750x500/data/photo/2025/05/29/6837e18883326.jpg)
+
 **BOGOR, KOMPAS.com** -- Rekayasa lalu lintas sistem satu arah (one way) diterapkan dari Km 48+200 Exit Gerbang Tol (GT) Jagorawi, Jakarta, hingga kawasan Puncak Pass, Bogor-Cianjur, Jawa Barat, pada Kamis (29/5/2025).
 
 Penerapan sistem ini menyusul peningkatan volume kendaraan yang menuju kawasan Puncak pada momen libur panjang Kenaikan Yesus Kristus 2025.
@@ -31,22 +33,22 @@ Ia juga menekankan bahwa pelaksanaan one way ini bersifat situasional, tergantun
 Selain itu, ia mengimbau wisatawan dan pengendara agar tetap tertib berlalu lintas serta tidak menyerobot jalur, guna menjaga kelancaran dan keselamatan bersama.
 
 ---
-Berikut adalah rangkuman berita tersebut dalam satu paragraf: Pemerintah menerapkan sistem lalu lintas satu arah (one way) dari Km 48+200 Exit Gerbang Tol Jagorawi, Jakarta, hingga kawasan Puncak Pass, Bogor-Cianjur, Jawa Barat, pada Kamis (29/5/2025) untuk mengatasi kemacetan akibat lonjakan kendaraan yang menuju Puncak selama libur panjang Kenaikan Yesus Kristus 2025.
+Berikut adalah ringkasan singkat dari laporan berita tersebut: Pemerintah telah menerapkan sistem satu arah (one way) di sepanjang jalan dari Km 48+200 Exit Gerbang Tol Jagorawi, Jakarta, hingga kawasan Puncak Pass, Bogor-Cianjur, Jawa Barat, pada hari Kamis (29/5/2025) untuk mengurai kemacetan yang terjadi akibat lonjakan kendaraan yang menuju Puncak pada momen libur panjang Kenaikan Yesus Kristus 2025.
 
- Sistem one way ini diberlakukan sejak pukul 08.
+ Sistem one way ini diterapkan sejak pukul 08.
 
-45 WIB dan diprioritaskan untuk mengurangi kepadatan di Exit Tol Ciawi.
-
- Pemerintah meminta pengendara untuk bersabar dan tetap tertib berlalu lintas untuk menjaga kelancaran dan keselamatan bersama.
+45 WIB dan bersifat situasional, tergantung kondisi di lapangan.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan humor yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari kebijakan ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, pemerintah akhirnya menyadari bahwa Puncak itu memang sangat padat, tapi tidak sepadat dompet orang Indonesia setelah liburan.
+ Ya, karena apa? Karena kita Indonesia, dan kita harus bisa tertawa saat macet, tidak bisa tertawa saat macet, ya kita akan gila! Jadi, sisi positifnya adalah bahwa sistem one way ini dapat mengurangi kemacetan dan membuat perjalanan ke Puncak menjadi lebih lancar.
 
- Sisi positifnya, sistem one way ini bisa mengurangi kemacetan, tapi sisi negatifnya, kita harus bersabar dan tidak menyerobot jalur, yang artinya kita harus menjadi orang yang sangat sabar dan disiplin, seperti orang yang sedang menunggu giliran untuk membeli tiket konser K-pop.
+ Tapi, sisi negatifnya adalah bahwa kita harus bersabar dan tidak bisa menyerobot jalur, karena itu akan membuat kita menjadi penjahat lalu lintas yang tidak bertanggung jawab.
 
- Tapi serius saja, pemerintah harus lebih proaktif dalam mengatasi kemacetan, bukan hanya sekedar menerapkan sistem one way, tapi juga harus memperbaiki infrastruktur jalan dan meningkatkan kesadaran masyarakat akan pentingnya berlalu lintas yang tertib.
+ Dan, jika kita tidak tertib, maka kita akan menjadi korban satire saya yang menyakitkan ini.
 
- Jadi, mari kita semua bersabar dan tertib berlalu lintas, agar kita tidak menjadi korban kemacetan yang menyebabkan kita terlambat untuk menikmati liburan kita.
+ Jadi, mari kita tertib dan patuhi aturan, agar kita tidak menjadi bahan ejekan di media sosial.
+
+ Dan, ingat, saat macet, kita harus bisa tertawa, karena jika tidak, kita akan menjadi korban stres yang parah!
