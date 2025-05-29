@@ -10,6 +10,8 @@ Gagal lolos UTBK SNBT 2025? Ada 13 PTS yang membuka jalur mandiri pakai nilai UT
 | author      | Sandra Desi Caesaria |
 | editor      | Mahar Prastiwi |
 
+![ilustrasi mahasiswa.](https://asset.kompas.com/crops/1xhjvNpgPYuU9Z1WegRMu03B1nQ=/0x0:1500x1000/750x500/data/photo/2024/07/02/6683b021eda7e.jpg)
+
 **KOMPAS.com** - Belum berhasil lolos Ujian Tulis Berbasis Komputer di Seleksi Nasional Berdasarkan Tes (UTBK SNBT) 2025? Jangan sedih dulu, karena masih ada 13  Perguruan Tinggi Swasta (PTS) yang menyediakan jalur nilai UTBK SNBT.
 
 Sebanyak 13 PTS yang membuka jalur nilai UTBK ini juga menyediakan beasiswa dan potongan atau diskon biaya kuliah bagi calon mahasiswa yang lolos lewat jalur tersebut.
@@ -113,22 +115,22 @@ ITNY turut memberikan keringanan Sumbangan Pengembangan sejumlah 15 persen melal
 Demikian 13 PTS yang membuka beasiswa jalur seleksi nilai UTBK SNBT. Jika kamu belum berhasil diterima di perguruan tinggi negeri, manfaatkan PTS yang buka beasiswa pakai jalur seleksi nilai UTBK ini.
 
 ---
-Berikut adalah ringkasan berita tersebut dalam satu paragraf: Ada 13 Perguruan Tinggi Swasta (PTS) yang menyediakan jalur nilai UTBK SNBT 2025 untuk calon mahasiswa, bahkan dengan beasiswa dan potongan biaya kuliah.
+Berikut adalah ringkasan berita dalam satu paragraf: Belum berhasil lolos Ujian Tulis Berbasis Komputer di Seleksi Nasional Berdasarkan Tes (UTBK SNBT) 2025? Jangan sedih dulu, karena masih ada 13 Perguruan Tinggi Swasta (PTS) yang menyediakan jalur nilai UTBK SNBT.
 
- Universitas seperti Universitas Muhammadiyah Semarang, Universitas Kristen Maranatha, President University, dan lain-lain membuka jalur ini dengan persyaratan nilai UTBK yang berbeda-beda.
+ PTS-PTS tersebut juga menawarkan beasiswa dan potongan biaya kuliah bagi calon mahasiswa yang lolos lewat jalur tersebut, dengan beberapa di antaranya menawarkan potongan uang pangkal, biaya semester, atau bahkan kuliah gratis sampai lulus.
 
- Beberapa PTS bahkan menawarkan potongan biaya kuliah hingga 100 persen, bebas biaya pendaftaran, dan kemudahan lainnya bagi calon mahasiswa yang lolos lewat jalur ini.
+ Dengan demikian, calon mahasiswa yang belum berhasil diterima di perguruan tinggi negeri masih memiliki kesempatan untuk melanjutkan studi di PTS dengan biaya yang lebih terjangkau.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini, dengan sedikit bumbu roasting yang pedas.
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, kamu tidak berhasil lolos UTBK SNBT 2025? Tenang, masih ada 13 PTS yang mau menerima kamu dengan nilai UTBK yang tidak terlalu tinggi.
+ Di satu sisi, ini adalah berita baik bagi mereka yang belum berhasil lolos UTBK SNBT, karena masih ada kesempatan untuk melanjutkan studi di PTS dengan biaya yang lebih terjangkau.
 
- Tapi, jangan terlalu senang dulu, karena beberapaPTS ini mungkin hanya ingin mengisi kuota mahasiswa agar tidak kehilangan dana dari pemerintah.
+ Tapi, di sisi lain, ini juga bisa dianggap sebagai "hadiah konsolasi" bagi mereka yang tidak cukup beruntung untuk diterima di perguruan tinggi negeri.
 
- Di sisi positif, beberapa PTS ini menawarkan beasiswa yang lumayan, seperti potongan biaya kuliah hingga 100 persen, yang bisa membantu kamu menghemat biaya kuliah.
+ Bayangkan, Anda harus membayar biaya kuliah yang lebih mahal di PTS, hanya karena Anda tidak cukup pintar untuk diterima di perguruan tinggi negeri.
 
- Tapi, di sisi negatif, beberapa PTS ini mungkin memiliki kualitas pendidikan yang tidak terlalu bagus, sehingga kamu harus berpikir dua kali sebelum memutuskan untuk mendaftar.
+ Tapi, hei, setidaknya Anda masih bisa kuliah, kan? Dan siapa tahu, mungkin Anda akan menemukan bahwa PTS adalah jawaban atas kebutuhan Anda akan pendidikan yang lebih "eksklusif" dan "berbiaya".
 
- Jadi, pastikan kamu melakukan riset yang baik sebelum memilih PTS yang tepat untuk kamu, agar tidak menyesal di kemudian hari.
+ Jadi, jangan sedih, karena masih ada kesempatan untuk melanjutkan studi di PTS, dan siapa tahu, mungkin Anda akan menjadi salah satu dari mereka yang berhasil "survive" di dunia pendidikan yang semakin kompetitif ini.
