@@ -2,13 +2,13 @@
 
 Pemerintah buat langkah strategis untuk merespons kebijakan pemerintah AS yang menghentikan sementara Student Exchange dan Visitor Visa F, M, J Visa.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | AS Hentikan Sementara Penerbitan Visa Pelajar, Bagaimana Nasib Pemilik LoA? |
-| description | Pemerintah buat langkah strategis untuk merespons kebijakan pemerintah AS yang menghentikan sementara Student Exchange dan Visitor Visa F, M, J Visa. |
-| urlshort    | http://kmp.im/AGHp8A |
-| author      | Sania Mashabi |
-| editor      | Mahar Prastiwi |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | AS Hentikan Sementara Penerbitan Visa Pelajar, Bagaimana Nasib Pemilik LoA? |
+| 📝 Description | Pemerintah buat langkah strategis untuk merespons kebijakan pemerintah AS yang menghentikan sementara Student Exchange dan Visitor Visa F, M, J Visa. |
+| 🔗 Short URL   | http://kmp.im/AGHp8A |
+| 👤 Author      | Sania Mashabi |
+| ✏️ Editor      | Mahar Prastiwi |
 
 ![Ilustrasi mahasiswa.](https://asset.kompas.com/crops/TjwPVQyHKQZYS4h48ia_oBcZ-F8=/0x0:1000x667/750x500/data/photo/2025/03/06/67c99a45c6dc0.jpg)
 
@@ -47,20 +47,18 @@ Dalam kebijakan tersebut, AS akan melakukan penyaringan lebih luas terhadap akti
 Pemerintah AS dalam waktu dekat akan mengeluarkan panduan baru terkait prosedur pemeriksaan akun media sosial bagi semua pemohon visa pelajar.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Pemerintah Indonesia telah mengambil langkah strategis untuk menanggapi kebijakan pemerintah Amerika Serikat yang menghentikan sementara proses penerbitan visa mahasiswa asing.
+## Ringkasan
 
- Wakil Menteri Pendidikan Tinggi, Sains, dan Teknologi, Stella Christie, menyatakan bahwa langkah ini disiapkan untuk pemilik Letter of Acceptance (LoA) dan penerima beasiswa dari Kemendikti Saintek di kampus AS.
+Berikut adalah ringkasan singkat dari berita tersebut: Pemerintah Indonesia telah mengambil langkah strategis untuk merespons kebijakan pemerintah Amerika Serikat yang menghentikan sementara proses penerbitan visa mahasiswa asing.
 
- Langkah ini termasuk mengalihkan para pemilik LoA dan penerima beasiswa ke kampus unggulan di negara lain atau membantu mereka kuliah di kampus terbaik di dalam negeri.
+ Wakil Menteri Pendidikan Tinggi, Sains, dan Teknologi, Stella Christie, mengatakan bahwa langkah ini disiapkan untuk pemilik Letter of Acceptance dan penerima beasiswa dari Kemendikti Saintek di kampus AS.
 
- Selain itu, pihaknya juga menghimbau mahasiswa yang sedang menempuh pendidikan di AS untuk tidak bepergian keluar wilayah AS hingga ada kepastian lebih lanjut.
+ Pemerintah juga menghimbau bagi mahasiswa yang sedang menempuh pendidikan di AS untuk tidak bepergian keluar wilayah AS hingga ada kepastian lebih lanjut.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari kebijakan ini dengan sedikit sentuhan satire yang menyakitkan.
+Wow, Amerika Serikat memang benar-benar serius ingin menjadi "negara terisolasi" di dunia, ya? 🤣 Mereka menghentikan sementara proses penerbitan visa mahasiswa asing, dan itu berdampak pada banyak mahasiswa Indonesia yang ingin belajar di sana 🤦‍♀️.
 
- Pemerintah Indonesia sepertinya sedang berusaha untuk menyelamatkan mahasiswa yang terjebak dalam kebijakan visa AS yang semakin ketat.
+ Tapi, tidak usah khawatir, pemerintah Indonesia sudah siap dengan langkah strategisnya, seperti mengalihkan mahasiswa ke kampus unggulan di negara lain atau membantu mereka kuliah di kampus terbaik di dalam negeri 🎉.
 
- Ini adalah langkah yang positif, karena setidaknya pemerintah tidak hanya duduk diam dan membiarkan mahasiswa menghadapi masalah sendirian.
-
- Namun, di sisi lain, kita harus bertanya-tanya, apa yang sebenarnya terjadi di dalam kepala para pejabat AS yang memutuskan untuk menghentikan sementara proses penerbitan visa mahasiswa asing? Apakah mereka pikir bahwa mahasiswa asing adalah ancaman bagi keamanan nasional? Atau apakah mereka hanya ingin membuat hidup mahasiswa lebih sulit? Satu hal yang pasti, kebijakan ini akan membuat banyak mahasiswa Indonesia yang ingin belajar di AS merasa seperti mereka sedang bermain game "Minecraft" - harus menavigasi melalui labirin birokrasi dan aturan yang semakin kompleks.
+ Tapi, saya masih penasaran, apa yang membuat Amerika Serikat begitu paranoid dengan media sosial para mahasiswa asing? 🤔 Apakah mereka takut bahwa mahasiswa-mahasiswa tersebut akan menjadi influencer terkenal dan mengalahkan selebriti-selebriti Amerika? 😂 Yang pasti, ini adalah langkah yang sangat ceroboh dan memalukan dari pemerintah Amerika Serikat, dan saya hanya bisa mengatakan: "AS, kamu benar-benar membuat kesalahan besar ini, bro!" 😂👎
