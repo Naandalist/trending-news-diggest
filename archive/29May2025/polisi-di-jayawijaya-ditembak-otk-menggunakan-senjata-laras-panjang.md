@@ -10,6 +10,8 @@ Seorang anggota polisi ditembak OTK di depan RSUD Wamena, Papua. Pelaku melarika
 | author      | Roberthus Yewen |
 | editor      | Andi Hartik |
 
+![Nampak mobil Satlantas Polres Jayawijaya yang digunakan oleh korban, saat ditembak oleh pelaku OTK di RSUD Wamena, Kabupaten Jayawijaya, Papua Pegunungan, Rabu (28/5/2025).](https://asset.kompas.com/crops/ex0YbcaMWqtUjWKo4UxXnTCLTTU=/0x0:0x0/750x500/data/photo/2025/05/29/6837ec92c1358.jpg)
+
 **JAYAPURA, KOMPAS.com** - Seorang anggota polisi Satuan Lalu Lintas Polres Jayawijaya, Bripka Marsidon Debataraja, ditembak orang tak dikenal (OTK) di depan Rumah Sakit Umum Daerah (RSUD) Wamena, Kabupaten Jayawijaya, Papua Pegunungan, Rabu (28/5/2025). Penembakan ini terjadi sekitar pukul 19.00 WIT.
 
 Kepala Satuan Tugas (Satgas) Operasi Damai Cartenz Brigadir Jenderal Polisi (Brigjen Pol) Faizal Rahmadani mengatakan, pelaku diduga menggunakan senjata api (senpi) laras panjang saat menembak korban di RSUD Wamena.
@@ -33,26 +35,26 @@ Jan mengatakan, saat ini korban telah mendapatkan perawatan di IGD RSUD Wamena d
 \[video.1\]  
 
 ---
-Berikut ringkasan berita dalam satu paragraf: Sebuah insiden penembakan terjadi di depan Rumah Sakit Umum Daerah (RSUD) Wamena, Kabupaten Jayawijaya, Papua Pegunungan, Rabu (28/5/2025) sekitar pukul 19.
+Berikut adalah ringkasan berita dalam satu paragraf: Seorang anggota polisi Satuan Lalu Lintas Polres Jayawijaya, Bripka Marsidon Debataraja, ditembak oleh orang tak dikenal di depan Rumah Sakit Umum Daerah (RSUD) Wamena, Kabupaten Jayawijaya, Papua Pegunungan.
 
-00 WIT.
+ Penembakan ini terjadi sekitar pukul 19.
 
- Korban adalah seorang anggota polisi Satuan Lalu Lintas Polres Jayawijaya, Bripka Marsidon Debataraja, yang ditembak oleh orang tak dikenal (OTK) menggunakan senjata api laras panjang.
+00 WIT dan dilakukan dengan senjata api laras panjang.
 
  Pelaku kemudian melarikan diri menggunakan sepeda motor.
 
- Pihak kepolisian langsung melakukan olah tempat kejadian perkara (TKP) dan mengamankan sejumlah barang bukti, serta melakukan patroli penyisiran wilayah untuk mencari pelaku.
+ Polisi langsung melakukan olah tempat kejadian perkara dan mengamankan sejumlah barang bukti di lokasi kejadian.
 
- Korban saat ini dalam kondisi sadar dan sedang dirawat di IGD RSUD Wamena.
+ Korban saat ini telah mendapatkan perawatan di IGD RSUD Wamena dan dalam kondisi sadar.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari insiden ini, dengan sedikit bumbu roasting yang pedas.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, sisi positifnya adalah korban masih dalam kondisi sadar dan sedang dirawat, jadi tidak perlu khawatir tentang nyawanya.
+ Sisi positifnya adalah polisi langsung bertindak cepat dan melakukan olah tempat kejadian perkara, serta mengamankan sejumlah barang bukti.
 
- Tapi, sisi negatifnya adalah, apa lagi ini? Penembakan di depan rumah sakit? Itu seperti mencuri di depan kantor polisi! Pelaku kayaknya ingin menunjukkan bahwa mereka punya nyali besar, tapi sebenarnya mereka hanya memiliki keberanian untuk menembak dari jarak jauh.
+ Ini menunjukkan bahwa mereka serius dalam menangani kasus ini.
 
- Dan yang paling parah, pelaku menggunakan sepeda motor untuk melarikan diri, kayaknya mereka ingin mengikuti audisi untuk menjadi anggota geng motor.
+ Namun, sisi negatifnya adalah penembakan ini terjadi di depan rumah sakit, yang seharusnya menjadi tempat yang aman dan nyaman.
 
- Pihak kepolisian harus lebih cepat dan lebih tajam dalam menangkap pelaku, karena ini sudah tidak bisa diterima lagi!
+ Ini membuat kita bertanya-tanya, apa yang sebenarnya terjadi di Papua? Apakah keamanan di sana sudah benar-benar tidak terkendali? Dan, apa yang dilakukan oleh pemerintah untuk mencegah kasus-kasus seperti ini di masa depan? Mari kita tunggu dan lihat, mungkin suatu hari nanti kita akan mendapatkan jawaban yang jelas dan tidak hanya sekedar janji-janji manis.
