@@ -1,0 +1,76 @@
+# Kepuasan Publik terhadap Pramono Urutan 5, Stafsus: Jadi Masukan dan Bahan Evaluasi
+
+Pramono-Rano posisi kelima tingkat kepuasan masyarakat terhadap Gubernur dan Wakil Gubernur di Pulau Jawa dalam 100 hari kerja.
+
+| Field       | Value                                                       |
+|-------------|-------------------------------------------------------------|
+| title       | Kepuasan Publik terhadap Pramono Urutan 5, Stafsus: Jadi Masukan dan Bahan Evaluasi |
+| description | Pramono-Rano posisi kelima tingkat kepuasan masyarakat terhadap Gubernur dan Wakil Gubernur di Pulau Jawa dalam 100 hari kerja. |
+| urlshort    | http://kmp.im/AGHp7h |
+| author      | Ruby Rachmadina |
+| editor      | Akhdi Martin Pratama |
+
+**JAKARTA, KOMPAS.com** - Staf Khusus Gubernur dan Wakil Gubernur Jakarta Bidang Komunikasi Publik, Chico Hakim, menanggapi hasil survei Indikator Politik Indonesia yang menunjukkan tingkat kepuasan masyarakat terhadap kinerja Gubernur Pramono Anung dan Wakil Gubernur Rano Karno berada di posisi kelima se-Pulau Jawa dalam 100 hari kerja pertama mereka.
+
+Chico menyatakan bahwa hasil survei tersebut akan menjadi bahan evaluasi bagi Pemprov Jakarta.
+
+"Apapun itu, semua hasil survei khususnya dari lembaga yang bisa dipertanggungjawabkan kredibilitas dan integritasnya tentu selalu menjadi masukan dan bahan evaluasi bagi kami," ujar Chico saat dikonfirmasi, Kamis (29/5/2025).
+
+Chico menjelaskan, membaca hasil survei tidak bisa hanya melihat angka akhir semata.
+
+Banyak faktor yang harus diperhatikan, mulai dari metode survei, demografi responden, latar belakang pendidikan responden, hingga konteks pertanyaan yang diajukan.
+
+"Artinya pertanyaan seperti apa yang dilempar ke responden, prosentase responden dengan level pendidikan tertentu, dan variabel lainnya harus diperhatikan," kata dia.
+
+Meski berada di posisi kelima, Chico mengatakan, untuk program-program penting yang menjadi tugas utama kepala daerah, Pramono justru unggul dibanding kepala daerah lain.
+
+Chico menilai, karakter masyarakat Jakarta yang lebih heterogen dan berpendidikan tinggi turut memengaruhi tingkat kepuasan terhadap Pramono-Rano.
+
+"Masyarakat Jakarta yang lebih heterogen dari daerah lain dan rata-rata level pendidikannya juga jauh di atas daerah lain tentu berpengaruh pada sikap yang lebih kritis dan tak mudah puas," ungkap Chico.
+
+Fokus utama Pemprov Jakarta di bawah kepemimpinan Pramono Anung adalah bekerja secara sistematis dan menjalankan program yang terukur.
+
+Sebelumnya, Survei Indikator Politik Indonesia memperlihatkan, 60 persen warga Jakarta menyatakan puas terhadap kinerja Gubernur Jakarta Pramono Anung dalam 100 hari kerja.
+
+Sementara, angka kepuasan terhadap Wakil Gubernur Jakarta Rano Karno dalam 100 hari kerja sebesar 60,5 persen.
+
+Angka itu menempatkan Pramono-Rano di posisi kelima tingkat kepuasan masyarakat terhadap Gubernur dan Wakil Gubernur di Pulau Jawa dalam 100 hari kerja.
+
+"Padahal eksposur media dan media sosial di Jakarta tinggi. Ini jadi otokritik untuk Pemprov DKI," ujar pendiri sekaligus peneliti utama Indikator Politik Indonesia, Burhanuddin Muhtadi dalam rilis survei di kantor Indikator Jakarta Pusat, Rabu (28/5/2025).
+
+Angka kepuasan masyarakat terhadap Pramono-Rano itu tak lebih unggul dari tingkat kepuasan warga Jawa Barat terhadap 100 hari kepemimpinan Gubernur Jawa Barat Dedi Mulyadi.
+
+Menurut survei, Dedi Mulyadi menjadi gubernur dengan tingkat kepuasan masyarakat tertinggi dengan 94,7 persen.
+
+"KDM (Kang Dedi Mulyadi) mendapat apresiasi sangat tinggi karena aktif di masyarakat dan masif di media sosial. Ini menjelaskan kenapa banyak media meliput kegiatannya," tutur Burhanuddin.
+
+Selain itu, angka kepuasan masyarakat terhadap Pramono-Rano juga masih di bawah perolehan Gubernur dan Wakil Gubernur Daerah Istimewa Yogyakarta (DIY), gubernur dan wagub Jawa Timur, serta gubernur dan wagub Jawa Tengah.
+
+Hanya gubernur dan wakil gubernur Banten yang mencatatkan tingkat kepuasan masyarakat lebih rendah dari Pramono-Rano.
+
+---
+Berikut adalah ringkasan berita dalam satu paragraf: Staf Khusus Gubernur dan Wakil Gubernur Jakarta, Chico Hakim, merespons hasil survei Indikator Politik Indonesia yang menunjukkan tingkat kepuasan masyarakat terhadap kinerja Gubernur Pramono Anung dan Wakil Gubernur Rano Karno berada di posisi kelima se-Pulau Jawa dalam 100 hari kerja pertama mereka.
+
+ Chico menyatakan bahwa hasil survei tersebut akan menjadi bahan evaluasi bagi Pemprov Jakarta, namun juga menekankan bahwa membaca hasil survei tidak bisa hanya melihat angka akhir semata, melainkan juga harus memperhatikan faktor-faktor lain seperti metode survei, demografi responden, dan konteks pertanyaan yang diajukan.
+
+ Meski berada di posisi kelima, Chico mengatakan bahwa Pramono-Rano unggul dalam program-program penting yang menjadi tugas utama kepala daerah.
+
+
+
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+
+ Jadi, hasil survei ini menunjukkan bahwa masyarakat Jakarta masih belum terlalu puas dengan kinerja Gubernur Pramono Anung dan Wakil Gubernur Rano Karno, dengan tingkat kepuasan hanya 60% dan 60,5%.
+
+ Wow, itu seperti mendapat nilai C+ di sekolah, tapi masih bisa lulus.
+
+ Namun, seperti yang dikatakan Chico, kita harus melihat faktor-faktor lain seperti metode survei dan demografi responden, karena mungkin responden survei ini hanya mereka yang memiliki waktu luang untuk mengisi survei, bukan mereka yang sibuk mencari nafkah.
+
+ Dan, tentu saja, kita harus memuji Pramono-Rano karena mereka unggul dalam program-program penting, seperti.
+
+.
+
+.
+
+ hmm, apa saja sebenarnya? Tapi, serius saja, hasil survei ini harus menjadi bahan evaluasi bagi Pemprov Jakarta untuk meningkatkan kinerja mereka dan membuat masyarakat Jakarta lebih puas.
+
+ Jadi, mari kita tunggu apa yang akan dilakukan Pemprov Jakarta selanjutnya, karena kita semua tahu bahwa janji-janji politisi selalu lebih manis daripada kenyataan.
