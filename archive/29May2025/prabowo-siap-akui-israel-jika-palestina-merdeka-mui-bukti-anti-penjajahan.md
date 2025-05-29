@@ -10,6 +10,8 @@ Ketua MUI Sudarnoto dukung Prabowo yang akan akui Israel jika Palestina merdeka.
 | author      | Singgih Wiryono |
 | editor      | Danu Damarjati  |
 
+![Ketua MUI Bidang Luar Negeri dan Kerjasama Internasional, Sudarnoto Abdul Hakim saat ditemui di Kantor Pusat MUI, Jakarta Pusat, Senin (14/4/2025).](https://asset.kompas.com/crops/n_CM_a_ul-p1eYr7P8EGcNQPsqo=/0x0:0x0/750x500/data/photo/2025/04/14/67fcb594720da.jpeg)
+
 **JAKARTA, KOMPAS.com** - Ketua Bidang Hubungan Internasional Majelis Ulama Indonesia (MUI), Sudarnoto, menilai sikap Presiden Prabowo Subianto konsisten terhadap dukungan kemerdekaan Palestina, tercermin dari pernyataan terbaru saat bersama Presiden Perancis Emmanuel Macron.
 
 \"Pernyataan Presiden Prabowo tentang kesediaan membuka hubungan diplomatik dengan Israel dengan syarat Palestina merdeka, itu bisa dimengerti. Pembukaan UUD memang mengisyaratkan kuat Indonesia anti-penjajahan (termasuk Israel yang nyata-nyata menjajah) dan membela negara mana pun termasuk Palestina yang terjajah,\" kata Sudarnoto dalam keterangannya, Kamis (29/5/2025).
@@ -42,18 +44,18 @@ Menurut dia, kemerdekaan bagi bangsa Palestina merupakan satu-satunya jalan untu
 \"Tapi di samping itu pun, saya tegaskan bahwa kita juga harus mengakui dan menjamin hak Israel untuk berdiri sebagai negara yang berdaulat dan negara yang harus juga diperhatikan dan dijamin keamanannya,\" ujar dia.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Presiden Prabowo Subianto menyatakan bahwa Indonesia siap mengakui Israel sebagai negara berdaulat jika Israel juga mengakui Palestina, menurut pernyataan terbaru saat bersama Presiden Perancis Emmanuel Macron.
+Berikut ringkasan berita dalam satu paragraf: Presiden Prabowo Subianto menyatakan bahwa Indonesia siap mengakui Israel sebagai negara berdaulat asalkan Israel mengakui Palestina, seperti yang dinyatakan dalam joint statement bersama Presiden Prancis Emmanuel Macron.
 
- Ketua Bidang Hubungan Internasional Majelis Ulama Indonesia (MUI), Sudarnoto, menilai sikap Presiden Prabowo konsisten terhadap dukungan kemerdekaan Palestina, namun MUI memiliki catatan penting agar Israel tidak lolos dari jerat hukum atas kejahatan kemanusiaan yang telah dilakukan kepada bangsa Palestina.
+ Ketua Bidang Hubungan Internasional Majelis Ulama Indonesia (MUI), Sudarnoto, menilai sikap Presiden Prabowo konsisten terhadap dukungan kemerdekaan Palestina, dan bahwa Indonesia dapat membuka hubungan diplomatik dengan Israel jika Palestina merdeka.
 
- MUI berharap agar Israel juga mengembalikan tanah yang direbut paksa kepada Palestina dan menarik pasukannya dari Gaza sebelum Indonesia membuka hubungan diplomatik dengan Israel.
+ MUI berharap agar Israel tidak lolos dari jerat hukum atas kejahatan kemanusiaan yang telah dilakukan kepada bangsa Palestina.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan humor yang menyakitkan.
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
 
- Jadi, Presiden Prabowo ingin membuka hubungan diplomatik dengan Israel, tapi dengan syarat Palestina harus merdeka dulu - itu seperti aku ingin meminjam uang dari teman, tapi aku harus janji untuk membayar lunas dulu sebelum aku meminjam.
+ Saya rasa ini adalah langkah yang baik bagi Indonesia untuk mempertimbangkan hubungan diplomatik dengan Israel, tetapi dengan syarat yang jelas: Israel harus mengakui Palestina dan menghentikan penjajahan.
 
- Sisi positifnya, Indonesia masih konsisten dalam mendukung kemerdekaan Palestina, tapi sisi negatifnya, kita masih belum bisa membuka hubungan diplomatik dengan Israel karena mereka masih menjajah Palestina - itu seperti aku tidak bisa bergaul dengan anak nakal di sekolah karena mereka masih suka membully teman-teman yang lemah.
+ Namun, apakah ini hanya omong kosong atau benar-benar memiliki tujuan yang baik? MUI juga memiliki catatan penting agar Israel tidak lolos dari jerat hukum, tapi apakah ini hanya sekedar pernyataan atau benar-benar memiliki dampak nyata? Saya khawatir bahwa kita masih jauh dari solusi yang nyata untuk konflik Israel-Palestina, dan pernyataan ini hanya sekedar permainan politik yang tidak memilikisubstansi yang kuat.
 
- Dan, MUI ingin Israel mengembalikan tanah yang direbut paksa kepada Palestina, itu seperti aku ingin teman-teman yang nakal itu mengembalikan sepatuku yang mereka pinjam tanpa izin - itu tidak mungkin terjadi, kan? Jadi, mari kita lihat bagaimana cerita ini akan berakhir, apakah Indonesia bisa membuka hubungan diplomatik dengan Israel tanpa mengkhianati kemerdekaan Palestina?
+ Tapi, who knows, mungkin ini adalah awal dari sesuatu yang baik, atau mungkin hanya sekedar basa-basi yang tidak berarti apa-apa.
