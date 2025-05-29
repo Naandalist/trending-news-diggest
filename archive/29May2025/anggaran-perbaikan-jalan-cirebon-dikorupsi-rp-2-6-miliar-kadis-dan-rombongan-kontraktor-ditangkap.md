@@ -10,6 +10,8 @@ Kejari Cirebon, Jabar menetapkan Kepala Dinas dan sejumlah pihak kontraktor dala
 | author      | Muhamad Syahri Romdhon |
 | editor      | Bilal Ramadhan |
 
+![Kejari Kabupaten Cirebon Jawa Barat menunjukan tujuh tersangka di kantor nya pada Rabu (28/5/2025) malam.](https://asset.kompas.com/crops/92mjj6o0nPGviz4B4BSKSq7gREA=/0x0:0x0/750x500/data/photo/2025/05/29/6837ecb216e89.jpg)
+
 **CIREBON, KOMPAS.com** - Anggaran Perbaikan Jalan di Kecamatan Losari dan Kecamatan Lemahabang, Kabupaten Cirebon Jawa Barat, dikorupsi mencapai sekitar Rp 2,6 miliar.
 
 Anggaran tersebut dikorupsi dari dana Bantuan Keuangan Khusus (BKK) pada tahun anggaran 2024.
@@ -43,28 +45,24 @@ Ketujuh tersangka diancam menggunakan Undang-Undang Nomor 31 Tahun 1999 yang tel
 Kejari Kabupaten Cirebon masih melakukan pendalaman dan pengembangan kasus ini.
 
 ---
-Berikut adalah rangkuman berita dalam satu paragraf: Di Kabupaten Cirebon, Jawa Barat, ditemukan kasus korupsi anggaran perbaikan jalan di Kecamatan Losari dan Kecamatan Lemahabang yang mencapai sekitar Rp 2,6 miliar.
+Berikut adalah ringkasan berita dalam satu paragraf: Anggaran perbaikan jalan di Kecamatan Losari dan Kecamatan Lemahabang, Kabupaten Cirebon, Jawa Barat, telah dikorupsi sekitar Rp 2,6 miliar.
 
- Kasus ini melibatkan tujuh orang, termasuk Kepala Dinas Perumahan, Kawasan Permukiman dan Pertahanan (DPKPP) Kabupaten Cirebon dan enam kontraktor swasta.
+ Korupsi ini melibatkan tujuh orang, termasuk Kepala Dinas Perumahan, Kawasan Permukiman dan Pertahanan (DPKPP) Kabupaten Cirebon dan enam orang kontraktor.
 
- Mereka dituduh melakukan tindak pidana korupsi dengan modus tidak mengerjakan tugas sepenuhnya secara maksimal, sehingga negara mengalami kerugian mencapai Rp 2,694 miliar.
+ Mereka ditetapkan sebagai tersangka dan diancam dengan Undang-Undang Nomor 31 Tahun 1999 tentang Pemberantasan Tindak Pidana Korupsi, dengan ancaman maksimal 20 tahun penjara.
 
- Ketujuh tersangka diancam dengan ancaman maksimal 20 tahun penjara berdasarkan Undang-Undang Nomor 31 Tahun 1999 tentang Pemberantasan Tindak Pidana Korupsi.
+ Kerugian negara akibat korupsi ini mencapai Rp 2,694 miliar, karena para pelaku tidak mengerjakan tugas sepenuhnya secara maksimal.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari kasus ini dengan sedikit sindiran yang pedas.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Sisi positifnya, kita memiliki Kejari Kabupaten Cirebon yang cukup tanggap dalam menangani kasus korupsi ini, sehingga kita bisa melihat bahwa ada upaya serius untuk memberantas korupsi di Indonesia.
+ Sisi positifnya, kita memiliki bukti bahwa korupsi masih sangat hidup dan sehat di Indonesia, dan para pelaku korupsi masih sangat kreatif dalam mencari cara untuk mengkorupsi dana negara.
 
- Namun, sisi negatifnya, kita masih melihat bahwa korupsi masih merajalela di negeri ini, dan itu sangat memalukan.
+ Namun, sisi negatifnya, kita masih harus menanggung kerugian yang sangat besar akibat korupsi ini, dan rakyat masih harus menderita akibat infrastruktur yang tidak memadai.
 
- Kita memiliki pejabat yang tidak bertanggung jawab, kontraktor yang tidak profesional, dan sistem yang masih belum efektif dalam mencegah korupsi.
+ Dan, tentu saja, kita harus menyambut dengan hangat para pelaku korupsi yang telah berhasil mengkorupsi dana negara dengan sangat baik, dan memberikan mereka penghargaan atas kreativitas dan keberanian mereka.
 
- Bayangkan, 72,49% dan 90,57% dari pekerjaan perbaikan jalan tidak dikerjakan, itu seperti membuang uang rakyat ke selokan.
+ Namun, saya rasa, kita harus lebih fokus pada penyelesaian masalah korupsi ini, daripada hanya menghukum para pelaku.
 
- Jadi, kita harus terus meneriakkan bahwa korupsi tidak bisa diterima, dan kita harus terus memperjuangkan transparansi dan akuntabilitas dalam pengelolaan anggaran negara.
-
- Dan kepada para koruptor, saya katakan, "Kalian memang pintar, tapi pintar dalam melakukan kezaliman, dan itu tidak akan membuat kalian menjadi bangga, karena kalian hanya akan menjadi bahan ejekan bagi rakyat Indonesia.
-
-"
+ Kita harus mencari solusi yang lebih efektif untuk mencegah korupsi dan memastikan bahwa dana negara digunakan dengan benar dan tepat.
