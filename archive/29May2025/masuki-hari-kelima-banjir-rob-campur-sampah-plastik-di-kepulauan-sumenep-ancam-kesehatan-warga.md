@@ -10,6 +10,8 @@ Banjir rob di Sumenep bercampur sampah plastik, mengancam kesehatan warga. Apa l
 | author      | Nur Khalis |
 | editor      | Krisiandi |
 
+![Genangan air bercampur sampah di Desa Saobi akibat banjir rob. ](https://asset.kompas.com/crops/WQH2JGN96feWiyqHvi1sSAsJOkA=/0x0:0x0/750x500/data/photo/2025/05/29/6837e75a711e0.jpg)
+
 **SUMENEP, KOMPAS.com** - Memasuki hari kelima banjir rob yang melanda tiga pulau di Desa Saobi, Kecamatan Kangayan, Kabupaten Sumenep, Jawa Timur, kondisi ini mulai mengancam kesehatan warga yang terdampak.
 
 Hal ini disampaikan pada Kamis (29/5/2025).
@@ -47,50 +49,24 @@ Ia mengingatkan bahwa genangan air yang bercampur dengan sampah sangat rentan me
 Hingga hari kelima banjir rob terjadi, Samsuri mengeklaim belum ada informasi mengenai warga yang jatuh sakit akibat banjir tahunan tersebut. \"Nanti saya tanya ke nakes di sana. Kalau ada, nanti bisa dirawat di pustu desa, kalau perlu bisa dirujuk ke Puskesmas,\" jelasnya.
 
 ---
-Berikut ringkasan berita dalam satu paragraf: Banjir rob telah melanda tiga pulau di Desa Saobi, Kecamatan Kangayan, Kabupaten Sumenep, Jawa Timur, selama lima hari dan mulai mengancam kesehatan warga.
+Banjir rob yang melanda tiga pulau di Desa Saobi, Kecamatan Kangayan, Kabupaten Sumenep, Jawa Timur, telah memasuki hari kelima dan mulai mengancam kesehatan warga yang terdampak.
 
- Banjir rob ini bercampur dengan sampah plastik yang tidak ada tempat pemrosesan akhir (TPA) yang memadai di daerah tersebut.
+ Banjir rob yang terjadi setiap tahun ini bercampur dengan sampah plastik milik warga karena tidak adanya tempat pemrosesan akhir (TPA) sampah yang memadai di tiga pulau tersebut.
 
- Sampah-sampah tersebut mengambang di sekitar pekarangan rumah dan jalan raya, bercampur dengan air banjir yang keruh dan berwarna kehitam-hitaman.
+ Genangan air yang keruh dan berwarna kehitam-hitaman masih merupakan ancaman kesehatan bagi warga, meskipun belum ada laporan warga yang jatuh sakit akibat banjir rob.
 
- Meskipun belum ada laporan warga yang jatuh sakit, aparat desa terus melakukan monitoring karena genangan air yang berlangsung lama dapat menyebabkan penyakit.
+ Aparat desa terus melakukan monitoring dan pemerintah desa telah memberitahukan forum pimpinan kecamatan (Forpimka) melalui grup pesan elektronik, namun belum ada respons.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sindiran yang menyakitkan.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, sisi positifnya adalah.
+ Di satu sisi, banjir rob ini membuktikan bahwa warga Desa Saobi sangat kreatif dalam menghasilkan sampah plastik yang dapat menghiasi genangan air dengan warna-warna cantik.
 
-.
+ Namun, di sisi lain, ini juga menunjukkan bahwa pemerintah setempat belum melakukan tindakan efektif dalam mengatasi masalah sampah dan banjir rob yang terjadi setiap tahun.
 
-.
+ Bahkan, pemerintah desa masihbergantung pada forum pimpinan kecamatan (Forpimka) yang sepertinya tidak terlalu peduli dengan masalah ini.
 
- hmm, sepertinya tidak ada sisi positif yang jelas di sini, kecuali mungkin warga Desa Saobi telah terlatih berjalan di atas air kotor dan sampah.
+ Jadi, kita dapat menyimpulkan bahwa banjir rob ini tidak hanya membawa dampak negatif bagi kesehatan warga, tetapi juga membuka mata kita tentang kemampuan pemerintah dalam menangani masalah lingkungan yang serius.
 
- Tapi, serius saja, ini adalah bencana yang sangat serius dan memalukan.
-
- Bagaimana bisa sebuah desa tidak memiliki tempat pemrosesan akhir sampah yang memadai? Ini seperti mengundang penyakit dan bencana lainnya.
-
- Dan, apa yang dilakukan pemerintah desa? Mereka hanya melakukan monitoring dan berharap tidak ada yang jatuh sakit.
-
- Wow, itu sangat mengagumkan.
-
- Saya rasa mereka harus mendapatkan penghargaan untuk "Pemerintah Desa Paling Pasif" di Indonesia.
-
- Sisi negatifnya adalah.
-
-.
-
-.
-
- ya, hampir semua aspek dari berita ini.
-
- Banjir rob, sampah, tidak ada TPA, warga yang terancam sakit.
-
-.
-
-.
-
- ini adalah kombinasi yang sangat berbahaya dan memalukan.
-
- Jadi, mari kita harapkan pemerintah desa dan pemerintah daerah segera mengambil tindakan nyata untuk menyelesaikan masalah ini, bukan hanya berpangku tangan dan berharap bahwa semuanya akan baik-baik saja.
+ Mari kita tunggu respons dari pemerintah dan berharap bahwa mereka akan segera melakukan tindakan nyata untuk mengatasi masalah ini, bukan hanya berjanji untuk melakukan sesuatu yang belum pernah mereka lakukan sebelumnya.
