@@ -10,6 +10,8 @@ Pengguna cukup menyerahkan fotokopi STNK dan menunjukkan Kartu Tanda Penduduk (K
 | author      | Ruly Kurniawan |
 | editor      | Azwar Ferdian |
 
+![Ilustrasi tilang uji emisi Jakarta. Kembali diberlakukan pada awal November 2023](https://asset.kompas.com/crops/_6cYU_JkjjEto77Pkv5b4F-052c=/0x0:4032x2688/750x500/data/photo/2023/11/02/654357a86ea46.jpg)
+
 **JAKARTA, KOMPAS.com --** Dinas Lingkungan Hidup (DLH) DKI Jakarta menyampaikan kegiatan uji emisi kendaraan bermotor hanya membutuhkan waktu 5-10 menit dan gratis, khusus bagi warga Ibu Kota.
 
 Adapun prosesnya, disampaikan oleh Kepala Bidang Pengendalian Pencemaran dan Kerusakan Lingkungan DLH DKI Jakarta, Erni Pelita Fitratunnisa, juga mudah. Pengguna cukup menyerahkan fotokopi STNK dan menunjukkan Kartu Tanda Penduduk (KTP) saja.
@@ -35,22 +37,40 @@ Perlu diketahui, hasil uji emisi ini berlaku selama satu tahun. Artinya, pemilik
 Selain di bengkel-bengkel yang telah bekerja sama, layanan uji emisi juga tersedia di kantor Dinas Lingkungan Hidup (DLH) DKI Jakarta yang buka Senin sampai Jumat, pukul 08.00 WIB sampai 15.00 WIB.
 
 ---
-Berikut ringkasan berita dalam satu paragraf: Dinas Lingkungan Hidup (DLH) DKI Jakarta menyediakan layanan uji emisi kendaraan bermotor yang gratis dan hanya membutuhkan waktu 5-10 menit, khusus bagi warga Ibu Kota.
+Berita terbaru dari Jakarta, Dinas Lingkungan Hidup (DLH) DKI Jakarta telah menyediakan layanan uji emisi kendaraan bermotor yang gratis dan hanya membutuhkan waktu 5-10 menit, khusus bagi warga Ibu Kota.
 
- Prosesnya cukup mudah, pengguna hanya perlu menyerahkan fotokopi STNK dan menunjukkan KTP, lalu petugas akan memasukkan alat ke bagian knalpot untuk mengukur emisi gas buang.
+ Prosesnya cukup mudah, pengguna hanya perlu menyerahkan fotokopi STNK dan menunjukkan Kartu Tanda Penduduk (KTP), lalu petugas akan memasukkan alat ke bagian knalpot untuk mengukur emisi gas buang.
 
- Hasil pengukuran akan menunjukkan parameter seperti karbonmonoksida, karbondioksida, hidrokarbon, dan kadar oksigen, yang menjadi tolok ukur apakah kendaraan dinyatakan lolos atau tidak.
-
- Jika hasilnya tidak memenuhi ambang batas, kendaraan wajib mendapatkan perbaikan, dan hasil uji emisi ini berlaku selama satu tahun.
+ Hasil pengukuran akan menunjukkan parameter seperti karbonmonoksida (CO), karbondioksida (CO2), hidrokarbon (HC), hingga kadar oksigen, yang akan menentukan apakah kendaraan dinyatakan lolos atau tidak.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu roasting yang menyakitkan.
+Tapi, mari kita lihat sisi lain dari berita ini, karena seperti yang kita tahu, "gratis" itu tidak selalu berarti "baik".
 
- Sisi positifnya, layanan uji emisi yang gratis dan mudah ini bisa membuat warga Ibu Kota lebih peduli dengan lingkungan dan kesehatan mereka sendiri.
+ Saya sarankan, jika Anda ingin melakukan uji emisi, pastikan Anda memiliki banyak waktu luang, karena antrian di bengkel atau kantor DLH bisa lebih panjang dari antrian di warung makan favorit Anda.
 
- Tapi, sisi negatifnya, masih banyak orang yang tidak peduli dengan emisi gas buang kendaraan mereka, dan mungkin mereka lebih peduli dengan harga bensin yang murah daripada kesehatan mereka sendiri.
+ Dan, jika hasilnya tidak memenuhi ambang batas, jangan khawatir, Anda bisa memperbaiki kendaraan Anda dengan biaya yang.
 
- Dan, apa yang lebih menyakitkan lagi, masih banyak bengkel yang tidak mau bekerja sama dengan DLH untuk menyediakan layanan uji emisi, mungkin karena mereka lebih suka menerima uang dari pemilik kendaraan yang tidak mau memperbaiki kendaraan mereka.
+.
 
- Jadi, bagi kamu yang masih menggunakan kendaraan yang mengeluarkan asap tebal, mungkin sudah waktunya untuk memperbaiki atau mengganti kendaraanmu, agar kamu tidak menjadi penyebab polusi udara di Ibu Kota.
+.
+
+ eh, tidak terlalu murah.
+
+ Tapi, setidaknya, Anda bisa merasa lega karena telah melakukan sesuatu untuk lingkungan, kan? Atau, mungkin tidak.
+
+ Karena, LIKE, who needs clean air, anyway? Yang penting, kendaraan kita bisa tetap berjalan, dan kita bisa tetap menghirup udara yang.
+
+.
+
+.
+
+ sedikit tercemar.
+
+ Jadi, ayo, lakukan uji emisi, dan jangan lupa untuk membawa masker, karena kita tidak pernah tahu kapan udara Jakarta akan menjadi lebih baik.
+
+.
+
+.
+
+ atau lebih buruk.
