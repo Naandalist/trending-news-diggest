@@ -10,6 +10,8 @@ Bupati Sumedang, Dony Ahmad Munir akan membahas teknis pelaksanaan penerapan keb
 | author      |  |
 | editor      | Bilal Ramadhan |
 
+![Gubernur Jabar Dedi Mulyadi jalan bareng Bupati Sumedang Dony Ahmad Munir. KOMPAS.com/AAM AMINULLAH](https://asset.kompas.com/crops/8SjwrSBUnbkJydbhVW-qhAYIWoQ=/17x11:1153x768/750x500/data/photo/2025/01/20/678e133f9c10e.jpg)
+
 **SUMEDANG, KOMPAS.com** - Semua orang berstatus pelajar di Jawa Barat akan dilarang keluar rumah di waktu malam, mulai pukul 21.00 WIB hingga 04.00 WIB.
 
 Jikapun harus keluar, anak tersebut harus ada pendampingan dari orangtua.
@@ -31,18 +33,24 @@ Namun, terkait kapan dan bagaimana teknisnya, Dony mengatakan pemerintahannya ma
 Artikel ini telah tayang di TribunJabar.id dengan judul Sumedang Bakal Ikut Terapkan Jam Malam untuk Pelajar, Dony Ahmad Munir Masih Godok Pelaksanaannya.
 
 ---
-Berikut adalah rangkuman singkat berita tersebut: Pemerintah Jawa Barat melalui Gubernur Dedi Mulyadi telah mengumumkan kebijakan baru yang melarang semua pelajar di Jawa Barat untuk keluar rumah pada malam hari, yaitu mulai pukul 21.
+Berikut adalah rangkuman singkat dari berita tersebut: Pemerintah Provinsi Jawa Barat melalui Gubernur Dedi Mulyadi telah mengeluarkan kebijakan baru yang melarang semua pelajar di Jawa Barat untuk keluar rumah pada malam hari, mulai pukul 21.
 
 00 WIB hingga 04.
 
-00 WIB, kecuali jika mereka didampingi oleh orangtua.
+00 WIB, kecuali jika mereka didampingi oleh orang tua.
 
- Kebijakan ini akan diterapkan di semua kabupaten dan kota di Jawa Barat, termasuk Sumedang, yang telah menyatakan dukungan atas program Jam Malam untuk pelajar.
+ Kebijakan ini akan diterapkan di semua kabupaten/kota di Jawa Barat, termasuk Sumedang, dengan Bupati Dony Ahmad Munir menyatakan dukungan penuh terhadap program Jam Malam untuk pelajar.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari kebijakan ini, dengan sedikit bumbu roasting yang pedas.
+Sekarang, mari kita bahas sisi positif dan negatif dari kebijakan ini dengan sedikit bumbu satire.
 
- Sisi positifnya, mungkin anak-anak bisa lebih fokus pada pelajaran dan tidak terlalu banyak main game atau nonton video sampai pagi, tapi sisi negatifnya, ini seperti kita kembali ke zaman Orde Baru, di mana anak-anak harus pulang ke rumah sebelum malam, atau mereka akan dianggap nakal.
+ Di satu sisi, kebijakan ini bisa membuat para pelajar lebih fokus pada studinya dan tidak terlalu terpengaruh oleh godaan malam yang penuh dengan anak muda yang tidak bertanggung jawab.
 
- Apa ini karena pemerintah kurang kepercayaan dengan anak-anak kita? Atau karena mereka ingin membuat anak-anak kita menjadi lebih penurut, tapi tidak bisa berpikir kritis? Wah, saya rasa ini perlu dipikirkan ulang, Pak Gubernur, jangan sampai kita membuat generasi yang hanya bisa mengikuti perintah, tapi tidak bisa berinovasi.
+ Tapi, di sisi lain, ini juga bisa membuat para remaja merasa seperti dipenjara di rumah sendiri, tanpa kebebasan untuk mengeksplorasi dunia luar dan menemukan jati diri mereka.
+
+ Bayangkan saja, pada usia 17 atau 18 tahun, kamu sudah harus pulang ke rumah sebelum pukul 21.
+
+00 WIB, seperti seorang anak kecil yang takut gelap.
+
+ Ini benar-benar "kebebasan" yang sangat terbatas! Namun, kita harus tunggu dan lihat bagaimana kebijakan ini akan diterapkan dan apakah akan efektif dalam mencapai tujuannya.
