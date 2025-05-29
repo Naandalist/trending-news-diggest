@@ -33,22 +33,26 @@ Lebih lanjut, dia mengatakan, dalam prosesnya ketertelusuran tersebut melibatkan
 \"Dengan terbukanya akses ekspor ini, diharapkan dapat menciptakan iklim investasi yang kondusif di bidang hortikultura dan sebagai sumber perolehan devisa negara untuk mensejahterakan kehidupan petani di Indonesia,\" kata Sahat.
 
 ---
-Berita utama hari ini adalah bahwa China telah membuka akses ekspor durian beku Indonesia secara resmi.
+Berikut adalah rangkuman singkat berita tersebut dalam satu paragraf: Pemerintah China secara resmi telah membuka akses ekspor durian beku Indonesia, setelah Kepala Badan Karantina Indonesia Sahat Manaor Panggabean menandatangani naskah protokol ekspor dengan Menteri General Administration of Customs of the People's Republic of China.
 
- Kepala Badan Karantina Indonesia, Sahat Manaor Panggabean, mengumumkan bahwa protokol ekspor durian beku telah ditandatangani bersama dengan Menteri General Administration of Customs of the People's Republic of China (GACC) Sun Meijin.
+ Protokol ini mempercayakan pengawasan kepada Badan Karantina Indonesia untuk memastikan keamanan pangan dan kesehatan produk asal tumbuhan.
 
- Protokol ini menekankan konsep traceability, di mana ketertelusuran tahapan produksi durian segar dapat terpantau dan tertelusur, dari proses tanam di kebun hingga siap dikirimkan.
-
- Dengan terbukanya akses ekspor ini, diharapkan dapat menciptakan iklim investasi yang kondusif di bidang hortikultura dan menjadi sumber perolehan devisa negara untuk mensejahterakan kehidupan petani di Indonesia.
+ Pelaku usaha dan pemerintah daerah menyambut gembira upaya ini, yang diharapkan dapat menciptakan iklim investasi yang kondusif di bidang hortikultura dan meningkatkan kesejahteraan petani di Indonesia.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu roasting yang pedas.
 
- Ya, kita bisa bersorak-sorai karena durian beku kita akan segera membanjiri pasar China, tapi jangan lupa bahwa itu berarti kita akan kehilangan pasokan durian di dalam negeri dan harus memesan durian impor dari Malaysia.
+ Jadi, positifnya, kita bisa ekspor durian beku ke China, yang berarti kita bisa mendapatkan devisa negara dan membuat petani durian kita bahagia.
 
- Namun, secara serius, ini adalah langkah besar untuk meningkatkan ekspor dan pendapatan negara, serta membantu petani durian di Indonesia.
+ Tapi, negatifnya, kita harus memenuhi syarat-syarat yang ketat dari China, seperti memiliki instalasi karantina tumbuhan yang memadai dan menerbitkan sertifikat kesehatan tumbuhan.
 
- Tapi, kita juga harus waspada terhadap risiko penipuan dan praktik tidak sehat dalam proses produksi dan distribusi durian beku.
+ Ih, kayaknya kita harus berlomba-lomba untuk memenuhi standar China, atau kita akan ketinggalan.
 
- Jadi, mari kita tetap waspada dan berharap bahwa protokol ekspor ini akan dijalankan dengan efektif dan transparan, sehingga kita bisa menikmati keuntungan dari ekspor durian beku tanpa harus kehilangan integritas kita sebagai bangsa.
+ Tapi, secara serius, ini adalah langkah yang baik untuk meningkatkan ekspor kita dan membuat Indonesia lebih kompetitif di pasar internasional.
+
+ Sekarang, kepada petani durian kita, jangan lupa untuk menjaga kualitas durian kalian, atau kita akan malu di depan China.
+
+ Dan kepada pemerintah, jangan lupa untuk memantau proses ekspor ini dengan baik, atau kita akan kena masalah lagi.
+
+ Jadi, mari kita kerja sama untuk membuat ekspor durian beku kita sukses dan membuat Indonesia bangga!
