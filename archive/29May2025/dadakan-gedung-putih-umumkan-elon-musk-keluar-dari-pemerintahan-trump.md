@@ -2,13 +2,13 @@
 
 Menurut sejumlah sumber kepada Reuters. Musk disebut tidak melakukan pembicaraan resmi dengan Trump sebelum mengumumkan kepergiannya.
 
-| Field       | Value                                                       |
-|-------------|-------------------------------------------------------------|
-| title       | Dadakan, Gedung Putih Umumkan Elon Musk Keluar dari Pemerintahan Trump |
-| description | Menurut sejumlah sumber kepada Reuters. Musk disebut tidak melakukan pembicaraan resmi dengan Trump sebelum mengumumkan kepergiannya. |
-| urlshort    | http://kmp.im/AGHp71 |
-| author      | Danur Lambang Pristiandaru |
-| editor      | Danur Lambang Pristiandaru |
+| Field         | Value                                                       |
+|---------------|-------------------------------------------------------------|
+| 🏷️ Title       | Dadakan, Gedung Putih Umumkan Elon Musk Keluar dari Pemerintahan Trump |
+| 📝 Description | Menurut sejumlah sumber kepada Reuters. Musk disebut tidak melakukan pembicaraan resmi dengan Trump sebelum mengumumkan kepergiannya. |
+| 🔗 Short URL   | http://kmp.im/AGHp71 |
+| 👤 Author      | Danur Lambang Pristiandaru |
+| ✏️ Editor      | Danur Lambang Pristiandaru |
 
 ![CEO Tesla dan SpaceX, Elon Musk, saat pelantikan Donald Trump sebagai presiden Amerika Serikat di Capitol One Arena, Washington DC, 20 Januari 2025.](https://asset.kompas.com/crops/l1qcdkC5R5tjLTVB5p-Qhz3hk8g=/55x0:594x360/750x500/data/photo/2025/01/21/678f2c1d9ea71.jpg)
 
@@ -57,28 +57,22 @@ Beberapa sekretaris kabinet sudah berdiskusi dengan Gedung Putih tentang cara me
 Namun, meskipun beberapa kepala departemen akan tetap mempertahankan beberapa infrastruktur DOGE, mereka kemungkinan akan bergerak untuk menegaskan kembali kendali atas anggaran dan staf, kata beberapa sumber kepada *Reuters*.
 
 ---
-Berikut adalah rangkuman singkat berita tersebut dalam satu paragraf: Istana Kepresidenan Amerika Serikat atau Gedung Putih telah mengumumkan bahwa Elon Musk, yang menjabat sebagai pegawai pemerintah khusus di Departemen Efisiensi Pemerintahan AS (DOGE), akan melepaskan jabatannya mulai Rabu malam waktu setempat.
+## Ringkasan
 
- Musk sebelumnya telah mengekspresikan kekecewaannya terhadap Rancangan Undang-Undang (RUU) anggaran terbaru yang ditawarkan oleh pemerintahan Trump, yang menurutnya tidak sejalan dengan misi DOGE.
+Berikut adalah ringkasan dari laporan berita tersebut: Istana Kepresidenan Amerika Serikat atau Gedung Putih mengumumkan bahwa proses pelepasan Elon Musk dari pemerintahan Donald Trump akan dimulai pada Rabu (28/5/2025) malam waktu setempat.
 
- Kepergian Musk dari pemerintahan Trump ini dilakukan secara mendadak dan tanpa pembicaraan resmi dengan Trump sebelumnya.
+ Musk menjabat sebagai pegawai pemerintah khusus di Departemen Efisiensi Pemerintahan AS, yang dikenal dengan nama DOGE, tetapi kepergiannya dilakukan secara mendadak tanpa pembicaraan resmi dengan Trump.
+
+ Alasan pasti dari kepergian Musk masih belum jelas.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
+Hmm, mari kita bahas ini dengan cara yang lebih santai 😂.
 
- Jadi, Elon Musk keluar dari pemerintahan Trump, dan itu adalah berita baik.
+ Jadi, Elon Musk keluar dari pemerintahan Trump karena sepertinya dia tidak bisa tahan dengan kebijakan anggaran yang bikin defisit negara seperti borju 🤣.
 
-.
+ Dia bilang bahwa RUU anggaran tersebut "besar dan indah" tapi tidak bisa dua-duanya, kayak saya yang ingin punya banyak uang tapi tidak mau kerja keras 💸😴.
 
-.
+ Tapi serius, kepergian Musk ini seperti drama TV, banyak yang terkejut, banyak yang sedih, tapi banyak juga yang pensaran apa yang akan terjadi selanjutnya 🤔.
 
- atau buruk, tergantung dari sudut pandang Anda.
-
- Di satu sisi, kepergian Musk mungkin dapat menyelamatkan Amerika dari kehancuran akibat kebijakan anggaran yang tidak masuk akal.
-
- Tapi, di sisi lain, kita mungkin akan kehilangan kesempatan untuk melihat Musk dan Trump berdebat tentang siapa yang lebih baik dalam menggunakan Twitter.
-
- Secara serius, kepergian Musk dari DOGE mungkin akan mempengaruhi upaya pemangkasan anggaran dan birokrasi, tetapi juga berarti bahwa pemerintahan Trump akan kehilangan seorang tokoh yang relatif rasional di tengah-tengah kekacauan.
-
- Jadi, kita tunggu saja apa yang akan terjadi selanjutnya, dan berharap bahwa pemerintahan Trump tidak akan membuat keputusan yang lebih buruk tanpa Musk di dalamnya.
+ Jadi, siap-siap saja untuk melihat kabar lebih lanjut tentang DOGE dan pemerintahan Trump, karena ini bakal jadi tontonan yang seru 🍿! 🤣
