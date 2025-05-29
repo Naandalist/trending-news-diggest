@@ -53,28 +53,20 @@ Karena ijazahnya yang masih tertahan di perusahaan, Surasa dan sejumlah eks kary
 "Sampai sekarang belum dapat pekerjaan baru. Kita kan juga rugi. Setelah di-off kan sekarang saya (hidup) bergantung dengan anak," pungkasnya.
 
 ---
-Berikut adalah ringkasan berita dalam satu paragraf: Seorang mantan karyawan PT Tedmonindo Pratama Semesta di Sidoarjo, Surasa, mengaku bahwa ijazahnya telah ditahan oleh perusahaan tersebut sejak tahun 2012, atau selama 13 tahun.
+Berikut ringkasan berita dalam satu paragraf: Seorang eks karyawan PT Tedmonindo Pratama Semesta di Sidoarjo, Surasa, mengaku bahwa ijazahnya telah ditahan oleh perusahaan sejak tahun 2012 dan belum dikembalikan hingga saat ini.
 
- Ijazah tersebut ditahan sebagai jaminan ketika Surasa bekerja sebagai sekuriti di perusahaan tersebut.
+ Surasa bekerja sebagai sekuriti di perusahaan tersebut dan diminta menyerahkan ijazah sebagai jaminan untuk bekerja.
 
- Meskipun telah dipecat pada April 2025, Surasa belum berhasil mendapatkan kembali ijazahnya.
+ Setelah dipecat pada April 2025, Surasa meminta ijazahnya dikembalikan, tetapi perusahaan meminta dia menunggu hingga barang yang hilang ditemukan.
 
- Perusahaan meminta Surasa menunggu hingga barang yang hilang ditemukan, tetapi belum juga mengembalikan ijazahnya.
-
- Surasa dan beberapa mantan karyawan lainnya telah mengadu ke Dinas Ketenagakerjaan Provinsi dan Kabupaten serta Polres Sidoarjo.
+ Surasa dan eks karyawan lainnya telah mengadukan PT Tedmonindo Pratama Semesta ke Dinas Ketenagakerjaan Provinsi dan Kabupaten serta Polres Sidoarjo karena penahanan dokumen karyawan, termasuk ijazah dan SKCK.
 
 
 
-Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+Saya harus bilang, ini adalah contoh klasik dari "layanannya kurang, tapi biayanya tetap harus dibayar penuh" - dalam hal ini, biayanya adalah ijazah yang ditahan selama 13 tahun! PT Tedmonindo Pratama Semesta memang layak mendapat penghargaan sebagai "Perusahaan Paling Kreatif Dalam Menahan Dokumen Karyawan" tahun 2025.
 
- Sisi positifnya, PT Tedmonindo Pratama Semesta telah berhasil menciptakan program "penahanan ijazah" yang sangat efektif, sehingga karyawan tidak perlu khawatir tentang keamanan ijazah mereka.
+ Saya tidak tahu apa yang lebih menyedihkan, ijazah yang ditahan selama lebih dari satu dekade atau alasan perusahaan yang "kami sedang mencari pencuri, tapi tidak dengan tertulis".
 
- Namun, sisi negatifnya, perusahaan ini telah menunjukkan bahwa mereka lebih peduli dengan "jaminan" daripada dengan hak-hak karyawan.
+ Saya sarankan perusahaan ini untuk mengubah namanya menjadi "PT Tedmonindo Pratama Semesta: Tempat Ijazah Anda Aman Tapi Tidak Pernah Dikembalikan".
 
- Mereka bahkan meminta Surasa membuat surat resign untuk mendapatkan kembali ijazahnya, padahal ia sudah dipecat.
-
- Ini seperti perusahaan ingin mengatakan, "Kamu sudah tidak berguna bagi kami, tapi kami masih ingin menyimpan ijazahmu.
-
-" Sungguh, ini adalah contoh yang sangat baik dari "manajemen sumber daya manusia" yang buruk.
-
- Mari kita berharap bahwa Dinas Ketenagakerjaan Provinsi dan Kabupaten serta Polres Sidoarjo dapat segera menyelesaikan masalah ini dan mengembalikan ijazah Surasa, sehingga ia dapat melanjutkan hidupnya tanpa harus "bergantung" pada anaknya.
+ Ini memang contoh yang baik dari bagaimana cara menghancurkan reputasi perusahaan dengan satu tangan, sementara tangan lainnya masih memegang ijazah karyawan.
