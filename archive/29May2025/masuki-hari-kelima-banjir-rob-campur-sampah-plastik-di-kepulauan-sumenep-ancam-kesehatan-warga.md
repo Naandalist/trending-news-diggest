@@ -47,22 +47,50 @@ Ia mengingatkan bahwa genangan air yang bercampur dengan sampah sangat rentan me
 Hingga hari kelima banjir rob terjadi, Samsuri mengeklaim belum ada informasi mengenai warga yang jatuh sakit akibat banjir tahunan tersebut. \"Nanti saya tanya ke nakes di sana. Kalau ada, nanti bisa dirawat di pustu desa, kalau perlu bisa dirujuk ke Puskesmas,\" jelasnya.
 
 ---
-Banjir rob yang melanda tiga pulau di Desa Saobi, Kecamatan Kangayan, Kabupaten Sumenep, Jawa Timur, telah memasuki hari kelima dan kondisinya mulai mengancam kesehatan warga yang terdampak.
+Berikut ringkasan berita dalam satu paragraf: Banjir rob telah melanda tiga pulau di Desa Saobi, Kecamatan Kangayan, Kabupaten Sumenep, Jawa Timur, selama lima hari dan mulai mengancam kesehatan warga.
 
- Banjir rob yang terjadi setiap tahun ini bercampur dengan sampah plastik milik warga karena tidak adanya tempat pemrosesan akhir (TPA) sampah yang memadai di tiga pulau tersebut.
+ Banjir rob ini bercampur dengan sampah plastik yang tidak ada tempat pemrosesan akhir (TPA) yang memadai di daerah tersebut.
 
- Meskipun belum ada laporan warga yang jatuh sakit, aparat desa terus melakukan monitoring karena genangan air akibat banjir rob telah berlangsung cukup lama dan berpotensi menimbulkan penyakit seperti diare.
+ Sampah-sampah tersebut mengambang di sekitar pekarangan rumah dan jalan raya, bercampur dengan air banjir yang keruh dan berwarna kehitam-hitaman.
+
+ Meskipun belum ada laporan warga yang jatuh sakit, aparat desa terus melakukan monitoring karena genangan air yang berlangsung lama dapat menyebabkan penyakit.
 
 
 
-Sekarang, mari kita bicara tentang sisi positif dan negatif dari berita ini - atau lebih tepatnya, sisi negatif dan sangat negatif.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sindiran yang menyakitkan.
 
- Di satu sisi, kita bisa melihat bahwa warga Desa Saobi masih cukup sehat, setidaknya untuk saat ini.
+ Jadi, sisi positifnya adalah.
 
- Tapi, di sisi lain, kita memiliki banjir rob yang bercampur dengan sampah plastik, yang merupakan kombinasi yang sangat berbahaya untuk kesehatan masyarakat.
+.
 
- Ini seperti mencampur racun dengan racun, lalu menyajikannya sebagai "sup kesehatan" kepada warga.
+.
 
- Dan, tentu saja, pemerintah desa masih belum mendapatkan respons dari pihak yang berwenang, yang membuat kita bertanya-tanya: "Apa yang mereka lakukan sebenarnya?" Jadi, mari kita tunggu dan lihat bagaimana situasi ini akan berkembang, dan berharap bahwa tidak ada warga yang akan jatuh sakit akibat banjir rob ini.
+ hmm, sepertinya tidak ada sisi positif yang jelas di sini, kecuali mungkin warga Desa Saobi telah terlatih berjalan di atas air kotor dan sampah.
 
- Atau, setidaknya, mari kita berharap bahwa pemerintah akan segera mengambil tindakan untuk mengatasi masalah ini sebelum terlambat.
+ Tapi, serius saja, ini adalah bencana yang sangat serius dan memalukan.
+
+ Bagaimana bisa sebuah desa tidak memiliki tempat pemrosesan akhir sampah yang memadai? Ini seperti mengundang penyakit dan bencana lainnya.
+
+ Dan, apa yang dilakukan pemerintah desa? Mereka hanya melakukan monitoring dan berharap tidak ada yang jatuh sakit.
+
+ Wow, itu sangat mengagumkan.
+
+ Saya rasa mereka harus mendapatkan penghargaan untuk "Pemerintah Desa Paling Pasif" di Indonesia.
+
+ Sisi negatifnya adalah.
+
+.
+
+.
+
+ ya, hampir semua aspek dari berita ini.
+
+ Banjir rob, sampah, tidak ada TPA, warga yang terancam sakit.
+
+.
+
+.
+
+ ini adalah kombinasi yang sangat berbahaya dan memalukan.
+
+ Jadi, mari kita harapkan pemerintah desa dan pemerintah daerah segera mengambil tindakan nyata untuk menyelesaikan masalah ini, bukan hanya berpangku tangan dan berharap bahwa semuanya akan baik-baik saja.
