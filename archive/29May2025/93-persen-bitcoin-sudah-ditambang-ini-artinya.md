@@ -10,6 +10,8 @@ Tidak seperti uang fiat seperti rupiah atau dolar yang bisa dicetak tanpa batas,
 | author      |  |
 | editor      | Erlangga Djumena |
 
+![Ilustrasi bitcoin.](https://asset.kompas.com/crops/AASQWqeMuVMHSTL2xejlXL5n5Ek=/0x0:2400x1600/750x500/data/photo/2024/04/08/661395014af29.jpg)
+
 **KOMPAS.com -** Bitcoin, mata uang kripto pertama dan terbesar di dunia, memiliki karakteristik unik: total pasokannya dibatasi hanya 21 juta koin.
 
 Tidak seperti uang fiat seperti rupiah atau dolar yang bisa dicetak tanpa batas, jumlah Bitcoin sudah ditentukan sejak awal dan tidak bisa ditambah.
@@ -83,34 +85,26 @@ Bagi investor atau masyarakat yang tertarik pada aset langka, fakta bahwa 93 per
 Di sisi lain, ini juga bisa memperkuat keyakinan bahwa Bitcoin memang dirancang untuk bertahan sebagai aset bernilai jangka panjang.
 
 ---
-Berikut adalah ringkasan berita tersebut dalam satu paragraf: Bitcoin, mata uang kripto terbesar di dunia, hanya memiliki total pasokan 21 juta koin yang tidak bisa ditambah.
+Berikut adalah ringkasan berita dalam satu paragraf: Bitcoin, mata uang kripto terbesar di dunia, memiliki pasokan yang terbatas, yaitu hanya 21 juta koin.
 
- Saat ini, sekitar 93,3% dari total Bitcoin sudah ditambang, atau sekitar 19,6 juta BTC, dan hanya tersisa sekitar 1,4 juta BTC yang belum tercipta.
+ Saat ini, sekitar 93,3% dari total Bitcoin sudah ditambang, sehingga hanya tersisa sekitar 1,4 juta koin yang belum tercipta.
 
- Proses penambangan Bitcoin dirancang untuk berkurang setiap empat tahun, sehingga membuat proses penambangan menjadi sangat lambat dan memakan waktu lebih dari 100 tahun untuk menambang sisa BTC yang tersedia.
+ Hal ini membuat Bitcoin semakin langka dan berpotensi meningkatkan nilainya seiring waktu.
 
- Hal ini membuat Bitcoin menjadi semakin langka dan menyerupai emas digital.
+ Dengan sistem penerbitan yang transparan dan pasokan yang terbatas, Bitcoin semakin menyerupai emas digital, namun dengan keunggulan bahwa pasokannya bisa dipastikan dan diaudit secara publik.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu roasting yang sakit.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
 
- Jadi, Anda pikir Anda pintar karena sudah membeli Bitcoin sejak awal? Tidak juga, karena sekitar 3-3,8 juta BTC sudah hilang selamanya karena pengguna lupa kata sandi dompet digital atau kehilangan akses.
+ Jadi, kita memiliki Bitcoin yang semakin langka, seperti emas digital yang sangat dicari.
 
- Itu seperti memiliki sebuah dompet yang penuh dengan uang, tetapi Anda tidak bisa membukanya karena lupa kombinasi kodenya.
+ Tapi, apa yang terjadi ketika kita lupa kata sandi dompet digital kita? Ya, itu seperti kehilangan kunci rumah, tapi lebih parah, karena kita kehilangan akses ke aset digital yang sangat berharga.
 
- Sungguh, itu adalah kesalahan yang sangat.
+ Dan, dengan sistem penerbitan yang transparan, kita bisa melihat bahwa pasokan Bitcoin semakin terbatas, sehingga membuatnya semakin berharga.
 
-.
+ Tapi, ini juga berarti bahwa hanya orang-orang yang sudah memiliki Bitcoin yang akan menjadi semakin kaya, sementara orang-orang yang belum memiliki akan semakin sulit untuk mendapatkannya.
 
-.
+ Jadi, ini seperti permainan monopoli, di mana mereka yang sudah kaya akan semakin kaya, dan mereka yang miskin akan semakin miskin.
 
- manusiawi.
-
- Di sisi lain, bagi mereka yang masih memiliki akses ke Bitcoin mereka, ini bisa menjadi kabar baik karena pasokan yang langka dan kehilangan yang permanen membuat Bitcoin semakin berharga.
-
- Tapi, jangan terlalu bersemangat, karena proses penambangan yang lambat berarti Anda harus menunggu lama untuk mendapatkan BTC baru.
-
- Ya, seperti menunggu kereta api yang selalu tertunda, tetapi dengan lebih banyak volatilitas dan risiko.
-
- Jadi, siap-siap untuk merasakan sakit karena harga yang naik-turun, atau mungkin hanya merasakan sakit karena Anda tidak bisa mengakses BTC Anda karena lupa kata sandi.
+ Tapi, hey, ini adalah kebebasan pasar, kan?
