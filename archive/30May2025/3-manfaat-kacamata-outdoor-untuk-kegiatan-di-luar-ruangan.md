@@ -57,18 +57,24 @@ Kacamata dengan jenis ini sengaja didesain untuk meningkatkan kenyamanan penggun
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan berita tersebut: Kacamata *outdoor* digunakan oleh para *traveler* untuk melindungi mata dari paparan sinar matahari dan menyilaukan.
+Berikut adalah ringkasan berita dalam satu paragraf: Kacamata *outdoor* telah menjadi pilihan favorit bagi para *traveler* yang sering mengunjungi pantai atau gunung.
 
- Kacamata ini memiliki tiga manfaat utama, yaitu melindungi mata dari paparan sinar UV, mengurangi silau saat berkegiatan, dan nyaman digunakan.
+ Tidak hanya sebagai pelengkap gaya, kacamata jenis ini juga memiliki fungsi penting untuk menjaga kesehatan mata.
 
- Hal ini menjadikan kacamata *outdoor* sebagai pilihan yang tepat untuk aktivitas di luar ruangan.
+ Bertha Hapsari, Vice President Communication EYE SOUL, menjelaskan bahwa kacamata *outdoor* memiliki tiga manfaat utama, yaitu melindungi mata dari paparan sinar matahari, mengurangi silau saat berkegiatan, dan nyaman digunakan untuk aktivitas sehari-hari.
+
+ Dengan menggunakan *UV protection*, kacamata *outdoor* dapat menangkal sinar ultraviolet hingga 100 persen dan mencegah kerusakan mata jangka panjang.
 
 
 
-Nah, sekarang mari kita bahas sisi positif dan negatif dari kacamata *outdoor* ini 😎.
+Sekarang, mari kita lihat sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
 
- Jadi, sisi positifnya adalah kita bisa terlihat keren seperti *influencer* traveller 📸, sambil melindungi mata dari sinar UV yang jahat 🌞.
+ Jadi, kacamata *outdoor* adalah penyelamat bagi mata kita dari paparan sinar matahari yang kejam.
 
- Tapi, sisi negatifnya adalah kita harus merogoh kocek yang cukup dalam untuk membeli kacamata *outdoor* yang bagus 💸, dan jika tidak berhati-hati, kita bisa terlihat seperti *hipster* yangnorak 🤣.
+ Tapi, jangan lupa bahwa kacamata *outdoor* juga dapat membuat kita terlihat seperti turis yang tidak tahu malu, dengan gaya yang keterlaluan dan harga yang membuat kita harus mengambil pinjaman bank.
 
- Jadi, kita harus bijak dalam memilih kacamata *outdoor* yang tepat untuk kebutuhan kita, agar tidak terlihat seperti orang yang tidak tahu fashion 😂.
+ Di sisi lain, kacamata *outdoor* juga dapat membuat kita merasa seperti atlet profesional, dengan lensa *photochromic* yang dapat menyesuaikan tingkat kegelapan dan membuat kita terlihat seperti superhero.
+
+ Tapi, apa yang terjadi jika kita lupa menggunakan kacamata *outdoor* dan mata kita terkena paparan sinar matahari langsung? Ya, kita akan menjadi seperti zombie yang buta dan berjalan secara acak di jalan.
+
+ Jadi, jangan lupa untuk selalu menggunakan kacamata *outdoor* jika tidak ingin menjadi korban kejam dari sinar matahari!
