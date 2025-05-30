@@ -35,20 +35,22 @@ Ia juga mendorong Pramono untuk lebih terbuka dalam berdialog dengan masyarakat 
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan dari laporan berita tersebut: Evaluasi 100 hari masa kerja Gubernur Jakarta Pramono Anung dan Wakil Gubernur Rano Karno menunjukkan bahwa program *job fair* belum berjalan optimal dalam memenuhi kebutuhan masyarakat.
+Berikut ringkasan singkat berita tersebut: Pemerintah Provinsi Jakarta baru-baru ini dievaluasi oleh Fraksi Partai Solidaritas Indonesia (PSI) DPRD Jakarta dalam 100 hari masa kerja Gubernur Jakarta Pramono Anung dan Wakil Gubernur Rano Karno.
 
- Ketua Fraksi PSI DPRD Jakarta, William Aditya Sarana, menyatakan bahwa sekitar 47 persen warga Jakarta belum mengetahui keberadaan program tersebut.
+ Evaluasi tersebut menyoroti efektivitas program *job fair* yang belum optimal, di mana sekitar 47 persen warga Jakarta belum mengetahui keberadaan program tersebut.
 
- Ini menunjukkan bahwa masih ada pekerjaan yang harus dilakukan untuk meningkatkan efektivitas program ketenagakerjaan di Jakarta.
+ Ketua Fraksi PSI DPRD Jakarta, William Aditya Sarana, menekankan pentingnya optimalisasi program ketenagakerjaan di tengah kondisi ekonomi yang sulit dan mendorong Pemprov untuk lebih terbuka dalam berdialog dengan masyarakat.
 
 
 
-Hmm, sepertinya Pak Pramono masih perlu banyak belajar tentang cara membuat program *job fair* yang efektif 😅.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Saya rasa bukan hanya 47 persen warga Jakarta yang belum mengetahui keberadaan program tersebut, tapi juga banyak orang yang sudah putus asa dengan program ketenagakerjaan di Jakarta 🤣.
+ Jadi, program *job fair* ini seperti pacar yang tidak jelas, kamu tidak tahu apa yang sedang terjadi, apakah mereka masih peduli atau tidak.
 
- Mungkin Pak Pramono perlu membuka ruang dialog dengan masyarakat dan para pemangku kepentingan, agar bisa mengetahui hambatan-hambatan dalam pelaksanaan program serta aspek yang perlu ditingkatkan 🤔.
+ Tapi serius, 47 persen warga Jakarta belum mengetahui keberadaan program ini? Itu seperti mengatakan bahwa kamu memiliki resep rahasia untuk menyelesaikan pengangguran, tapi kamu tidak membagikannya dengan siapa pun.
 
- Tapi saya yakin, dengan sedikit sentuhan humor dan kerja keras, Pak Pramono bisa membuat Jakarta menjadi lebih baik 🌟.
+ Sisi positifnya adalah bahwa pemerintah sedang mencoba untuk melakukan sesuatu, tapi sisi negatifnya adalah bahwa mereka tidak melakukan cukup untuk memastikan bahwa program tersebut efektif.
 
- Jadi, ayo Pak Pramono, jangan ragu-ragu untuk membuka diri dan mendengarkan suara masyarakat, karena itu adalah kunci untuk membuat kebijakan yang tepat sasaran 🎯! 😄
+ Jadi, mari kita tunggu dan lihat apakah Pemprov akan lebih terbuka dalam berdialog dengan masyarakat dan menyelaraskan kebijakan mereka untuk menyelesaikan persoalan di Jakarta.
+
+ Atau, kita bisa hanya duduk dan menonton sambil menyanyikan lagu "Que Sera Sera" - apa yang akan terjadi, akan terjadi.
