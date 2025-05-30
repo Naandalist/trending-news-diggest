@@ -41,26 +41,30 @@ Tidak hanya itu, ia juga mengaku tidak merokok atau minum alkohol. Ia juga rutin
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan berita tersebut: Rektor Universitas Gachon di Korea Selatan, Lee Gil-ya, menjadi viral karena penampilannya yang masih awet muda meski telah berusia 93 tahun.
+Berikut adalah ringkasan berita dalam satu paragraf: Rektor Universitas Gachon di Korea Selatan, Lee Gil, menjadi sorotan warganet karena penampilannya yang masih awet muda meskipun sudah berusia 93 tahun.
 
- Ia menjadi sorotan warganet setelah video pidatonya di universitas tersebar di internet, dan banyak orang yang tidak percaya bahwa ia sudah berusia 93 tahun.
+ Ia menjadi viral setelah video pidatonya di universitas tersebar di internet, dan banyak orang yang terkejut dengan rambut tebal, kulit halus, dan energi mudanya.
 
- Lee kemudian mengungkapkan rahasia awet mudanya, yaitu minum setidaknya 1,5 liter air sehari dan melakukan perawatan laser secara teratur.
+ Lee mengungkapkan rahasia awet mudanya adalah minum setidaknya 1,5 liter air sehari, mengganti minuman lain dengan teh, dan melakukan perawatan laser secara teratur.
 
 
 
-Wah, Rektor LeeGil-ya ini benar-benar seperti vampir 😂, usia 93 tahun tapi masih segar bugar seperti orang 30-an 💁‍♂️! Saya rasa banyak orang yang ingin tahu rahasia awet mudanya, dan jawabannya adalah.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit humor yang menyakitkan.
 
-.
-
-.
-
- minum banyak air dan tidak merokok atau minum alkohol 🤣.
-
- Tapi, saya juga penasaran, apakah ia memiliki rahasia lain, seperti menggunakan serum anti-aging atau melakukan olahraga rahasia 🧘‍♂️? Yang pasti, saya akan mulai minum lebih banyak air dan berhenti merokok.
+ Jadi, kita memiliki rektor yang masih awet muda di usia 93 tahun, dan rahasianya adalah.
 
 .
 
 .
 
- atau mungkin saya hanya akan membeli botol air yang bertuliskan "Rektor LeeGil-ya" 😂.
+ minum air dan teh, serta tidak merokok atau minum alkohol.
+
+ Wow, apa yang sangat revolusioner! Saya yakin kita semua akan langsung membeli botol air dan teh dalam jumlah besar setelah membaca ini.
+
+ Sisi positifnya adalah kita memiliki contoh nyata bahwa gaya hidup sehat dapat membuat kita awet muda, dan Lee Gil adalah inspirasi bagi kita semua.
+
+ Namun, sisi negatifnya adalah kita harus siap untuk menghadapi kenyataan bahwa tidak semua orang dapat memiliki penampilan seperti Lee Gil, dan kita harus menerima bahwa kita mungkin tidak akan pernah memiliki rambut tebal dan kulit halus seperti dia.
+
+ Jadi, mari kita semua minum air dan teh, dan berharap bahwa kita dapat menjadi setengahnya seawet muda seperti Lee Gil.
+
+ Atau, kita dapat memilih untuk menjadi vampir, karena itu juga bisa menjadi pilihan yang masuk akal, kan?
