@@ -33,20 +33,16 @@ Ia juga mendorong Pramono terus berdialog dengan masyarakat dan pemangku kepenti
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan dari laporan berita: Ketua Fraksi Partai Solidaritas Indonesia (PSI) DPRD Jakarta, William Aditya Sarana, mengapresiasi program 100 hari kepemimpinan Gubernur dan Wakil Gubernur Jakarta, terutama kebijakan transportasi gratis untuk 15 golongan masyarakat.
+Berikut adalah ringkasan satu paragraf dari laporan berita tersebut: Ketua Fraksi Partai Solidaritas Indonesia (PSI) DPRD Jakarta, William Aditya Sarana, memberikan apresiasi atas capaian 100 hari kepemimpinan Gubernur dan Wakil Gubernur Jakarta, Pramono Anung dan Rano Karno.
 
- Program ini dinilai berhasil dan berdampak positif bagi warga.
+ Salah satu program yang dianggap berhasil adalah kebijakan transportasi gratis untuk 15 golongan masyarakat.
 
- Namun, William juga menyarankan evaluasi program lainnya, seperti penyelenggaraan *job fair*, yang belum diketahui oleh sekitar 47% warga Jakarta.
+ Namun, William juga menilai bahwa masih ada beberapa program yang perlu dievaluasi, seperti penyelenggaraan *job fair* yang belum banyak diketahui oleh warga Jakarta, sehingga Pemprov Jakarta perlu memperkuat sosialisasi dan evaluasi untuk meningkatkan efektivitas program tersebut.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu humor 😂.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit guyonan yang menyakitkan.
 
- Jadi, program transportasi gratis itu kayak pacar yang baik, selalu membawa kita ke tempat tujuan dengan gratis 🚂💕.
+ Jadi, kebijakan transportasi gratis itu kayaknya sebuah keputusan yang sangat bijak, karena siapa yang tidak suka gratisan, kan? Tapi, *job fair* yang belum banyak diketahui oleh warga Jakarta itu kayaknya sebuah indikasi bahwa Pemprov Jakarta perlu memperkuat sosialisasi dan evaluasi, atau mungkin mereka hanya perlu memperbanyak promosi di media sosial, karena itu yang paling efektif untuk meningkatkan kesadaran masyarakat, bukan? Dan, saya juga ingin menanyakan, apa yang sebenarnya dilakukan oleh 47 persen warga Jakarta yang belum mengetahui *job fair* tersebut? Apakah mereka sedang sibuk bermain game online atau hanya menunggu gratisan lainnya? Sekarang, serius saja, jika Pemprov Jakarta ingin meningkatkan efektivitas program mereka, mereka perlu lebih transparan dan akuntabel, serta memperkuat dialog dengan masyarakat dan pemangku kepentingan.
 
- Tapi, *job fair* itu kayak pacar yang lupa kita ada, 47% warga Jakarta kayak "siapa sih *job fair*?" 🤔.
-
- William Aditya Sarana kayak "ey, Pramono, kamu harus evaluasi programmu, jangan kayak pacar yang pelit informasi" 😂.
-
- Jadi, semoga Pemprov Jakarta bisa memperbaiki programnya dan membuat warga Jakarta lebih bahagia 😊.
+ Kalau tidak, kita hanya akan melihat janji-janji manis yang tidak dapat dipenuhi, dan itu akan sangat menyakitkan, bukan?
