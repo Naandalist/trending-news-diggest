@@ -52,13 +52,19 @@ Ia juga bersyukur karena jerih payahnya selama bertahun-tahun membuahkan hasil, 
 ---
 ## Ringkasan
 
-Berita terbaru dari Semarang, Jawa Tengah, mengungkapkan bahwa stok hewan ternak untuk kurban pada hari raya Idul Adha 2025 telah melebihi kebutuhan, dengan total 547.
+Berikut adalah ringkasan berita dalam satu paragraf: Pemerintah Provinsi Jawa Tengah melalui Dinas Peternakan dan Kesehatan Hewan (Disnakkeswan) mengumumkan bahwa stok hewan ternak untuk kurban Idul Adha 2025 melebihi kebutuhan.
 
-590 ekor hewan kurban yang akan dipotong.
+ Total hewan kurban yang diperkirakan akan dipotong mencapai 547.
 
- Perputaran uang dari hewan ternak yang disembelih tahun ini diperkirakan akan mencapai Rp 5,4 triliun.
+590 ekor, terdiri dari sapi, kerbau, kambing, dan domba.
 
- Ketersediaan hewan kurban telah melebihi jumlah kebutuhan di puluhan kabupaten/kota, dengan harga ternak sapi dan kerbau berada pada kisaran Rp 25.
+ Perputaran uang dari hewan ternak yang disembelih diperkirakan akan mencapai Rp 5,4 triliun.
+
+ Harga ternak sapi dan kerbau berada pada kisaran Rp 25.
+
+000.
+
+000 per ekor, sedangkan harga ternak kambing dan domba sekitar Rp 4.
 
 000.
 
@@ -66,10 +72,10 @@ Berita terbaru dari Semarang, Jawa Tengah, mengungkapkan bahwa stok hewan ternak
 
 
 
-Wah, Rp 5,4 triliun itu bukanlah jumlah yang kecil, bro! 🤑 Namun, saya harus bertanya, apakah kita akan menggunakan uang itu untuk membeli nasi goreng dan es teh manis setelah kurban? 🍴😂 Saya pikir tidak, karena kita harus menggunakan uang itu untuk memajukan peternakan di Jawa Tengah.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Tapi, saya salut dengan peternak sapi lokal seperti Junianto yang berhasil menjual sapi-sapinya tanpa menggunakan kandang besar dan peralatan canggih.
+ Jadi, sisi positifnya adalah bahwa peternak lokal bisa mendapat penghasilan yang lumayan dari penjualan hewan kurban, dan sapi lokal yang lebih terjangkau harganya menjadi pilihan favorit.
 
- Ini membuktikan bahwa kesabaran dan ketelatenan masih bisa menghasilkan hasil yang maksimal! 🙌 Namun, saya juga harus roast para peternak yang menjual sapi simental dengan harga Rp 30 juta lebih, kayaknya mereka ingin membuat kita semua menjadi kurban keuangan 😂.
+ Namun, sisi negatifnya adalah bahwa kita masih terpaku pada tradisi kurban yang konsumtif dan boros, serta belum mempertimbangkan dampak lingkungan dan kesejahteraan hewan.
 
- Jadi, mari kita dukung peternak lokal dan beli sapi lokal, karena harga yang lebih terjangkau dan kualitas yang tidak kalah dengan sapi simental! 🐮💪
+ Mari kita jadikan ini sebagai refleksi untuk memikirkan tentang konsumsi dan keberlanjutan yang lebih baik, atau minimal kita bisa menggunakan dana Rp 5,4 triliun untuk membiayai program literasi dan pendidikan yang lebih baik, sehingga kita tidak hanya sibuk membahas tentang harga sapi dan kambing, tapi juga tentang masa depan yang lebih cerah untuk Indonesia.
