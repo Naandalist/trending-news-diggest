@@ -79,24 +79,30 @@ Kebiasaan mencuci tangan atau membersihkan wajah terlalu sering dengan sabun yan
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan berita dalam satu paragraf: Pemilik kulit sensitif sering mengeluhkan kondisi kulitnya yang rentan terhadap iritasi dan kemerahan.
+Berikut adalah ringkasan berita dalam satu paragraf: Pemilik kulit sensitif sering mengalami iritasi dan kemerahan pada kulit mereka.
 
  Menurut dr.
 
- Hanny Nilasari, kulit sensitif adalah kondisi ketika kulit bereaksi berlebihan terhadap berbagai zat atau faktor lingkungan.
+ Hanny Nilasari, President of Indonesian Society of Dermatology and Venereology (ISDV), kulit sensitif adalah kondisi ketika kulit bereaksi berlebihan terhadap berbagai zat atau faktor lingkungan.
 
- Faktor-faktor seperti mandi dengan air panas terlalu lama, tidak cocok dengan sabun, terganggunya *skin barrier*, gangguan pada saraf kulit, dan terlalu sering terkena gesekan dapat menyebabkan kulit menjadi sensitif.
+ Beberapa penyebab kulit sensitif antara lain mandi dengan air panas terlalu lama, tidak cocok dengan sabun, terganggunya skin barrier, gangguan pada saraf kulit, dan terlalu sering terkena gesekan.
+
+ Oleh karena itu, penting untuk berhati-hati dalam merawat kulit sensitif dan menghindari faktor-faktor yang dapat memperparah kondisi kulit.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu humor 🤣.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, kalau kamu memiliki kulit sensitif, jangan salahkan genetikmu dulu, mungkin kamu terlalu suka mandi air panas atau pakai sabun yang salah 🚿.
+ Sisi positifnya adalah bahwa kita memiliki ahli kulit yang baik seperti dr.
 
- Atau mungkin kamu terlalu keras dalam merawat kulitmu, seperti mencuci tangan terlalu sering 🚿.
+ Hanny Nilasari yang dapat memberikan informasi yang berguna tentang kulit sensitif.
 
- Tapi jangan khawatir, karena sekarang kamu tahu apa penyebabnya, kamu bisa mulai merawat kulitmu dengan lebih baik 🌸.
+ Namun, sisi negatifnya adalah bahwa kita masih banyak yang tidak peduli dengan kesehatan kulit kita sendiri.
 
- Tapi, kalau kamu masih saja tidak peduli dengan kulitmu, maka kamu akan terus merasakan perih dan gatal 🤯.
+ Kita masih suka mandi dengan air panas terlalu lama, menggunakan sabun yang tidak cocok, dan menggaruk area yang gatal secara berulang.
 
- Jadi, ayo kita jaga kulit kita dengan baik, agar kita bisa tampil percaya diri dan tidak merasa seperti kulit kita sedang berperang 🤣! 💁‍♀️👍
+ Ini seperti kita sengaja ingin membuat kulit kita menjadi sensitif dan meradang.
+
+ Bahkan, kita bisa membuat kulit kita menjadi seperti "tameng" yang terus-menerus diserang oleh iritasi dan kemerahan.
+
+ Jadi, mari kita ambil pelajaran dari berita ini dan mulai merawat kulit kita dengan lebih baik, sebelum kita menjadi korban dari kulit sensitif yang tidak terkendali.
