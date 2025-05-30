@@ -49,18 +49,20 @@ Dengan dibukanya kembali akses ke archive.org, Kementerian Komdigi mengimbau mas
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan dari laporan berita tersebut: Situs Internet Archive sempat diblokir oleh Kementerian Komunikasi dan Digital (Kemenkomdigi) karena mengandung konten judi online dan pornografi yang bertentangan dengan UU tentang Informasi dan Transaksi Elektronik (UU ITE).
+Berikut adalah ringkasan singkat dari laporan berita tersebut: Situs Internet Archive, sebuah lembaga pengarsipan data digital, sempat diblokir oleh Kementerian Komunikasi dan Informatika (Kemenkomdigi) karena mengandung konten judi online dan pornografi yang melanggar UU Informasi dan Transaksi Elektronik (UU ITE).
 
- Internet Archive adalah lembaga yang bergerak dalam bidang pengarsipan data digital yang tersebar di internet.
+ Namun, setelah Internet Archive menurunkan konten negatif tersebut, Kemenkomdigi membuka blokir situs tersebut kembali.
 
- Setelah melakukan evaluasi, Kemenkomdigi membuka blokir terhadap Internet Archive karena situs tersebut telah menurunkan konten negatifnya.
+ Internet Archive merupakan sebuah lembaga yang bergerak dalam bidang pengarsipan data digital, termasuk buku, teks, audio, video, perangkat lunak, dan gambar, serta terkenal dengan layanan Wayback Machine yang menyediakan riwayat versi situs web yang telah diarsipkan.
 
 
 
-Wow, itu cepat juga diblokir dan dibuka lagi, kayak hubungan saya dengan pacar saya dulu 😂.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, ada dua sisi dari informasi ini, yang positif adalah bahwa Kemenkomdigi serius dalam menertibkan konten yang merusak dan melindungi industri kreatif nasional dari pembajakan digital 🙌.
+ Ya, kita harus bersyukur bahwa Kemenkomdigi telah melakukan tindakan yang tegas terhadap konten negatif, tetapi apakah itu cukup? Apakah kita tidak harus bertanya-tanya mengapa konten tersebut bisa ada di sana dari awal? Dan apa yang akan terjadi jika Internet Archive tidak menurunkan konten negatif tersebut? Apakah kita akan terus diblokir dari akses informasi yang berguna hanya karena beberapa konten yang tidak pantas? Ini seperti kita dihukum karena salah satu teman kita nakal, padahal kita sendiri tidak melakukan apa-apa.
 
- Tapi, sisi negatifnya adalah bahwa kita harus siap-siap kena sensor dan kebebasan berekspresi kita mungkin akan terganggu 🤣.
+ Tapi, kita harus mengakui bahwa Kemenkomdigi telah melakukan langkah yang baik dengan membuka blokir situs tersebut setelah konten negatif diturunkan.
 
- Makin parah, kayaknya Kemenkomdigi ingin menjadi "polisi internet" yang super ketat, sehingga kita harus berhati-hati saat browsing di internet, jangan sampai kita tertangkap basah oleh "polisi" 👮‍♂️😂.
+ Jadi, mari kita tetap bijak dalam menggunakan layanan digital dan melaporkan konten yang melanggar, agar kita tidak kehilangan akses informasi yang berguna lagi.
+
+ Dan juga, mari kita berharap bahwa Kemenkomdigi akan terus melakukan tindakan yang tegas terhadap konten negatif, tetapi juga tidak terlalu gegabah dalam melakukan blokir.
