@@ -37,22 +37,18 @@ Budi menyampaikan, penampakan gumpalan awan dan kilatan petir tersebut berasal d
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan berita dalam satu paragraf: Badan Meteorologi, Klimatologi, dan Geofisika (BMKG) Stasiun Meteorologi Dhoho Kediri menjelaskan bahwa gumpalan awan dan petir yang terlihat di atas Gunung Kelud, Kediri, Jawa Timur, bukanlah akibat letusan gunung, melainkan pertumbuhan awan konvektif *cumulonimbus* yang menyebabkan adanya petir.
+Berikut adalah ringkasan berita dalam satu paragraf: Beredarnya video gumpalan awan dan petir di atas Gunung Kelud, Kediri, Jawa Timur, membuat heboh publik di media sosial, tetapi Badan Meteorologi, Klimatologi, dan Geofisika (BMKG) menjelaskan bahwa fenomena tersebut hanya merupakan pertumbuhan awan konvektif *cumulonimbus* yang menyebabkan adanya petir, dan tidak ada peningkatan vulkanik pada Gunung Kelud.
 
- Pihak BMKG telah berkoordinasi dengan Pusat Vulkanologi dan Mitigasi Bencana Geologi dan memastikan tidak ada peningkatan vulkanik pada Gunung Kelud.
-
- Kondisi gunung masih aman dan dalam keadaan normal atau level 1.
+ Kepala BMKG Stasiun Meteorologi Dhoho Kediri, Lukman, menjelaskan bahwa posisi awan tersebut berada di wilayah sekitar Kecamatan Kandangan, dan pihaknya telah berkoordinasi dengan Pusat Vulkanologi dan Mitigasi Bencana Geologi untuk memastikan keamanan Gunung Kelud.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit humor 😂.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, sisi positifnya adalah bahwa Gunung Kelud masih aman dan tidak meletus, sehingga kita tidak perlu panik dan berlari-lari seperti ayam yang kehilangan kepala 🐓😂.
+ Sisi positifnya, kita memiliki BMKG yang sigap dalam memberikan penjelasan tentang fenomena alam, sehingga kita tidak perlu panik dan berlari ke gunung sambil membawa tas evakuasi.
 
- Tapi, sisi negatifnya adalah bahwa banyak orang yang terlalu cepat menyimpulkan dan menyebarkan hoaks tentang letusan gunung, membuat kita semua menjadi seperti korban *prank* besar 🤣.
+ Tapi, sisi negatifnya, kita masih memiliki orang-orang yang suka menyebarkan hoaks dan membuat heboh di media sosial, sehingga kita perlu memeriksa informasi sebelum membagikannya.
 
- Mari kita belajar untuk tidak terlalu cepat percaya pada berita yang belum terverifikasi, dan jangan menjadi seperti *troll* yang menyebarkan kepanikan 😜.
+ Dan, tentu saja, kita tidak bisa melupakan betapa lucunya ketika orang-orang berlari ke gunung sambil membawa tas evakuasi, hanya karena mereka tidak tahu apa-apa tentang cuaca.
 
- Bahkan, BMKG harus bekerja ekstra untuk membantah hoaks tersebut, seperti mereka sedang bermain *game* "debunking hoax" 🎮😂.
-
- Jadi, mari kita semua menjadi lebih bijak dan tidak mudah terpengaruh oleh berita yang belum jelas 🙏!
+ Jadi, mari kita semua berusaha menjadi lebih bijak dan tidak terlalu cepat percaya pada hoaks, agar kita tidak menjadi bahan ejekan di media sosial.
