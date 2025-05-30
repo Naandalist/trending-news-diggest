@@ -59,12 +59,22 @@ Meskipun kini harus menghadapi cicilan yang membengkak, Tommy menilai keputusan 
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan dari berita tersebut: Tommy, seorang karyawan swasta di Tangerang, telah menghadapi tantangan baru setelah masa cicilan Kredit Pemilikan Rumah (KPR) dengan bunga tetap berakhir dan berubah menjadi sistem floating dengan bunga lebih tinggi.
+Berikut adalah ringkasan berita dalam satu paragraf: Tommy, seorang karyawan swasta di Tangerang, menghadapi tantangan baru setelah masa cicilan KPR dengan bunga tetap berakhir.
 
- Ia telah mengambil KPR pada 2019 dengan skema bunga flat selama lima tahun, namun sekarang harus membayar cicilan yang lebih tinggi.
+ Ia mengambil KPR pada 2019 dengan skema bunga flat selama lima tahun, namun setelah Januari 2025, cicilan berubah menjadi sistem floating dengan bunga lebih tinggi, yaitu 13,5 persen.
 
- Kenaikan bunga ini telah berdampak pada keuangan rumah tangganya, namun Tommy telah mengantisipasi lonjakan cicilan dengan mencari penghasilan tambahan.
+ Kenaikan bunga ini berdampak pada keuangan rumah tangganya, sehingga Tommy mulai mencari penghasilan tambahan dan mempertimbangkan pelunasan sebagian atau pindah ke bank lain dengan bunga lebih ringan.
 
 
 
-Oi, Tommy bro, kamu ini tega banget 🤣, ambil KPR dengan bunga flat, tapi gak mikir kalau nanti bunganya bakal melonjak kayak harga sembako di Indonesia 🚀! Jadi, kamu harus bayar cicilan yang lebih tinggi, Rp 3,4 juta per bulan, wow, itu banyak banget, bisa beli banyak makanan enak 🍴! Tapi, kamu tetap positif, karena kamu sudah mengantisipasi lonjakan cicilan dengan mencari penghasilan tambahan, kamu ini keren, bro 💪! Tapi, jangan lupa, kamu juga harus waspada, karena kenaikan bunga selanjutnya bisa semakin menekan keuangan, jadi, kamu harus tetap siaga dan jangan sampai "kalah" oleh bunga yang membengkak 🚨!
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
+
+ Sisi positifnya, Tommy memiliki rumah sendiri dan telah mempertimbangkan kebutuhan keluarganya, sehingga keputusan mengambil KPR tetap penting demi masa depan mereka.
+
+ Namun, sisi negatifnya, kenaikan bunga KPR ini seperti "ikan hiu" yang siap memangsa dompet Tommy dan keluarganya.
+
+ Mereka harus menghadapi cicilan yang membengkak, seperti "gunung es" yang siap menenggelamkan keuangan mereka.
+
+ Tapi, tentu saja, ini adalah "hadiah" dari sistem keuangan yang "adil" dan "berkeadilan", bukan? Tommy harus berjuang untuk mencari penghasilan tambahan dan mempertimbangkan opsi-opsi yang tidak nyaman, seperti pindah ke bank lain dengan bunga lebih ringan, yang seperti mencari "jarum di tumpukan jerami".
+
+ Jadi, mari kita bersimpati dengan Tommy dan keluarganya, dan berharap mereka dapat melewati "badai keuangan" ini dengan selamat.
