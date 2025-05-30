@@ -65,18 +65,26 @@ Dua bulan kemudian, Ye dapat kembali berbicara. Terima kasih adalah kata pertama
 ---
 ## Ringkasan
 
-Berikut ringkasan dari laporan berita tersebut: Seorang pria China bernama Deng Youcai (30) mengundurkan diri dari pekerjaannya untuk merawat istrinya, Ye Meidi, yang menderita kanker otak dan berada dalam kondisi vegetatif.
+Berikut adalah rangkuman singkat berita tersebut dalam satu paragraf: Seorang pria bernama Deng Youcai (30) di China rela mengundurkan diri dari pekerjaannya untuk merawat istrinya, Ye Meidi, yang menderita kanker otak glioma.
 
- Youcai setiap hari bernyanyi dan menari untuk menghibur istrinya dan juga mengurus putri mereka yang masih balita.
+ Ye telah lama didiagnosis dengan penyakit tersebut dan akhirnya jatuh dalam kondisi vegetatif.
 
- Keluarga kecil ini tinggal di provinsi Guangxi, China selatan.
+ Youcai tidak hanya merawat istrinya dengan penuh kasih, tetapi juga mengurus putri mereka yang masih balita.
+
+ Meskipun menghadapi kesulitan keuangan, Youcai tetap bersikeras menyelamatkan istrinya dan menghabiskan uang sebanyak Rp 4 miliar untuk biaya pengobatan.
 
 
 
-Nah, sekarang giliran saya untuk memberikan komentar yang pedas dan menyelipkan beberapa lelucon 🤣.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang pedih.
 
- Jadi, ada pria ini yang rela meninggalkan pekerjaannya untuk merawat istri yang sedang sakit parah, dan itu sangat mengharukan 🙏.
+ Di satu sisi, kita melihat cinta yang sangat dalam dan pengorbanan yang luar biasa dari Youcai untuk istrinya.
 
- Tapi, saya juga bertanya-tanya, apa yang terjadi jika saya melakukan hal yang sama? Apakah istri saya akan mengucapkan "terima kasih" kepada saya, atau malah mengatakan "kamu gila!" 😂.
+ Ini adalah contoh yang indah tentang bagaimana cinta sejati dapat mengatasi kesulitan apapun.
 
- Saya rasa, kita semua perlu belajar dari kasih sayang dan dedikasi Youcai kepada istrinya, tapi juga perlu ingat bahwa kita tidak bisa menghabiskan Rp 4 miliar untuk pengobatan, karena itu bisa membuat kita jatuh miskin 🤑! Jadi, mari kita semua berdoa untuk kesembuhan Ye Meidi dan keluarganya, serta berharap bahwa kita semua bisa menunjukkan kasih sayang yang sama kepada orang-orang yang kita cintai 💕.
+ Namun, di sisi lain, kita juga melihat bagaimana sistem kesehatan yang tidak berpihak pada pasien dengan penyakit langka dan biaya pengobatan yang sangat mahal.
+
+ Ini seperti sebuah lelucon yang tidak lucu, di mana pasien harus memilih antara hidup atau bangkrut.
+
+ Youcai yang rela mengundurkan diri dari pekerjaannya untuk merawat istrinya adalah contoh yang ekstrem tentang bagaimana cinta dapat membuat kita melakukan apa saja, tetapi juga menunjukkan bahwa kita masih memiliki banyak pekerjaan untuk dilakukan dalam memperbaiki sistem kesehatan kita.
+
+ Jadi, mari kita semua berharap bahwa kisah Youcai dan Ye dapat menjadi inspirasi bagi kita semua untuk lebih peduli dengan kesulitan orang lain dan berusaha memperbaiki sistem kesehatan kita, agar tidak ada lagi pasien yang harus memilih antara hidup atau bangkrut.
