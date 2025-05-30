@@ -81,28 +81,26 @@ Infeksi jamur dapat diobati dengan fungisida organik dan kamu dapat menurunkan r
 ---
 ## Ringkasan
 
-Berikut adalah rangkuman singkat berita tersebut: Lidah buaya adalah tanaman serbaguna yang membutuhkan sedikit perawatan, tetapi dapat mengalami masalah seperti daun berubah menjadi coklat jika tidak dirawat dengan benar.
+Berikut adalah ringkasan berita tentang lidah buaya dalam satu paragraf: Lidah buaya adalah tanaman serbaguna yang membutuhkan sedikit perawatan dan dapat tetap hidup meski lupa merawatnya.
 
- Penyebab daun lidah buaya berubah warna menjadi coklat antara lain pemberian air berlebihan atau kurang, terlalu banyak cahaya, kerusakan akibat dingin, dan hama serta penyakit.
+ Tanaman ini dapat memurnikan udara dan mengurangi kondensasi di kamar mandi.
 
- Dengan memahami penyebab-penyebab ini, kita dapat merawat lidah buaya dengan lebih baik dan mencegah masalah-masalah tersebut.
+ Namun, lidah buaya juga dapat mengalami masalah seperti daun berwarna hijau berubah menjadi coklat.
+
+ Penyebabnya bisa karena pemberian air berlebihan atau kurang, terlalu banyak cahaya, kerusakan akibat dingin, atau terserang hama dan penyakit.
+
+ Dengan mengetahui penyebabnya, kita dapat memperbaiki tanaman lidah buaya dengan cara yang tepat.
 
 
 
-Sekarang, mari kita bahas tentang lidah buaya ini dengan sedikit sentuhan humor 😂.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Jadi, kalian tahu bahwa lidah buaya itu seperti pacar yang rewel, jika kalian tidak merawatnya dengan benar, dia akan marah dan berubah menjadi coklat 🤣.
+ Ya, lidah buaya memang tanaman yang sangat kuat dan mudah dirawat, tapi jangan salah, mereka juga bisa menjadi korban kecerobohan kita.
 
- Tapi jangan khawatir, karena dengan sedikit perawatan dan perhatian, lidah buaya dapat kembali menjadi cantik dan sehat seperti semula 💚.
+ Jika kita terlalu banyak menyiramnya, daunnya akan berubah menjadi coklat dan kita akan merasa seperti orang tua yang lupa memberi makan anaknya.
 
- Jika kalian lupa menyiramnya, jangan khawatir, karena lidah buaya dapat bertahan hidup meski kalian lupa merawatnya.
+ Tapi jangan khawatir, karena dengan sedikit perawatan yang tepat, lidah buaya dapat kembali sehat dan kita dapat menghindari perasaan bersalah karena telah membunuh tanaman kita.
 
-.
+ Oh, dan jangan lupa, lidah buaya juga bisa menjadi korban hama dan penyakit, jadi kita harus selalu waspada dan tidak menjadikan tanaman kita sebagai tempat tinggal bagi serangga-serangga yang tidak diinginkan.
 
-.
-
- tapi jangan terlalu lama, ya 😂.
-
- Dan jangan lupa, lidah buaya juga bisa menjadi korban hama dan penyakit, jadi kita harus menjaganya dengan baik untuk mencegah hal-hal tersebut 🙅‍♂️.
-
- Jadi, siapkah kalian untuk menjadi orang tua yang baik untuk lidah buaya kalian? 🤔
+ Jadi, jika kita ingin menjadi orang tua yang baik bagi lidah buaya kita, kita harus memperhatikan kebutuhan mereka dan tidak membuat mereka merasa seperti kita tidak peduli.
