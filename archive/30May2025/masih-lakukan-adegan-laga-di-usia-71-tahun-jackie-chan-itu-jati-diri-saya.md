@@ -61,24 +61,26 @@ Film ini menjanjikan adegan pertarungan yang seru dan momen-momen emosional saat
 ---
 ## Ringkasan
 
-Berita terbaru dari **KOMPAS.
+Berikut ringkasan berita tersebut dalam satu paragraf: Legenda seni bela diri, Jackie Chan, menyatakan bahwa dia tidak akan pensiun dari melakukan aksi berbahaya dalam film-filmnya.
 
-com** mengungkap bahwa Jackie Chan, bintang The Karate Kid: Legends, mengatakan tidak akan pensiun dari melakukan aksi berbahaya di film-filmnya.
+ Menurutnya, melakukan aksi laga sendiri sudah menjadi jati dirinya dan dia tidak akan berhenti melakukan adegan itu.
 
- Menurutnya, melakukan aksi laga sendiri sudah menjadi jati dirinya dan tidak akan berubah sampai dia pensiun.
+ Dengan pengalaman selama 64 tahun, Jackie Chan merasa bahwa melakukan aksi berbahaya sudah menjadi kebiasaan yang diingat secara otomatis oleh otot-ototnya.
 
- Jackie Chan juga mengatakan bahwa dia masih mampu melakukan adegan laga meskipun dengan intensitas yang berkurang di usianya yang memasuki 71 tahun.
+ Meskipun usianya sudah 71 tahun, Jackie masih mampu melakukan adegan laga dengan intensitas yang berkurang.
+
+ Ia juga mengatakan bahwa penggemar tidak menyukai efek khusus dan lebih suka melihat aksi yang nyata.
 
 
 
-Wah, Jackie Chan masih ingin terjun bebas tanpa parasut dan tetap ingin melakukan aksi berbahaya sendiri 🤯! Saya rasa itu karena dia ingin tetap terlihat keren di mata penggemarnya 😎.
+Saya rasa ini adalah contoh dari "kegilaan" yang patut dihargai, tapi juga bisa menjadi contoh dari "kebodohan" yang harus dihindari.
 
- Tapi serius saja, Jackie Chan benar-benar legenda 🙌! Dia melakukan aksi berbahaya selama puluhan tahun dan masih ingin melakukannya lagi 🤪.
+ Di satu sisi, kita harus menghargai dedikasi dan keberanian Jackie Chan dalam melakukan aksi berbahaya sendiri, tapi di sisi lain, kita juga harus mempertanyakan apakah semua itu benar-benar perlu.
 
- Namun, saya juga khawatir dengan keselamatannya 😬.
+ Ia seperti seorang "pahlawan" yang rela mengorbankan nyawanya demi hiburan kita, tapi juga seperti seorang "pembual" yang tidak mau mengakui keterbatasan usia dan kemampuan fisiknya.
 
- Jangan sampai dia terluka parah dan harus pensiun karena cedera 🤕.
+ Tapi, siapa kita untuk menghakimi? Mungkin kita semua hanya ingin melihat aksi yang seru dan lupa bahwa di balik semua itu, ada seorang manusia yang bisa terluka atau bahkan kehilangan nyawanya.
 
- Tapi kayaknya sih, Jackie Chan sudah tidak peduli dengan itu 😂.
+ Jadi, mari kita nikmati aksi-aksi Jackie Chan, tapi juga jangan lupa untuk menghargai keselamatannya.
 
- Dia sudah kecanduan adrenalin dan ingin terus melakukan aksi berbahaya sampai tua 🎉! Saya hanya bisa bilang, "Jackie Chan, kamu benar-benar gila 😂!" 🤣
+ Atau, seperti yang dikatakan dia sendiri, "Itu benar-benar terlalu berbahaya," tapi kita semua tetap ingin melihatnya, kan?
