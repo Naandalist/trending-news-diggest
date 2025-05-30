@@ -85,18 +85,26 @@ Saat ditanya apakah telah berkoordinasi dengan aparat, Sunyono mengatakan, kepol
 ---
 ## Ringkasan
 
-Berikut adalah rangkuman singkat dari berita tersebut: Mahasiswa Universitas Lampung (Unila) bernama Pratama Wijaya Kusuma meninggal dunia setelah mengikuti pendidikan dasar (diksar) organisasi Mahasiswa Ekonomi Pencinta Lingkungan (Mahepel).
+Berikut adalah ringkasan berita dalam satu paragraf: Seorang mahasiswa Fakultas Ekonomi dan Bisnis Universitas Lampung (Unila) bernama Pratama Wijaya Kusuma meninggal dunia setelah mengalami kekerasan saat mengikuti pendidikan dasar (diksar) organisasi Mahasiswa Ekonomi Pencinta Lingkungan (Mahepel).
 
- Dekan Fakultas Ekonomi dan Bisnis (FEB) Unila, Prof Nairobi, mengungkapkan bahwa pengurus Mahepel telah mengakui adanya kelalaian dalam pelaksanaan diksar.
+ Peristiwa ini memicu aksi unjuk rasa dari mahasiswa FEB Unila yang menuntut keadilan dan mengutuk tindakan kekerasan yang terjadi.
 
- Universitas Lampung kemudian membentuk tim investigasi untuk mengusut kematian Pratama.
+ Dekan FEB Unila, Prof Nairobi, mengungkapkan bahwa pengurus Mahepel telah mengakui adanya kelalaian dalam pelaksanaan diksar dan telah meminta maaf kepada pihak yang dirugikan.
+
+ Universitas Lampung kemudian membentuk tim investigasi untuk mengusut kematian Pratama dan menjanjikan sanksi yang tegas bagi pelaku kekerasan.
 
 
 
-Dan sekarang, mari kita bahas hal ini dengan sedikit humor dan sarkasme :D.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu satir.
 
- Jadi, kita memiliki organisasi mahasiswa yang seharusnya fokus pada lingkungan, tapi malah sibuk melakukan kekerasan pada anggotanya sendiri - wow, itu benar-benar "pencinta lingkungan" 🌳💔.
+ Sisi positifnya, mahasiswa FEB Unila telah menunjukkan solidaritas yang kuat dan berani menyuarakan kebenaran, meminta keadilan untuk Pratama.
 
- Lalu, kita memiliki dekan yang mengaku adanya kelalaian, tapi baru mengambil tindakan setelah mahasiswa meninggal - sangat lambat, bukan? 🐌.
+ Namun, sisi negatifnya, kekerasan yang terjadi saat diksar Mahepel adalah contoh nyata bahwa "zona akademik" tidak selalu aman dan nyaman bagi semua mahasiswa.
 
- Dan, kita memiliki tim investigasi yang dibentuk untuk mengusut kasus ini, tapi prosesnya masih sangat lambat - semoga mereka bisa menemukan kebenaran sebelum tahun depan, ya 🕰️! Jadi, mari kita tunggu dan lihat apa yang akan terjadi selanjutnya, tapi satu hal yang pasti: kita harus menjaga agar kekerasan seperti ini tidak terjadi lagi di kampus kita 🚫💪.
+ Apalagi, Mahepel yang seharusnya mengajarkan cinta lingkungan, malah mengajarkan kekerasan kepada juniornya.
+
+ Ini adalah ironi yang sangat menyakitkan.
+
+ Tapi, setidaknya, Universitas Lampung telah mengambil langkah untuk membentuk tim investigasi dan menjanjikan sanksi yang tegas bagi pelaku kekerasan.
+
+ Semoga ini menjadi langkah awal untuk menciptakan lingkungan akademik yang lebih aman dan nyaman bagi semua mahasiswa.
