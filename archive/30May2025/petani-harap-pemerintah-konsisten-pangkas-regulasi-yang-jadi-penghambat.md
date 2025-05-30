@@ -49,16 +49,26 @@ Yadi juga mengatakan bahwa pihaknya saat ini menaruh perhatian khusus terhadap p
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan berita dalam satu paragraf: Presiden Prabowo Subianto menyatakan komitmennya untuk melindungi para petani di Indonesia dengan menyederhanakan regulasi yang menghambat mereka.
+Berikut adalah ringkasan berita dalam satu paragraf: Presiden Prabowo Subianto menyatakan komitmennya untuk melindungi para petani di Indonesia dengan menyederhanakan regulasi yang dianggap tidak benar.
 
- Menurutnya, hasil panen para petani telah meningkat drastis sehingga kehidupan mereka membaik.
+ Menurutnya, kehidupan petani telah membaik dengan peningkatan hasil panen dan produksi yang drastis.
 
- Ketua Umum Kontak Tani Nelayan Andalan (KTNA) Nasional, Mohammad Yadi Sofyan Noor, juga menyambut baik pernyataan Presiden Prabowo dan berharap pemerintah dapat konsisten dalam menghilangkan regulasi yang menghambat petani.
+ Ketua Umum KTNA Nasional, Mohammad Yadi Sofyan Noor, menyambut baik pernyataan Presiden dan berharap bahwa penyederhanaan regulasi dapat membantu petani, terutama dalam mendapatkan pupuk subsidi.
+
+ Sektor pertanian merupakan salah satu tulang punggung perekonomian Indonesia, dengan kontribusi sekitar 11,31 persen terhadap PDB Indonesia.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit bumbu humor 😄.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Jadi, petani kita sekarang sedang gembira karena hasil panen mereka naik drastis, dan Presiden Prabowo berjanji untuk menyederhanakan regulasi yang menghambat mereka - ini adalah kabar baik, bro! 🤩 Tapi, kita juga harus waspada agar pemerintah tidak hanya berjanji, tapi juga benar-benar melaksanakan perubahan yang dibutuhkan 🤔.
+ Ya, karena itu adalah cara terbaik untuk menyampaikan kebenaran, bukan? Jadi, positifnya, petani kita telah hidup lebih baik dengan peningkatan hasil panen dan produksi, dan itu adalah kabar baik bagi kita semua.
 
- Kalau tidak, petani kita masih akan terjebak dalam regulasi yang rumit dan birokratis - itu seperti mencoba mencari jarum di tumpukan jerami, sangat menyakitkan 😩! Jadi, mari kita tunggu dan lihat apakah pemerintah dapat menepati janji mereka, ataukah hanya janji kosong yang tidak memiliki isi 😂.
+ Tapi, negatifnya, kita masih harus melihat apakah komitmen Presiden untuk menyederhanakan regulasi benar-benar terlaksana atau hanya sekedar janji manis.
+
+ Dan, kita juga harus ingat bahwa petani tembakau masih ditekan oleh regulasi yang ketat, jadi mari kita lihat apakah pemerintah benar-benar peduli dengan nasib mereka.
+
+ Jadi, kita tunggu saja, apakah ini hanya omong kosong atau benar-benar akan terjadi.
+
+ Saya pribadi masih skeptis, tapi saya berharap bahwa saya salah, karena itu berarti kita semua akan hidup lebih baik.
+
+ Tapi, kita tahu, di Indonesia, janji dan kenyataan adalah dua hal yang berbeda, bukan?
