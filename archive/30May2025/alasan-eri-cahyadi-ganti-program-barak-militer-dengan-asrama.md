@@ -45,16 +45,30 @@ Keduanya berbasis asrama dengan mengedepankan kedisiplinan dan pemenuhan hak ana
 ---
 ## Ringkasan
 
-Berikut ringkasan dari berita tersebut: Wali Kota Surabaya, Eri Cahyadi, telah memutuskan untuk menghentikan program barak militer bagi anak nakal karena beberapa anak kembali berperilaku tidak baik setelah beberapa bulan keluar dari program tersebut.
+Berikut adalah ringkasan berita dalam satu paragraf: Wali Kota Surabaya, Eri Cahyadi, telah memutuskan untuk menghentikan program barak militer bagi anak nakal karena hasilnya tidak efektif dalam jangka panjang.
 
- Sebelumnya, anak-anak tersebut telah dibawa ke Lanudal Juanda untuk mengikuti Sekolah Kebangsaan selama 10 hari.
+ Anak-anak yang mengikuti program tersebut awalnya menunjukkan perubahan positif, tetapi beberapa bulan setelah keluar dari program, mereka kembali berperilaku tidak baik dan tertangkap polisi.
 
- Eri Cahyadi kemudian mengganti program tersebut dengan program lain, yaitu Kampung Anak Negeri dan program Bibit Unggul.
+ Eri Cahyadi menyatakan bahwa kurangnya perhatian dari orangtua di rumah adalah salah satu penyebab utama masalah ini, sehingga dia memutuskan untuk mengganti program tersebut dengan Kampung Anak Negeri (Kanri) dan program Bibit Unggul yang berbasis asrama dan mengedepankan kedisiplinan dan pemenuhan hak anak.
 
 
 
-Hmm, jadi anak-anak nakal di Surabaya itu kayak kue yang masih setengah matang 🍞😂, dibawa ke barak militer, jadi anak baik, tapi setelah beberapa bulan, kembali ke naluri nakalnya 🤣! Wali Kota Eri Cahyadi ini kayak orangtua yang bijak, menyadari bahwa kasih sayang dan komunikasi lebih penting daripada sekedar dimasukkan ke barak militer 🙏.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan satire yang menyakitkan.
 
- Tapi, apa jadinya anak-anak nakal ini kalau tidak ada program baru, seperti Kampung Anak Negeri dan program Bibit Unggul? 🤔 Mungkin mereka akan kembali menjadi "anak nakal" yang tidak bisa dikendalikan 🤣! Tapi, saya percaya, dengan program baru ini, mereka akan menjadi "anak baik" yang bisa membuat orangtuanya bangga 😊.
+ Jadi, anak-anak nakal kita yang dulunya suka tawuran, setelah dikirim ke barak militer, mereka berubah menjadi anak yang sopan dan disiplin.
 
- Jadi, mari kita dukung program ini dan berharap anak-anak nakal di Surabaya bisa menjadi anak-anak yang berguna bagi bangsa dan negara 🇮🇩💪! 🎉
+.
+
+.
+
+ untuk beberapa bulan saja.
+
+ Lalu, mereka kembali ke kebiasaan lama, dan orangtua mereka yang sibuk dengan urusan masing-masing bahkan tidak memiliki waktu untuk memperhatikan anak mereka.
+
+ WOW, ini adalah contoh klasik dari "hasilnya tidak seperti yang diharapkan, tapi kita tetap bisa membuat alasan yang合理".
+
+ Tapi, serius saja, penghentian program barak militer dan digantinya dengan program yang lebih berfokus pada kedisiplinan dan pemenuhan hak anak mungkin adalah langkah yang tepat, karena pada akhirnya, anak-anak kita membutuhkan perhatian dan kasih sayang yang tulus, bukan hanya sekedar "latihan kemiliteran" yang singkat.
+
+ Jadi, mari kita doakan agar program baru ini dapat membawa hasil yang lebih baik dan anak-anak kita dapat tumbuh menjadi pribadi yang lebih baik.
+
+ Amin!
