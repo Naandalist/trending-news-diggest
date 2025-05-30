@@ -64,20 +64,29 @@ Publik menantikan kehadiran Vidi Aldiano dan kuasa hukumnya dalam sidang tersebu
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan berita dalam satu paragraf: Kasus hukum antara Vidi Aldiano dan pencipta lagu "Nuansa Bening", Keenan Nasution dan Rudi Pekerti, telah mencuat ke permukaan.
+Berikut adalah ringkasan berita dalam satu paragraf: 
+Kasus hukum antara Vidi Aldiano dan Keenan Nasution serta Rudi Pekerti, pencipta lagu "Nuansa Bening", telah mencuat ke permukaan.
 
- Vidi Aldiano dituduh membawakan lagu "Nuansa Bening" secara komersial tanpa izin dalam lebih dari 300 pertunjukan sejak 2008 hingga 2024.
+ Ternyata, ayah Vidi Aldiano, Harry Kiss, memiliki hubungan pertemanan dengan Keenan Nasution, dan permintaan untuk menyanyikan kembali lagu "Nuansa Bening" sebenarnya dilakukan oleh Harry Kiss.
 
- Ayah Vidi Aldiano, Harry Kiss, memiliki hubungan pertemanan dengan Keenan Nasution, namun hal ini tidak mengurangi kewajiban Vidi Aldiano untuk meminta izin sebelum membawakan lagu tersebut.
+ Namun, Vidi Aldiano tidak memiliki izin resmi untuk menyanyikan lagu tersebut, sehingga Keenan Nasution dan Rudi Pekerti mengajukan gugatan perdata terhadap Vidi Aldiano.
+
+ Kasus ini telah memasuki sidang perdana di Pengadilan Niaga Jakarta Pusat, tetapi sidang harus ditunda karena Vidi Aldiano dan kuasa hukumnya tidak hadir.
 
 
 
-Sekarang, mari kita bahas sisi positif dan negatif dari kasus ini dengan sedikit humor :D.
+Sekarang, mari kita bahas secara lebih santai dan dengan sedikit satire yang menyakitkan.
 
- Jadi, Vidi Aldiano membawakan lagu "Nuansa Bening" tanpa izin, itu seperti saya membawa mobil orang tanpa izin, tapi lebih parah karena itu adalah hak cipta :'.
+ Jadi, Vidi Aldiano ingin menyanyikan lagu "Nuansa Bening" tanpa izin, tapi ayahnya memiliki hubungan baik dengan pencipta lagu.
 
- Sisi positifnya adalah kasus ini dapat meningkatkan kesadaran tentang pentingnya izin dan royalti dalam industri musik.
+ Ini seperti saya ingin meminjam uang dari teman ayah saya, tapi saya tidak mau mengembalikan uangnya.
 
- Namun, sisi negatifnya adalah Vidi Aldiano harus menghadapi gugatan hukum dan mungkin harus membayar ratusan juta rupiah sebagai ganti rugi :O.
+ Lucu, kan? Tapi, serius saja, kasus ini menunjukkan bahwa hak cipta dan royalti sangat penting dalam industri musik.
 
- Mungkin Vidi Aldiano harus belajar dari kesalahan ini dan selalu meminta izin sebelum membawakan lagu orang lain, atau mungkin dia harus membuat lagu sendiri yang tidak perlu izin :P.
+ Jangan sampai kita menjadi seperti Vidi Aldiano, yang harus menghadapi gugatan hukum hanya karena ingin menyanyikan lagu tanpa izin.
+
+ Mari kita semua belajar dari kasus ini dan menghargai hak cipta serta royalti dengan benar.
+
+ Oh, dan Vidi Aldiano, mungkin sebaiknya kamu hadir di sidang lanjutan dan memberikan klarifikasi atas tuduhan yang dilayangkan.
+
+ Jangan sampai kamu menjadi bahan olok-olok di media sosial, seperti "Vidi Aldiano, penyanyi yang tidak bisa menyanyikan lagu tanpa izin!"
