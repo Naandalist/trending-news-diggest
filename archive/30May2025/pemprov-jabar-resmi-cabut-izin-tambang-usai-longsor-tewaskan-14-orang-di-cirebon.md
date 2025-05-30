@@ -39,24 +39,22 @@ Dedi menegaskan, pihaknya akan terus memantau aktivitas tambang di wilayahnya da
 ---
 ## Ringkasan
 
-Berikut adalah rangkuman singkat dari berita tersebut: Pemerintah Provinsi Jawa Barat mencabut izin pengelolaan tambang Galian C di Gunung Kuda, Kabupaten Cirebon, setelah terjadi tragedi longsor yang menewaskan lebih dari 14 orang.
+Berikut adalah rangkuman singkat berita tersebut dalam satu paragraf: Pemerintah Provinsi Jawa Barat telah mencabut izin pengelolaan tambang Galian C di Gunung Kuda, Desa Cipanas, Kabupaten Cirebon, setelah terjadi tragedi longsor yang menewaskan lebih dari 14 orang dan melukai beberapa lainnya.
 
- Keputusan ini merupakan langkah tegas untuk melindungi keselamatan masyarakat dan mencegah tragedi serupa terulang.
+ Keputusan ini diambil sebagai bentuk sanksi administratif atas kelalaian pengelolaan tambang yang dikelola oleh Koperasi Pondok Pesantren Al-Azhariyah.
 
- Gubernur Jawa Barat, Dedi Mulyadi, menegaskan bahwa keselamatan masyarakat harus menjadi prioritas utama.
+ Gubernur Jawa Barat, Dedi Mulyadi, menegaskan bahwa keselamatan masyarakat harus menjadi prioritas utama dan pemerintah tidak akan menoleransi lagi pengelolaan tambang yang abai terhadap standar keselamatan.
 
 
 
-Wah, saya baru dengar news ini dan langsung merasa bedes 😱! Jadi, penutupan tambang ini adalah keputusan yang tepat, tapi juga terlambat 🙄.
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Kan sudah banyak korban 🤕.
+ Ya, akhirnya pemerintah mengambil tindakan tegas terhadap pengelolaan tambang yang tidak bertanggung jawab, tapi sayangnya harus menunggu sampai lebih dari 14 orang meninggal dunia.
 
- Tapi, saya salut dengan Gubernur Dedi Mulyadi yang langsung mengambil tindakan tegas 👏.
+ Sisi positifnya, pemerintah mulai memperhatikan keselamatan masyarakat dan tidak ragu-ragu menjatuhkan sanksi bagi para pelanggar.
 
- Mungkin juga karena dia takut kalau-kalau rakyat marah dan membakar rumahnya 🏠😂.
+ Tapi, sisi negatifnya, masih banyak tambang lain yang mungkin sedang menunggu giliran untuk menjadi "korban" kebijakan pemerintah.
 
- Kalau tidak, mungkin tambang itu masih buka dan korban akan terus bertambah 🤦‍♂️.
+ Mari kita berdoa agar pemerintah tidak hanya berhenti pada penutupan tambang ini saja, tapi juga melakukan evaluasi besar-besaran terhadap praktik pertambangan di Jawa Barat dan segera mengambil tindakan untuk mencegah tragedi serupa terulang.
 
- Jadi, kita harus salut dengan keputusan ini, tapi juga harus terus memantau agar tidak terjadi kesalahan yang sama lagi 🙏.
-
- Dan, kepada para pengelola tambang yang masih Bandel, saya kasih saran: jangan main-api dengan keselamatan masyarakat, atau kamu akan jadi korban berikutnya 🚫💣! 😂
+ Dan, tentu saja, mari kita berharap bahwa para pejabat pemerintah tidak hanya pandai berbicara tentang keselamatan masyarakat, tapi juga benar-benar mengambil tindakan nyata untuk melindungi kita semua.
