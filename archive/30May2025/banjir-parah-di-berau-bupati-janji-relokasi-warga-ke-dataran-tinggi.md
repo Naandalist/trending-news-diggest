@@ -51,26 +51,28 @@ Sri Juniarsih juga menyatakan bahwa pemulihan harus dimulai dari nol dan memerlu
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan berita tersebut: Pemerintah Kabupaten Berau berjanji untuk merelokasi warga yang terdampak banjir besar di Kampung Long Ayap dan Long Laai ke wilayah dataran tinggi.
+Berikut adalah rangkuman berita dalam satu paragraf: Pemerintah Kabupaten Berau berjanji untuk merelokasi warga yang terdampak banjir besar di Kampung Long Ayap dan Long Laai, Kecamatan Segah, ke wilayah dataran tinggi.
 
- Bupati Sri Juniarsih Mas menyatakan bahwa sebanyak 72 Kepala Keluarga (KK) di Kampung Long Ayap terdampak langsung banjir dan banyak rumah rusak parah.
+ Bupati Sri Juniarsih Mas menyatakan bahwa sebanyak 72 Kepala Keluarga (KK) di Kampung Long Ayap terdampak langsung banjir, dengan banyak rumah rusak parah dan bangunan penting seperti sekolah, rumah ibadah, dan puskesmas ikut terbawa arus.
 
- Pemerintah juga berkomitmen membangun kembali rumah, gereja, dan fasilitas umum lainnya di lokasi relokasi.
+ Pemerintah berkomitmen untuk membangun kembali rumah, gereja, dan fasilitas umum lainnya di lokasi relokasi, yang berada 1 kilometer dari pusat kampung dan berada di area yang lebih tinggi.
 
 
 
-Wow, banjir besar di Kampung Long Ayap dan Long Laai, itu seperti badai yang datang tanpa peringatan 🌪️! Tapi saya harus bilang, komitmen Pemerintah Kabupaten Berau untuk merelokasi warga ke dataran tinggi itu seperti obat penenang untuk warga yang terdampak 🏥.
+Sekarang, mari kita lihat sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
- Tapi, apa tentang biaya relokasi? Apakah mereka sudah mempertimbangkan anggaran untuk membangun kembali rumah dan fasilitas umum? 🤔.
+ Ya, karena itu adalah cara terbaik untuk menyampaikan kebenaran, bukan? Jadi, sisi positifnya adalah bahwa pemerintahfinally melakukan sesuatu untuk membantu warga yang terdampak banjir, dan itu adalah langkah yang baik.
 
- Saya harap Pemerintah Kabupaten Berau tidak hanya berjanji, tapi juga beraksi Nyata 💪! Dan untuk warga yang terdampak, jangan khawatir, Pemerintah pasti akan membantu.
+ Tapi, sisi negatifnya adalah bahwa ini terjadi setelah banjir besar yang telah menghancurkan banyak rumah dan bangunan penting.
+
+ Jadi, kita bisa mengatakan bahwa pemerintah telah "mengalahkan" banjir dengan.
 
 .
 
 .
 
- atau setidaknya itu yang mereka katakan 😂.
+ merelokasi warga ke tempat yang lebih tinggi.
 
- Tapi serius, banjir besar ini seperti pelajaran untuk kita semua, bahwa kita harus selalu siap untuk menghadapi bencana alam 🌊.
+ Wow, apa solusi yang brilian! Dan, tentu saja, kita harus berterima kasih kepada pemerintah karena telah memutuskan untuk membangun kembali rumah dan fasilitas umum lainnya di lokasi relokasi.
 
- Jadi, mari kita semua berdoa untuk warga Kampung Long Ayap dan Long Laai, dan juga untuk Pemerintah Kabupaten Berau, agar mereka bisa menyelesaikan masalah ini dengan baik 🙏!
+ Karena, ya, itu adalah tanggung jawab mereka sebagai pemerintah, bukan? Tapi, kita tidak bisa tidak bertanya-tanya, apa yang akan terjadi pada warga yang terdampak banjir jika pemerintah tidak membuat komitmen seperti ini? Apakah mereka akan tetap tinggal di tempat yang sama dan menunggu banjir lainnya? Ah, pertanyaan yang sangat membuat kita penasaran, bukan?
