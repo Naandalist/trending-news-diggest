@@ -58,18 +58,30 @@ Selain di area kaki, edema dapat terjadi pada berbagai bagian tubuh lainnya sepe
 ---
 ## Ringkasan
 
-Berikut adalah rangkuman singkat dari laporan berita tersebut: Hiperurisemia atau kadar asam urat yang tinggi dapat menyebabkan berbagai masalah kesehatan, termasuk penyakit ginjal kronis.
+Berikut adalah ringkasan berita dalam satu paragraf: Hiperurisemia atau kadar asam urat yang tinggi dapat menyebabkan berbagai masalah kesehatan, termasuk penyakit ginjal kronis.
 
- Asam urat yang tidak terkontrol dapat memicu kerusakan ginjal dan menyebabkan gejala seperti edema, penurunan jumlah urine, dan kelelahan terus-menerus.
+ Asam urat biasanya tidak menimbulkan gejala hingga kadar asam urat cukup tinggi dan menyebabkan asam urat atau batu ginjal.
 
- Jika tidak segera mendapatkan perawatan yang tepat, kondisi ini dapat menyebabkan kerusakan ginjal, termasuk gagal ginjal kronis.
+ Sendi yang mengalami peradangan karena asam urat ditandai dengan kemerahan, bengkak, dan terasa panas, sementara kristal asam urat juga bisa terbentuk di ginjal dan saluran kemih, mengganggu fungsi ginjal dan memicu timbulnya batu di ginjal atau saluran kemih lainnya.
+
+ Dokter spesialis penyakit dalam, Dr.
+
+ dr.
+
+ Syifa Mustika, SpPD-KGEH, menyatakan bahwa asam urat yang tidak terkontrol bisa memicu kerusakan ginjal dan menyebabkan nefropati urat, yang dapat menyebabkan peradangan dan kerusakan jaringan ginjal.
 
 
 
-Wow, asam urat tinggi itu kayak pacar yang toxic, tidak menimbulkan gejala awalnya, tapi bisa membuat hidup kita menjadi neraka 🤣! Tapi serius, gejala seperti edema, penurunan jumlah urine, dan kelelahan terus-menerus itu kayak alarm yang berbunyi "HEY, ASAM URATMU TINGGI, BRO!" 🚨.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit humor yang menyakitkan.
 
- Jadi, jangan sampai asam uratmu menjadi seperti mantan yang tidak mau move on, karena bisa membuat ginjamu menjadi korban 😂.
+ Jadi, asam urat tinggi dapat menyebabkan kerusakan ginjal, tapi setidaknya kita memiliki alasan untuk tidak pergi ke gym lagi karena "asam urat yang tinggi".
 
- Perlunya menjaga kesehatan dan mengontrol asam urat, agar tidak menjadi korban dari kerusakan ginjal yang parah 💔.
+ Gejala seperti edema, penurunan jumlah urine, dan kelelahan terus-menerus membuat kita memiliki alasan untuk bermalas-malasan dan tidak melakukan apa-apa.
 
- Jadi, mulai sekarang, kita harus lebih peduli dengan kesehatan kita, dan tidak membuat asam urat menjadi "the ultimate toxic boyfriend" 🚫! 💁‍♀️👍
+ Namun, sisi negatifnya adalah kita bisa mengalami gagal ginjal kronis, yang bukanlah sesuatu yang lucu.
+
+ Jadi, mari kita menjaga kesehatan kita dengan mengontrol kadar asam urat dan tidak menunggu sampai terlambat.
+
+ Percayalah, tidak ada yang ingin mengalami nefropati urat atau gagal ginjal kronis hanya karena malas mengontrol asam urat.
+
+ Mari kita jaga kesehatan kita dengan benar, sebelum kita harus mengucapkan "selamat tinggal" pada ginjal kita yang masih sehat!
