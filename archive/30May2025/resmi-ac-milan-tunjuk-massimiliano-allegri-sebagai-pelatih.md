@@ -51,18 +51,20 @@ Sebelum dipecat pada Januari 2014, ia memiliki persentase kemenangan 51,12% di k
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan dari berita tersebut: AC Milan secara resmi mengumumkan pelantikan Massimiliano Allegri sebagai pelatih mereka yang baru, setelah tim tersebut mengalami masa sulit di musim 2024-2025 dan gagal meraih tempat di kompetisi antarklub Eropa.
+Berikut adalah ringkasan singkat dari berita tersebut: AC Milan telah secara resmi mengumumkan pelantikan Massimiliano Allegri sebagai pelatih baru mereka, menggantikan Sergio Conceicao yang dipecat setelah tim gagal meraih tempat di kompetisi Eropa.
 
- Allegri dilaporkan telah menandatangani kontrak yang berdurasi tiga tahun dengan gaji sebesar 5 juta euro per musim.
+ Allegri, yang memiliki pengalaman melatih Milan sebelumnya, menandatangani kontrak tiga tahun dengan gaji pokok 5 juta euro per musim, membuatnya menjadi pelatih dengan bayaran tertinggi ketiga di Serie A.
 
- Dengan pengalaman dan reputasi yang baik di Serie A, Allegri diharapkan dapat membawa AC Milan kembali ke jalur kesuksesan.
+ Dengan enam gelar juara Liga Italia, Allegri diharapkan dapat membawa AC Milan kembali ke jalur kesuksesan.
 
 
 
-Wow, Allegri kembali ke Milan dengan gaji yang sangat menggiurkan, 92,7 miliar rupiah per musim 🤑! Saya rasa ini adalah langkah yang tepat untuk Milan, karena Allegri sudah terbukti sebagai pelatih yang berprestasi di Serie A 🏆.
+Sekarang, mari kita bahas sisi positif dan negatif dari informasi ini dengan sedikit satire yang menyakitkan.
 
- Tapi, saya juga tidak bisa tidak bertanya-tanya, apakah gaji tersebut sebanding dengan performa tim di musim sebelumnya? 🤔.
+ Jadi, AC Milan memutuskan untuk "membeli" kesuksesan dengan merekrut Allegri, si pelatih yang sudah terkenal dan memiliki banyak prestasi.
 
- Saya rasa Milan harus berhati-hati, karena dengan gaji yang besar, juga datang tanggung jawab yang besar 🤑! Jangan sampai Allegri menjadi "pelatih termahal" yang tidak bisa membawa Milan ke kesuksesan 🤦‍♂️.
+ Wow, apa yang tidak bisa dibeli dengan uang, kan? Allegri mendapat gaji pokok 5 juta euro per musim, yang setara dengan 92,7 miliar rupiah - jumlah yang cukup untuk membiayai beberapa tim liga Indonesia selama beberapa musim.
 
- Tapi, saya tetap percaya bahwa Allegri bisa membawa Milan kembali ke puncak, dan membuat fans Milan bahagia lagi 💪!
+ Namun, kita tidak bisa menyangkal bahwa Allegri memiliki kemampuan dan pengalaman yang luas, sehingga mungkin ini adalah langkah yang tepat untuk AC Milan.
+
+ Tapi, pertanyaannya adalah, apakah mereka telah belajar dari kesalahan-kesalahan sebelumnya, atau mereka hanya menggunakan cara yang sama untuk mencapai kesuksesan? Satu hal yang pasti, kita akan menonton dengan tajam untuk melihat apakah Allegri dapat membawa AC Milan kembali ke puncak kesuksesan, atau apakah mereka akan terjebak dalam lingkaran setan yang sama.
