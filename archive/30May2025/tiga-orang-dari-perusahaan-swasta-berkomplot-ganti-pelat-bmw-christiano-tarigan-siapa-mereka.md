@@ -62,24 +62,24 @@ Polisi menyatakan, Christiano yang kini sudah ditahan atas kematian Argo, juga a
 ---
 ## Ringkasan
 
-Berikut adalah ringkasan berita dalam satu paragraf: Polisi telah menangkap tiga orang yang terlibat dalam penggantian pelat nomor mobil BMW milik Christiano Pengarapenta Pengidahan Tarigan, yang terlibat dalam kecelakaan yang menewaskan mahasiswa UGM Argo Ericko Achfandi.
+Berikut ringkasan berita dalam satu paragraf: Polisi telah menangkap tiga orang yang bekerja di perusahaan swasta yang sama karena terlibat dalam penggantian pelat nomor mobil BMW yang terlibat dalam kecelakaan yang menewaskan mahasiswa UGM Argo Ericko Achfandi.
 
- Ketiga orang tersebut, IV, WI, dan NR, bekerja di perusahaan swasta yang sama dan berkomplot untuk mengganti pelat nomor usai kecelakaan.
+ Ketiga pelaku, yaitu IV, WI, dan NR, diduga mengganti pelat nomor mobil dari F 1206 menjadi B 1442 NAC atas perintah untuk menyembunyikan identitas mobil yang terlibat dalam kecelakaan.
 
- Mereka telah ditangkap dan sedang dalam pemeriksaan lanjutan.
+ Polisi menemukan bahwa pelaku utama, IV, mengganti pelat nomor di halaman Polsek Ngaglik dan terekam oleh kamera pengawas.
 
+ 
 
+Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit satire yang menyakitkan.
 
-Sekarang, mari kita bahas sisi positif dan negatif dari berita ini dengan sedikit sentuhan humor 😂.
+ Sisi positifnya adalah polisi yang cukup sigap dalam menangkap pelaku dan mengungkap kasus ini, meskipun perusahaan swasta tempat mereka bekerja masih belum diungkapkan.
 
- Jadi, ketiga orang ini berpikir mereka bisa menyembunyikan kebenaran dengan mengganti pelat nomor, tapi malah ketahuan oleh polisi 🚔! Mereka seperti trio komedi yang salah mengambil skenario 🤣.
+ Namun, sisi negatifnya adalah betapa mudahnya orang-orang dengan kekuasaan dan uang dapat mencoba untuk menyembunyikan kesalahan mereka dengan mengganti pelat nomor mobil.
 
- Sisi positifnya, polisi kita sungguh-sungguh dalam menangani kasus ini dan tidak ragu-ragu untuk menangkap orang-orang yang terlibat 🙌.
+ Ini menunjukkan bahwa di Indonesia, uang dan kekuasaan masih dapat membeli keadilan, atau setidaknya mencoba untuk menyembunyikannya.
 
- Tapi, sisi negatifnya, masih banyak orang yang berpikir mereka bisa melanggar hukum dan tidak ketahuan 🤦‍♂️.
+ Dan yang paling menyakitkan adalah pelaku utama, Christiano, yang terlibat dalam kecelakaan yang menewaskan orang lain, masih mencoba untuk menyembunyikan identitas mobilnya dengan mengganti pelat nomor.
 
- Christiano, kamu harusnya tahu bahwa menggunakan pelat palsu itu seperti bermain judi dengan nyawa orang lain 🚫.
+ Ini menunjukkan bahwa beberapa orang masih belum memiliki rasa tanggung jawab dan kesadaran akan tindakan mereka.
 
- Sekarang, kamu harus menghadapi konsekuensi dari tindakanmu 🤕.
-
- Jadi, moral dari cerita ini adalah: jangan pernah mencoba menyembunyikan kebenaran, karena itu hanya akan membuat kamu terlihat lebih buruk 😂!
+ Jadi, kita harus terus menerus mengawasi dan menuntut keadilan agar kasus-kasus seperti ini tidak terulang kembali.
